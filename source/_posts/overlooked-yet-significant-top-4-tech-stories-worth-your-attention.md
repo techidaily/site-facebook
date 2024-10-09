@@ -1,7 +1,7 @@
 ---
 title: "Overlooked Yet Significant: Top 4 Tech Stories Worth Your Attention"
-date: 2024-09-18T21:08:29.701Z
-updated: 2024-09-21T22:52:07.302Z
+date: 2024-10-02T05:18:47.345Z
+updated: 2024-10-09T03:27:25.767Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,23 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
 
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The $2.9 Million Tweet
 
 ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
@@ -57,6 +71,13 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
 ## Welcome to the Metaverse
 
 ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
@@ -73,10 +94,10 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
 ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
@@ -88,19 +109,6 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
  Related:[How iOS 14.5 Will Hurt Facebook](https://www.makeuseof.com/how-the-ios-14-5-update-is-going-to-really-hurt-facebook/)
 
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What Tech News Will We See in 2022?
 
@@ -121,5 +129,22 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-best-way-to-record-podcast-remotely/"><u>[Updated] Best Way to Record Podcast Remotely</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-perfecting-your-content-chrome-compatible-tiktok-uploads-for-2024/"><u>[Updated] Perfecting Your Content Chrome-Compatible TikTok Uploads for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/3-ways-to-export-contacts-from-apple-iphone-7-plus-to-excel-csv-and-vcard-easily-drfone-by-drfone-transfer-from-ios/"><u>3 Ways to Export Contacts from Apple iPhone 7 Plus to Excel CSV & vCard Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-double-edged-sword-weighing-social-connectivity-against-your-privacy-with-facebook-logins/"><u>A Double-Edged Sword: Weighing Social Connectivity Against Your Privacy with Facebook Logins</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-enterprise-excellence-select-5-powerful-platforms/"><u>Exploring Enterprise Excellence: Select 5 Powerful Platforms</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Oppo A79 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-recognize-and-stop-facebook-fraudsters/"><u>How to Recognize and Stop Facebook Fraudsters</u></a></li>
+<li><a href="https://facebook.techidaily.com/journey-of-growth-unveiling-the-new-term-metamate/"><u>Journey of Growth: Unveiling the New Term, 'Metamate'</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-friends-memorable-with-fb-images-on-whatsapp/"><u>Making Friends Memorable with FB Images on WhatsApp</u></a></li>
+<li><a href="https://common-error.techidaily.com/quick-solution-for-unseen-bluetooth-option-in-computer-device-manager/"><u>Quick Solution for Unseen Bluetooth Option in Computer Device Manager</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplify-your-social-scene-by-removing-politics/"><u>Simplify Your Social Scene by Removing Politics</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-10-ever-approved-reddit-threads-a-historical-list/"><u>Top 10 Ever-Approved Reddit Threads A Historical List</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-metas-updated-approach-to-user-privacy/"><u>Unraveling Meta's Updated Approach to User Privacy</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-solutions-for-chatgpt-and-plugin-discrepancies/"><u>Unveiling Solutions for ChatGPT & Plugin Discrepancies</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/what-makes-ai-chatbots-a-trending-tech-phenomenon/"><u>What Makes AI Chatbots a Trending Tech Phenomenon?</u></a></li>
+</ul></div>
 

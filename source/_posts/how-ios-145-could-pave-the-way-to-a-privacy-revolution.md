@@ -1,7 +1,7 @@
 ---
 title: How iOS 14.5 Could Pave the Way to a Privacy Revolution
-date: 2024-09-15T20:47:19.972Z
-updated: 2024-09-21T22:47:02.717Z
+date: 2024-10-03T22:59:42.911Z
+updated: 2024-10-08T22:12:28.784Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/95788679327077f3bf6744c4870d74096e3663b00
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
 
  Facebook's primary source of revenue is selling advertising space on its social media platforms.
@@ -60,20 +67,33 @@ thumbnail: https://thmb.techidaily.com/95788679327077f3bf6744c4870d74096e3663b00
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Many Users Allow App Tracking?
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What Does This All Mean for Facebook?
 
@@ -90,16 +110,10 @@ thumbnail: https://thmb.techidaily.com/95788679327077f3bf6744c4870d74096e3663b00
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's Likely Response
@@ -125,5 +139,20 @@ thumbnail: https://thmb.techidaily.com/95788679327077f3bf6744c4870d74096e3663b00
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-from-social-to-storage-iphone-and-android-gif-savings/"><u>[New] In 2024, From Social to Storage IPhone & Android GIF Savings</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-amplify-your-channel-popularity-instantly/"><u>[Updated] In 2024, Amplify Your Channel Popularity Instantly</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-connoisseurs-melding-visionary-sounds-and-frames/"><u>[Updated] In 2024, Connoisseurs Melding Visionary Sounds & Frames</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-screen-unveiling-five-pivotal-user-disappointments-in-facebook/"><u>Behind the Screen: Unveiling Five Pivotal User Disappointments in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-hidden-layers-in-facebooks-leaked-documents/"><u>Discover the Hidden Layers in Facebook’s Leaked Documents</u></a></li>
+<li><a href="https://win-dash.techidaily.com/enhance-security-downloading-and-updating-windows-biometric-driver-software/"><u>Enhance Security: Downloading & Updating Windows Biometric Driver Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-payment-plan-paves-way-for-artists-financial-freedom/"><u>Facebook’s Payment Plan Paves Way for Artists’ Financial Freedom</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-do-a-privacy-check-for-your-teens-facebook-account/"><u>How to Do a Privacy Check for Your Teen's Facebook Account</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Poco F5 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-affection-concealing-your-likes-on-networks/"><u>Invisible Affection: Concealing Your Likes on Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-in-facebooks-messaging/"><u>Protecting Privacy in Facebook's Messaging</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-make-your-own-cartoons-10-essential-animation-apps-for-mobile/"><u>Updated In 2024, Make Your Own Cartoons 10 Essential Animation Apps for Mobile</u></a></li>
+</ul></div>
 

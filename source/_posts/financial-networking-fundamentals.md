@@ -1,7 +1,7 @@
 ---
 title: Financial Networking Fundamentals
-date: 2024-09-15T00:32:57.821Z
-updated: 2024-09-21T18:19:31.953Z
+date: 2024-10-06T02:35:28.346Z
+updated: 2024-10-08T16:08:15.736Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/f33adb8a41f790bc858c47b5fb66f5998fe40f100
 
  Sites like Facebook and Twitter have received hundreds of millions of dollars in venture capital. Nowadays, with hindsight, we can say that those investors made intelligent choices, but venture capital is a risky game and investments don't always pay off. Would you have invested in Facebook when it was called "Thefacebook" and only available to Harvard students?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Advertising
 
 ![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
@@ -62,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/f33adb8a41f790bc858c47b5fb66f5998fe40f100
 
  Another example is Facebook, which has often been under the spotlight thanks to things like the Cambridge Analytica scandal. Despite the uproar, Facebook isn't purposely giving other companies your data—it wants to keep it for itself. However, Facebook monitors your usage, such as the pages you like, and uses this to put you in a category so that advertisers can pay to target that group.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Premium Memberships
 
 ![Reddit Premium promo image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/06/whats-reddit-premium.jpg)
@@ -74,16 +88,16 @@ thumbnail: https://thmb.techidaily.com/f33adb8a41f790bc858c47b5fb66f5998fe40f100
 
  The majority of users won't pay for these premium memberships, which is one of the reasons that the base account is free. However, for those people who are willing to pay, it makes for a good income stream for the social networks.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Transaction Fees and Virtual Products
 
 ![facebook fundraisers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-fundraisers.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Some social networks offer services for other people to sell or raise money through them. The social network will collect a transaction fee on this.
 
@@ -92,10 +106,10 @@ thumbnail: https://thmb.techidaily.com/f33adb8a41f790bc858c47b5fb66f5998fe40f100
  Another way of making money is through virtual products. This can be seen in something like Tumblr, which charges for some blog themes. Elsewhere, Facebook used to sell "Gifts" (amusing icons that you can put on someone's profile), but it has since retired this.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Diversifying
@@ -125,5 +139,21 @@ thumbnail: https://thmb.techidaily.com/f33adb8a41f790bc858c47b5fb66f5998fe40f100
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-master-class-extracting-and-saving-vimeo-videos/"><u>[New] Master Class Extracting and Saving Vimeo Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-best-non-zoom-video-conferencing-tools-desktopmobile/"><u>[Updated] Best Non-Zoom Video Conferencing Tools (Desktop/Mobile)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-conquering-the-dilemma-how-to-send-videos-on-facebook-message/"><u>[Updated] Conquering the Dilemma How to Send Videos on Facebook Message</u></a></li>
+<li><a href="https://facebook.techidaily.com/2022s-worst-of-the-tech-world-exposed/"><u>2022'S Worst of the Tech World Exposed</u></a></li>
+<li><a href="https://facebook.techidaily.com/audience-faces-change-as-carolyn-exits-facebook/"><u>Audience Faces Change as Carolyn Exits Facebook</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/blades-kaleidoscope-unleashed-through-4k-lens-clarity-for-2024/"><u>Blade's Kaleidoscope Unleashed Through 4K Lens Clarity for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-wacom-intuos-pro-driver-on-windows-11-a-step-by-step-tutorial/"><u>Download and Install Wacom Intuos Pro Driver on Windows 11 - A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixes-and-solutions-troubleshooting-persona-5-strikers-pc-game-crashes/"><u>Fixes and Solutions: Troubleshooting Persona 5 Strikers PC Game Crashes</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-tools-is-facebook-an-event-ally/"><u>Mastering Social Media Tools: Is Facebook an Event Ally?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/next-gen-screen-in-depth-look-at-the-hp-envy-27-for-2024/"><u>Next Gen Screen In-Depth Look at the HP Envy 27 for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-guide-fixing-freezing-issues-in-halo-infinite/"><u>Troubleshooting Guide: Fixing Freezing Issues in Halo Infinite</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-creativity-designing-an-engaging-social-media-profile-picture-using-your-avatar/"><u>Unleash Creativity: Designing an Engaging Social Media Profile Picture Using Your Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-networks-groups-suit-you-best-facebook-or-linkedin/"><u>Which Network's Groups Suit You Best? Facebook or LinkedIn</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-runs-todays-facebook/"><u>Who Runs Today's Facebook?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Covert Norms of Online Networking on FB
-date: 2024-09-27T23:25:09.326Z
-updated: 2024-10-03T16:30:49.703Z
+date: 2024-10-01T18:09:01.534Z
+updated: 2024-10-08T18:04:34.330Z
 tags:
   - facebook
 categories:
@@ -58,13 +58,6 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 
  If you can't send them a friend request at all, they may have changed who can add them or they denied your friend request less than a year ago.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Unfollowing vs. Unfriending on Facebook
 
  Rather than unfriending people who are flooding your News Feed with silly posts, try unfollowing them instead. That way, you can maintain your digital sanity, without risking the loss of a real-life friendship. For more information, read our primer on[following and unfollowing on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) .
@@ -73,26 +66,26 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 
 ![Facebook on-post menu to unfollow or snooze a friend.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-Friend.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Alternatively, head to your friend's profile, expand the menu right next to your friendship status, and select**Unfollow** from the bottom.
 
 ![Unfollow a Facebook friend from their profile page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-Friend-Profiile-Page.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Unwritten Facebook Friend Request Rules
 
  Now that you understand the basics of how to add friends on Facebook, let's review some finer details of managing Facebook friend requests.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Only Add People You Know
@@ -119,6 +112,13 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 
  If you just want to follow someone's Facebook posts, and if there is an option to follow them, rather choose that option. From their profile, click the three-dot menu, and select**Follow** . This allows you to see what they are up to, but your timeline is not shared with them.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Report Spammy Friend Requests
 
  When you delete a friend request, Facebook promises that the sender won't be notified. But they might send you a new request. If you can't get rid of them, you can use either the**Find support or report offline** or**Block** options, available from the three-dot menu, to prevent further friend requests from that person.
@@ -129,14 +129,14 @@ thumbnail: https://thmb.techidaily.com/71005eecdd2fec9bde2d87e54e71962fc2dc07f26
 
 ![Report an unwelcome friend request on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Report-Friend-Request.jpg)
 
-Keep in mind that if you do this, the person may be penalized.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Keep in mind that if you do this, the person may be penalized.
 
 ### 4\. Review Friend Requests You Have Sent
 
@@ -145,13 +145,6 @@ Keep in mind that if you do this, the person may be penalized.
  Go to**Friends > Friend Requests > View Sent Requests** . From here, you can cancel pending requests.
 
 ![Cancel Facebook friend requests you've sent.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Cancel-Friend-Requests.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You may want to do this if you're one of the people who experienced a Facebook friend request bug in 2023\. The bug meant that if you searched for a profile on Facebook, the website would automatically send a friend request.
 
@@ -168,17 +161,10 @@ Keep in mind that if you do this, the person may be penalized.
 ![Facebook friend request settings in the Privacy section.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friend-Request-Settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Hide Your Friends List
@@ -199,6 +185,19 @@ Keep in mind that if you do this, the person may be penalized.
 
  If you can't seem to friend someone on Facebook, here are the most likely reasons...
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. You Sent an Unsuccessful Friend Request
 
  You already sent a friend request, and it's either still pending or the recipient deleted it. Now, the**Add Friend** button doesn't show up, so you can't send a new friend request.
@@ -212,21 +211,22 @@ Keep in mind that if you do this, the person may be penalized.
  You can't friend someone you've blocked. See if you can[unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. They Don't Permit Friend Requests From Strangers
 
  As outlined above, Facebook allows you to restrict who can send you a friend request. If that's the reason you can't friend someone, ask them to send you a friend request instead.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Someone Has Too Many Friends Already
 
@@ -263,20 +263,14 @@ Follow our guidelines above to avoid this from happening again.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-mov-files-saving-methods-for-windows-10-users/"><u>[New] 2024 Approved .mov Files Saving Methods for Windows 10 Users</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-comprehensive-guide-to-exceptional-screen-recording-on-the-go-with-mobizen-for-2024/"><u>[New] Comprehensive Guide to Exceptional Screen Recording on the Go with Mobizen for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-simplified-processes-generating-your-podcasts-rss-feed/"><u>[New] Simplified Processes Generating Your Podcast's RSS Feed</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-ultimate-guide-top-15-innovative-snapchat-ideas/"><u>[Updated] In 2024, The Ultimate Guide Top 15 Innovative Snapchat Ideas</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-building-bridges-encouraging-dialogue-in-the-youtube-community/"><u>2024 Approved Building Bridges Encouraging Dialogue in the YouTube Community</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-zoom-session-division-for-starters/"><u>2024 Approved Zoom Session Division for Starters</u></a></li>
-<li><a href="https://facebook.techidaily.com/englands-top-sportsmen-reject-cyber-abuse-on-digital-networks/"><u>England's Top Sportsmen Reject Cyber Abuse on Digital Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-facebooks-new-gesture-based-interface/"><u>Examining Facebook's New Gesture-Based Interface</u></a></li>
-<li><a href="https://article-helps.techidaily.com/introducing-dimensional-text-with-photoshop-expertise/"><u>Introducing Dimensional Text with Photoshop Expertise</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-triad-the-social-titans-among-us/"><u>Meta’s Triad: The Social Titans Among Us</u></a></li>
-<li><a href="https://windows11.techidaily.com/quick-fix-guide-for-degraded-windows-based-excel-performance/"><u>Quick-Fix Guide for Degraded Windows-Based Excel Performance</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/revive-the-essential-drag-and-drop-in-win11/"><u>Revive the Essential Drag-and-Drop in Win11</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-the-way-you-connect-and-navigate-on-facebook/"><u>Revolutionizing The Way You Connect & Navigate on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-virtual-audience-numbers/"><u>Unveiling Virtual Audience Numbers</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-social-networking-goes-south-the-top-5-times-facebook-failed-its-audience/"><u>When Social Networking Goes South: The Top 5 Times Facebook Failed Its Audience</u></a></li>
+<li><a href="https://driver-install.techidaily.com/cross-platform-usbethernet-adapter-setup-manual/"><u>Cross-Platform USB/Ethernet Adapter Setup Manual</u></a></li>
+<li><a href="https://some-tips.techidaily.com/how-to-turn-your-smartphone-into-a-virtual-reality-vr-headset-for-2024/"><u>How to Turn Your Smartphone Into a Virtual Reality (VR) Headset for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-encryption-truthful-or-not/"><u>Messenger Encryption: Truthful or Not?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/navigating-the-world-of-photo-reshaping-for-2024/"><u>Navigating the World of Photo Reshaping for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-art-of-blending-audio-and-visuals-in-a-trailer/"><u>The Art of Blending Audio and Visuals in a Trailer</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secret-keepers-playbook-private-photos-on-fb/"><u>The Secret Keeper’s Playbook: Private Photos on FB</u></a></li>
+<li><a href="https://fox-that.techidaily.com/understanding-icloud-staying-protected-against-accidental-photo-loss/"><u>Understanding iCloud: Staying Protected Against Accidental Photo Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-full-featured-spotify-use-in-facebook/"><u>Unlocking Full-Featured Spotify Use in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/watch-out-a-storm-of-negative-headlines-for-fb/"><u>Watch Out! A Storm of Negative Headlines for FB</u></a></li>
 </ul></div>
 

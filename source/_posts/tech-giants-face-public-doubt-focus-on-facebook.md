@@ -1,7 +1,7 @@
 ---
 title: "Tech Giants Face Public Doubt: Focus on Facebook"
-date: 2024-09-19T20:07:07.877Z
-updated: 2024-09-21T22:16:34.765Z
+date: 2024-10-03T22:19:25.816Z
+updated: 2024-10-08T19:14:16.094Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,19 @@ thumbnail: https://thmb.techidaily.com/50d4bf6106cc2e789648c53429943f049229011e6
 
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Is the Least Trusted
 
  About 44% of Americans trust Apple and Microsoft. Google does better with 48% trust. Amazon does really well comparatively, as it has the trust of a majority 53% of users (Amazon and Washington Post are both owned by Jeff Bezos). Other users either distrust these four companies or have no opinion.
@@ -46,9 +59,23 @@ thumbnail: https://thmb.techidaily.com/50d4bf6106cc2e789648c53429943f049229011e6
 
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is Facebook So Distrusted?
 
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
 
@@ -65,10 +92,10 @@ thumbnail: https://thmb.techidaily.com/50d4bf6106cc2e789648c53429943f049229011e6
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -94,5 +121,20 @@ thumbnail: https://thmb.techidaily.com/50d4bf6106cc2e789648c53429943f049229011e6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-journey-to-jewels-5-optimal-terrafirma-mapping/"><u>[Updated] 2024 Approved Journey to Jewels 5 Optimal Terrafirma Mapping</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-nokia-c12-plus-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Nokia C12 Plus Activity | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-upcoming-us-antitrust-measures-against-major-tech-firms/"><u>Dissecting the Upcoming US Antitrust Measures Against Major Tech Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/driving-viral-campaigns-with-strategic-fb-posting-techniques/"><u>Driving Viral Campaigns with Strategic FB Posting Techniques</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-lava-yuva-3-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Lava Yuva 3</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-exclusive-list-top-sandbox-experiences/"><u>In 2024, Exclusive List Top Sandbox Experiences</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-management-securing-your-social-media-space-with-admins/"><u>Mastery Over Management: Securing Your Social Media Space with Admins</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/maximizing-your-youtube-videos-viewer-count-for-2024/"><u>Maximizing Your YouTube Video's Viewer Count for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/moving-from-twitter-to-tweeters/"><u>Moving From Twitter to Tweeters</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/professioneller-tutorial-zum-einrichten-der-winx-dvd-programmsoftware/"><u>Professioneller Tutorial Zum Einrichten Der WinX DVD Programmsoftware</u></a></li>
+<li><a href="https://facebook.techidaily.com/study-most-covid-19-misinformation-was-spread-by-these-12-influencers/"><u>Study: Most Covid-19 Misinformation Was Spread by These 12 Influencers</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ultimate-ratings-top-long-distance-routers-to-enhance-your-internet-coverage/"><u>Ultimate Ratings: Top Long-Distance Routers to Enhance Your Internet Coverage</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-with-messenger-kids-inbuilt-sleep-mode/"><u>Unlocking Potential with Messenger Kids' Inbuilt Sleep Mode</u></a></li>
+</ul></div>
 

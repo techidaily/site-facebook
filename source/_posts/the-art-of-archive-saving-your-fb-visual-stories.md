@@ -1,7 +1,7 @@
 ---
 title: "The Art of Archive: Saving Your Fb Visual Stories"
-date: 2024-09-30T17:50:27.140Z
-updated: 2024-10-03T18:31:30.630Z
+date: 2024-10-03T03:56:23.696Z
+updated: 2024-10-08T22:44:35.441Z
 tags:
   - facebook
 categories:
@@ -37,6 +37,13 @@ thumbnail: https://thmb.techidaily.com/a4a765e99a54a380752423d8d88b32966a3339aa9
 
  However, to download your friends' Facebook photos, their[Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Download Facebook Albums
 
  If you want to download a Facebook album from your own profile, Facebook has a simple method to do that. Again, you don't need any third-party downloader apps for this. However, you'll need to use Facebook on the web since mobile apps don't let you download albums.
@@ -47,13 +54,6 @@ Follow these steps to download your Facebook album:
 2. Go to**Photos > Albums** .  
 ![Facebook's album page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-albums-page-web.jpg)
 3. Open the album that you want to download.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 4. In the top-right corner, click the**three-dot icon** and select**Download album** .  
 ![Downloading an album on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/download-facebook-album.jpg)
@@ -76,10 +76,10 @@ Follow these steps to download your Facebook album:
 4. Click**Request a download** from the pop-up.  
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Download your information pop-up on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/download-your-information-facebook.jpg)
@@ -90,14 +90,22 @@ Follow these steps to download your Facebook album:
 2. On the follow-up page, select**Posts** under**Your activity across Facebook** and click**Next** .  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Selecting information to download on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/choosing-information-to-download-facebook.jpg)
 3. To download all your Facebook photos click**Date range** and select**All time** then hit**Save** to persist the changes.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 4. Next, choose the quality of the image files by selecting**Media quality** . We recommend changing**Medium** to**High** if you want full-resolution copies. The setting you choose will determine the size of the file. If you have a lot of pictures, this will increase the file size and the time Facebook takes to get it ready. Once done, select**Save** .  
 ![Facebook information download page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-photo-download-settings-page.jpg)
 5. After that, click**Submit Request** at the bottom.
@@ -109,10 +117,10 @@ Follow these steps to download your Facebook album:
  Download and unzip the file to see all of your posts and images, with albums as sub-folders.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Which Is the Best Facebook Photo Downloader App?
@@ -124,13 +132,6 @@ Follow these steps to download your Facebook album:
 ## How to Save Facebook Videos to Your Computer or Phone
 
 ![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you[download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
 
@@ -170,16 +171,15 @@ Here's how to use it:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-conquer-youtubes-copy-paste-loop-mastery-essentials/"><u>[New] 2024 Approved Conquer YouTube's Copy-Paste Loop Mastery Essentials</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-biography-breakthroughs-101-expert-tips-and-tricks-for-facebook-biographers/"><u>[Updated] In 2024, Biography Breakthroughs 101 Expert Tips and Tricks for Facebook Biographers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-navigate-the-1080p-landscape-for-better-fb-broadcasts/"><u>[Updated] In 2024, Navigate the 1080P Landscape for Better FB Broadcasts</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Poco X5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-create-a-facebook-cover-photo-using-your-avatar/"><u>How to Create a Facebook Cover Photo Using Your Avatar</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-resolve-non-launch-of-steam-titles-in-windows-11-environment/"><u>How to Resolve Non-Launch of Steam Titles in Windows 11 Environment</u></a></li>
-<li><a href="https://facebook.techidaily.com/igniting-the-digital-conversation-12-revolutionary-strategies-for-engagement/"><u>Igniting the Digital Conversation: 12 Revolutionary Strategies for Engagement</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-can-you-stream-fb-videos-on-your-living-room-screen-this-year/"><u>In 2024, Can You Stream FB Videos On Your Living Room Screen This Year?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-oppo-a78-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Oppo A78 5G to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-tale-of-a-million-facebook-groups-amazon-vs-admins/"><u>The Tale of a Million Facebook Groups: Amazon Vs. Admins</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-list-9-social-media-compromise-clues/"><u>The Ultimate List: 9 Social Media Compromise Clues</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-capturing-screens-with-isprings-pro/"><u>[Updated] Capturing Screens with iSpring's Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-virtual-persona-picture-perfection-tips/"><u>Elevating Your Virtual Persona: Picture Perfection Tips</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/gsmwav-movavi/"><u>GSMからWAVへの無料変換: オンラインツールとその便利さ - Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebooks-chat-works-behind-scenes/"><u>How Facebook's Chat Works Behind Scenes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/imac-m1-review-a-visual-refresh-and-the-powerful-m1-chip/"><u>IMac M1 Review: A Visual Refresh and the Powerful M1 Chip</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-journey-through-audio-production-initiating-with-auditions-fade-in/"><u>In 2024, Journey Through Audio Production Initiating with Audition’s Fade In</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-how-to-easily-use-korean-to-english-video-translators/"><u>New In 2024, How To Easily Use Korean to English Video Translators</u></a></li>
+<li><a href="https://facebook.techidaily.com/separating-fact-from-fiction-debunking-facebook-beliefs/"><u>Separating Fact From Fiction: Debunking Facebook Beliefs</u></a></li>
+<li><a href="https://facebook.techidaily.com/vk-101-comprehensively-understanding-russias-social-media/"><u>VK 101: Comprehensively Understanding Russia’s Social Media</u></a></li>
 </ul></div>
 

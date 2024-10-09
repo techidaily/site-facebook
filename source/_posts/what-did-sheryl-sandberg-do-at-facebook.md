@@ -1,7 +1,7 @@
 ---
 title: What Did Sheryl Sandberg Do at Facebook?
-date: 2024-09-20T18:04:51.864Z
-updated: 2024-09-21T22:12:18.190Z
+date: 2024-10-06T01:45:58.728Z
+updated: 2024-10-08T18:14:45.346Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/855eb1fbf7971ff96081545be670b71dd8396e6ec
 
  Sandberg will officially step down in the Fall of 2022\. She will be replaced by Javier Olivan, Meta's former chief growth officer, who helped to expand Facebook internationally.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## A Brief History of Sheryl Sandberg's Role at Facebook
 
 ![Facebook and Meta logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/facebook-meta-rebrand.jpg)
@@ -50,6 +57,13 @@ thumbnail: https://thmb.techidaily.com/855eb1fbf7971ff96081545be670b71dd8396e6ec
 
 ![President Trump Delivering Remarks in New Orleans](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/trump-at-ideag.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit: Tia Dufour/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:TrumpAmericanFarmBureau%2719.jpg)
 
  Despite the denial, a whistleblower revealed in 2018 that Cambridge Analytica, a consulting firm working for Trump,[obtained the personal data of millions of Facebook users](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) and used it for political ads. Sandberg acknowledged that Facebook had known about the privacy breach for a few years but did not act on it.
@@ -62,6 +76,13 @@ thumbnail: https://thmb.techidaily.com/855eb1fbf7971ff96081545be670b71dd8396e6ec
 
  If you're concerned by these reports and how algorithms control what you see,[you can disable these algorithmic feeds on Facebook, Instagram, and Twitter](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Sheryl Sandberg Is Leaving Meta
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
@@ -73,16 +94,10 @@ thumbnail: https://thmb.techidaily.com/855eb1fbf7971ff96081545be670b71dd8396e6ec
  Regardless, both Zuckerberg and Sandberg have shown the utmost diplomacy in their public announcements of Sandberg's departure. The pair sang each other's praises for the impact they've had on each other's professional and personal lives.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What's Next for Sheryl Sandberg?
@@ -104,5 +119,21 @@ thumbnail: https://thmb.techidaily.com/855eb1fbf7971ff96081545be670b71dd8396e6ec
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-how-to-un-reload-your-loved-tiktok-videos/"><u>[New] 2024 Approved How to Un-Reload Your Loved TikTok Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-deconstructing-user-sentiments-for-vllo/"><u>[Updated] 2024 Approved Deconstructing User Sentiments for VLLO</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-prime-8-film-grabs-from-fb-2023-edition/"><u>[Updated] Prime 8 Film Grabs From FB 2023 Edition</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-spectacular-imagery-narrative-engine/"><u>[Updated] Spectacular Imagery Narrative Engine</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-ultimate-guide-for-lenovo-screen-recording-enthusiasts/"><u>[Updated] The Ultimate Guide for Lenovo Screen Recording Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-crafting-effective-in-stream-ad-campaigns-on-facebook-a-comprehensive-guide/"><u>2024 Approved Crafting Effective In-Stream Ad Campaigns on Facebook A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-playlist-wizard-youtube-music-edition/"><u>2024 Approved The Playlist Wizard YouTube Music Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-adopts-a-prompt-for-informed-thoughtful-sharing/"><u>Facebook Adopts a Prompt for Informed, Thoughtful Sharing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/hevc-in-mp4-kaskadieren-transkodierung-ohne-qualitatseinbussen-erklart/"><u>HEVC in MP4 Kaskadieren – Transkodierung Ohne Qualitätseinbußen Erklärt</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-for-self-why-a-digital-detour-is-in-our-best-interest/"><u>Instagram for Self: Why a Digital Detour Is in Our Best Interest?</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-conversation-hub-disappears-in-december/"><u>Instagram’s Conversation Hub Disappears in December</u></a></li>
+<li><a href="https://facebook.techidaily.com/rift-for-reboot-the-costly-measure-to-fix-a-hacked-facebook-account/"><u>Rift for Reboot: The Costly Measure to Fix a Hacked Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-content-into-currency-with-instagrams-latest-upgrades/"><u>Transform Your Content Into Currency with Instagram’s Latest Upgrades</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-iphones-muted-alerts-tips-and-solutions-for-nonfunctioning-sounds/"><u>Troubleshooting iPhone's Muted Alerts – Tips & Solutions for Nonfunctioning Sounds</u></a></li>
+</ul></div>
 

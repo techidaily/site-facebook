@@ -1,7 +1,7 @@
 ---
 title: "Social Media Sanctuary: Why Instagram Encourages Digital Disengagement"
-date: 2024-09-30T16:39:11.473Z
-updated: 2024-10-03T17:44:19.441Z
+date: 2024-10-02T18:52:44.318Z
+updated: 2024-10-08T18:26:14.706Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092c
  Mosseri says the Take a Break feature will be tested with a handful of users, with plans to roll it out in December 2021.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Instagram Wants You to "Take a Break"
@@ -62,10 +62,10 @@ thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092c
  Meta’s Global Head of Security Antigone Davis also mentioned Instagram’s Take a Break feature in a Senate hearing over teen mental health back in September. At the hearing, Davis said the company aims to improve younger users' experience on the app by encouraging them to stop browsing after they'd been browsing too long.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will Instagram's Opt-In Feature Be Effective?
@@ -91,22 +91,22 @@ thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-comprehensive-guide-to-crafting-engaging-youtube-outros/"><u>[Updated] 2024 Approved Comprehensive Guide to Crafting Engaging YouTube Outros</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-an-insider-look-at-vegaspro-2019-for-2024/"><u>[Updated] An Insider Look at VegasPro 2019 for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-streaming-virtual-classrooms/"><u>[Updated] Streaming Virtual Classrooms</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-contacts-files-on-samsung-galaxy-m34-by-fonelab-android-recover-contacts/"><u>Complete guide for recovering contacts files on Samsung Galaxy M34.</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-your-latest-hp-all-in-one-deskjet-3755-driver-for-windows-10-8-and-7-now-available/"><u>Get Your Latest HP All-in-One DeskJet 3755 Driver for Windows 10, 8 & 7 - Now Available!</u></a></li>
-<li><a href="https://facebook.techidaily.com/hearing-through-conversations-facebooks-sound-features/"><u>Hearing Through Conversations: Facebook's Sound Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-dark-patterns-mislead-you-into-making-bad-privacy-choices/"><u>How Dark Patterns Mislead You Into Making Bad Privacy Choices</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-samsung-galaxy-f34-5g-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Samsung Galaxy F34 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/looking-past-hype-examining-the-impact-of-facebook-leaks/"><u>Looking Past Hype: Examining The Impact of Facebook Leaks</u></a></li>
-<li><a href="https://facebook.techidaily.com/most-user-friendly-platforms-for-elderly-community/"><u>Most User-Friendly Platforms For Elderly Community</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-rotate-videos-for-free-top-10-video-flip-and-rotate-tools/"><u>New Rotate Videos for Free Top 10 Video Flip and Rotate Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/peak-hours-for-social-media-engagement/"><u>Peak Hours for Social Media Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/preemptive-actions-for-recovering-a-breached-social-media-account/"><u>Preemptive Actions for Recovering a Breached Social Media Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-struggle-amazon-vs-the-ruling-factions-in-thousands-of-fb-groups/"><u>The Struggle: Amazon Vs. The Ruling Factions in Thousands of FB Groups</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/e-video-monikers-brainstorming-insights/"><u>Unique Video Monikers Brainstorming Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-of-photodnas-image-matching/"><u>Unlocking the Secrets of PhotoDNA's Image Matching</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/zoom-like-a-pro-with-powershot-sx720hs-reviewed/"><u>Zoom Like a Pro with PowerShot SX720HS Reviewed</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-ultimate-guide-to-instagrams-magnifying-functions/"><u>[New] 2024 Approved The Ultimate Guide to Instagram's Magnifying Functions</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-a-review-free-meme-makers-to-use-for-2024/"><u>[New] A Review Free Meme Makers to Use for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-integrate-efficiently-with-azures-speech-technology/"><u>[New] Integrate Efficiently with Azure's Speech Technology</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-ultimate-guide-to-choosing-a-professional-video-editor-filmora-or-democracy-creator/"><u>[New] The Ultimate Guide to Choosing a Professional Video Editor (Filmora or Democracy Creator)</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-discover-the-5-best-android-software-for-ps2-games/"><u>[Updated] In 2024, Discover the 5 Best Android Software for PS2 Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/12-benefits-to-giving-your-social-life-a-break/"><u>12 Benefits to Giving Your Social Life a Break</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-mastering-gamified-views-selecting-the-best-webcams-for-players/"><u>2024 Approved Mastering Gamified Views Selecting the Best Webcams for Players</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-facebooks-structural-integration-guide/"><u>Analyzing Facebook’s Structural Integration Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-closed-curtains-facebooks-real-losses/"><u>Behind Closed Curtains: Facebook’s Real Losses</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-professional-360-cam-gear/"><u>Best Professional 360° Cam Gear</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-bridges-socially-the-7-networking-benefits/"><u>Building Bridges Socially: The 7 Networking Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-effective-social-network-groups-through-policies/"><u>Building Effective Social Network Groups Through Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/circumventing-two-factor-authentication-on-fb-wo-device/"><u>Circumventing Two-Factor Authentication on Fb W/O Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-surveys-facebook-page-strategies/"><u>Crafting Surveys: Facebook Page Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-costs-on-social-media-management-with-these-5-strategies/"><u>Cut Costs on Social Media Management with These 5 Strategies</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-honor-magic-vs-2-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Honor Magic Vs 2?</u></a></li>
 </ul></div>
 

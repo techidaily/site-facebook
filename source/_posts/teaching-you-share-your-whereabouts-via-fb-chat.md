@@ -1,7 +1,7 @@
 ---
 title: "Teaching You: Share Your Whereabouts via FB Chat"
-date: 2024-09-18T00:18:47.471Z
-updated: 2024-09-22T01:06:38.029Z
+date: 2024-10-05T02:58:30.297Z
+updated: 2024-10-09T05:53:47.707Z
 tags:
   - facebook
 categories:
@@ -64,13 +64,47 @@ Follow these simple instructions to send a pinned location:
 
 ![Location Option to Pin a Specific Location In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/5-Location-Option-to-Pin-a-Specific-Location-In-Facebook-Messenger.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Pinning a Specific Location By Dragging In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/6-Pinning-a-Specific-Location-By-Dragging-In-Facebook-Messenger.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Searching a Specific Location To Pin In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/7-Searching-a-Specific-Location-To-Pin-In-Facebook-Messenger.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
  This is how you can easily share your live location or pin a random one easily. After sharing your location, make a habit of[deleting your Facebook location history](https://www.makeuseof.com/tag/view-delete-location-history-facebook/) so that Facebook won't be able to spy on you for too long.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Share Live Location or Pin It Through Facebook Messenger
 
@@ -91,12 +125,23 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-beginners-guide-start-filming-with-ease-using-logitech-camera/"><u>[New] 2024 Approved Beginner's Guide Start Filming with Ease Using Logitech Camera</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-essential-book-trailer-samples/"><u>[Updated] Essential Book Trailer Samples</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-must-watch-10-unique-igtv-content-formats-for-brands/"><u>2024 Approved Must-Watch 10 Unique IGTV Content Formats for Brands</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pro-tips-for-kinemaster-dominance-plus-best-digital-platforms-on-the-web/"><u>2024 Approved Pro Tips for KineMaster Dominance + Best Digital Platforms on the Web</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-llife-reemerge-and-thrive-amidst-the-new-age-of-metaversal-exploration/"><u>Can LLife Reemerge and Thrive Amidst The New Age of Metaversal Exploration?</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-risks-in-casual-social-media-quizzes-analyzed/"><u>Cyber Risks in Casual Social Media Quizzes Analyzed</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-global-romanticism-on-valentines-eve/"><u>Discovering Global Romanticism on Valentine's Eve</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-monitoring-heres-your-privacy-reclaiming-guide/"><u>Facebook Monitoring? Here's Your Privacy Reclaiming Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-tecno-camon-20-pro-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Tecno Camon 20 Pro 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/protocol-for-leaving-a-digital-community-constructively/"><u>Protocol for Leaving a Digital Community Constructively</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/revealing-gone-reddit-content-a-time-savers-guide-for-2024/"><u>Revealing Gone-Reddit Content A Time Saver's Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/snapchat-of-the-networld-facebooks-trajectory-to-meta/"><u>Snapchat of the Networld: Facebook's Trajectory to Meta</u></a></li>
+<li><a href="https://fox-that.techidaily.com/step-by-step-tutorial-on-seeking-tech-help-for-your-iphone-via-apple-support-services/"><u>Step-by-Step Tutorial on Seeking Tech Help for Your iPhone via Apple Support Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-enforcing-conduct-on-your-facebook-page/"><u>Strategies for Enforcing Conduct on Your Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracking-your-social-media-admirers/"><u>Tracking Your Social Media Admirers</u></a></li>
+</ul></div>
 

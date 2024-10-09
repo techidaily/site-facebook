@@ -1,7 +1,7 @@
 ---
 title: "Furtive Features: FB Like Privacy Settings Guide"
-date: 2024-09-29T22:44:37.242Z
-updated: 2024-10-03T21:23:20.988Z
+date: 2024-10-05T00:04:44.609Z
+updated: 2024-10-08T18:24:35.978Z
 tags:
   - facebook
 categories:
@@ -29,25 +29,32 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Hiding the Facebook Reaction Count on Mobile
 
 ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
 ![Reaction preference settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Reaction-count-settings-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -60,6 +67,13 @@ To hide the number of reactions on your posts, follow these steps.
 4. Scroll down to**News Feed Settings** and select **Reaction Preferences** . This will take you to the Reactions preferences settings page. From here, you can disable the reactions count on your posts, from posts of other users, or both.
 5. Toggle the slider next to**On posts from others** to hide the total number of reactions on Facebook posts from other users. To hide the number of reactions on your posts, toggle the slider adjacent to**On your posts** .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Hiding the Reaction Count on Facebook on the Web
 
  If you’re accessing Facebook via a browser using your PC, Mac, or mobile device, follow these steps instead.
@@ -71,23 +85,9 @@ To hide the number of reactions on your posts, follow these steps.
 
 ![The settings and privacy section on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/settings-privacy-section-facebook-web.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Your new settings are saved automatically.
 
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Understanding Facebook's Reaction Preferences
 
@@ -120,18 +120,24 @@ Your new settings are saved automatically.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-conducting-the-crescendo-infusing-instagram-reels-with-sounds/"><u>2024 Approved Conducting the Crescendo Infusing Instagram Reels with Sounds</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-inside-stardust-a-comprehensive-guide-to-mastery-in-stardew-and-its-intriguing-ginger-isle/"><u>2024 Approved Inside Stardust A Comprehensive Guide to Mastery in Stardew and Its Intriguing Ginger Isle</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/a-close-look-at-dji-phantom-3s-high-end-capabilities/"><u>A Close Look at DJI Phantom 3'S High-End Capabilities</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/connect-easily-to-messaging-apps-enroll-in-chatgpt-telegram-without-using-your-number/"><u>Connect Easily to Messaging Apps: Enroll in ChatGPT, Telegram Without Using Your Number</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-swipe-and-tap-worth-investing-in/"><u>Facebook's Swipe and Tap: Worth Investing In?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-g54-5g-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of G54 5G using Video Repair Utility on Windows?</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-top-12-html5-video-engines/"><u>In 2024, The Ultimate Guide to Top 12 HTML5 Video Engines</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-channels-for-swift-social-group-ties/"><u>Leveraging Channels for Swift Social Group Ties</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-unsettling-trends-in-facebook-metaverse/"><u>Navigating Through Unsettling Trends in Facebook Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-monitoring-the-key-to-reducing-deceptive-advertising/"><u>Social Media Monitoring: The Key to Reducing Deceptive Advertising</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-to-disguise-contributors-in-digital-forums/"><u>Steps to Disguise Contributors in Digital Forums</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-must-know-considerations-for-eliminating-social-platforms/"><u>The Must-Know Considerations for Eliminating Social Platforms</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-samsung-galaxy-m14-5g-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Samsung Galaxy M14 5G Users</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-2024-blueprint-for-optimizing-video-edits-with-vivacut/"><u>[New] The Ultimate 2024 Blueprint for Optimizing Video Edits with VivaCut</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-streamlining-your-instagram-archive-with-ease/"><u>[Updated] 2024 Approved Streamlining Your Instagram Archive with Ease</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-dynamic-audio-excellence-best-cameras-microphones/"><u>2024 Approved Dynamic Audio Excellence Best Cameras' Microphones</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-periscope-pro-the-in-depth-usage-guidebook/"><u>2024 Approved Periscope Pro The In-Depth Usage Guidebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-tools-empowering-community-leaders-on-facebook/"><u>Cutting-Edge Tools Empowering Community Leaders on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-deep-conversations-via-messenger-polls/"><u>Discovering Deep Conversations via Messenger Polls</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/explore-premium-manycam-substitutes-enhance-your-live-broadcasts-with-advanced-virtual-camera-features/"><u>Explore Premium ManyCam Substitutes: Enhance Your Live Broadcasts with Advanced Virtual Camera Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-approval-process-whitelist-explained/"><u>Facebook's Approval Process: Whitelist Explained</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-laptop-running-smoothly-with-latest-nvidia-geforce-rtx-940mx-graphics-driver-download/"><u>Get Your Laptop Running Smoothly with Latest NVIDIA GeForce RTX 940MX Graphics Driver Download</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-telegram-thrived-when-friends-turned-to-other-platforms/"><u>How Telegram Thrived When Friends Turned to Other Platforms</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-xiaomi-civi-3-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Xiaomi Civi 3 Quickly? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-oppo-find-x6-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Oppo Find X6 online without jailbreak</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-vivo-x100-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Vivo X100 to Gmail | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-ousting-dissolving-a-facebook-relationship/"><u>Online Ousting: Dissolving a Facebook Relationship</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-cyber-leakage-of-personal-photos-at-meta/"><u>Preventing Cyber Leakage of Personal Photos at Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinventing-yourself-in-the-digital-age-changing-your-name-on-facebook/"><u>Reinventing Yourself in the Digital Age: Changing Your Name on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/severing-spotify-ties-with-facebook-today/"><u>Severing Spotify Ties With Facebook Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-holds-copyright-to-my-shared-snapshots/"><u>Who Holds Copyright to My Shared Snapshots</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Empowering Your Adolescent with Confidentiality in Social Media
-date: 2024-10-02T16:10:59.386Z
-updated: 2024-10-03T19:30:44.499Z
+date: 2024-10-05T02:16:29.556Z
+updated: 2024-10-08T21:50:19.977Z
 tags:
   - facebook
 categories:
@@ -36,26 +36,13 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -63,6 +50,19 @@ Close
  When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Privacy Setting Basics
 
@@ -90,18 +90,31 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Check Ad Settings
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
-![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
 Close
 
@@ -110,13 +123,6 @@ Close
  To check the kinds of ads your teen can see on their news feed, you will need to go back to**Settings** . Scroll down to**Ads** and click on**Ad preferences** .
 
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Why Online Safety Is More Important Than Ever
 
@@ -139,24 +145,14 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagram-filter-mastery-essential-skills/"><u>[New] 2024 Approved Instagram Filter Mastery - Essential Skills</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-quiet-echo-architects-6-unpublicized-voice-recorder-apps/"><u>[New] 2024 Approved Quiet Echo Architects 6 Unpublicized Voice Recorder Apps</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-insider-insights-unpacking-the-dji-phantom-3-pro-features/"><u>[New] In 2024, Insider Insights Unpacking the DJI Phantom 3 Pro Features</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-power-of-consistency-rising-up-the-charts-on-youtube-for-2024/"><u>[Updated] The Power of Consistency Rising Up the Charts on YouTube for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-bring-your-video-to-life-from-standard-to-hdri-excellence/"><u>2024 Approved Bring Your Video to Life From Standard to HDRI Excellence</u></a></li>
-<li><a href="https://win11.techidaily.com/7-key-steps-to-restore-your-usb-wi-fi-on-a-pc/"><u>7 Key Steps to Restore Your USB Wi-Fi On a PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/giphys-survival-at-stake-as-fb-divestment-rumors-swirl/"><u>Giphy's Survival at Stake as FB Divestment Rumors Swirl</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-get-clients-on-facebook-for-work/"><u>How to Get Clients on Facebook for Work</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/hp-officejet-4655-upgrade-to-current-version-step-by-step-driver-installation-tutorial/"><u>HP Officejet 4655 Upgrade to Current Version: Step-by-Step Driver Installation Tutorial</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/installing-the-best-drivers-for-your-hp-zbook-15-g3-optimize-performance-on-windows-devices/"><u>Installing the Best Drivers for Your HP ZBook 15 G3 – Optimize Performance on Windows Devices</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/optimize-web-insights-with-cookiebot-technology-advanced-user-engagement-tools/"><u>Optimize Web Insights with Cookiebot Technology – Advanced User Engagement Tools</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-infinix-hot-30i-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Infinix Hot 30i to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotting-hidden-usage-in-your-tech-environment/"><u>Spotting Hidden Usage in Your Tech Environment</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategic-plans-retrieving-a-disabled-facebook-profile/"><u>Strategic Plans: Retrieving a Disabled Facebook Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-pivotal-moment-when-i-joined-facebook/"><u>The Pivotal Moment: When I Joined Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-power-players-of-techs-most-divided-arena/"><u>The Power Players of Tech's Most Divided Arena</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-scams-how-to-protect-your-online-presence/"><u>Understanding Scams: How to Protect Your Online Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-the-filter-bubble-transparency-act-and-how-will-it-affect-you/"><u>What Is the Filter Bubble Transparency Act and How Will It Affect You?</u></a></li>
-<li><a href="https://facebook.techidaily.com/winning-a-share-of-the-725-million-facebook-settlement/"><u>Winning a Share of the $725 Million Facebook Settlement</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-leveraging-adobes-tools-to-add-music-to-your-videos/"><u>[Updated] In 2024, Leveraging Adobe's Tools to Add Music to Your Videos</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-the-gif-creation-journey-unveiling-the-ultimate-9-tools-of-memetic-ingenuity/"><u>2024 Approved The GIF Creation Journey Unveiling the Ultimate 9 Tools of Memetic Ingenuity</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-critical-benefits-of-using-a-professional-facebook-profile-for-brands/"><u>8 Critical Benefits of Using a Professional Facebook Profile for Brands</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-rundown-top-8-exceptional-free-online-translation-platforms/"><u>A Rundown Top 8 Exceptional Free Online Translation Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-vs-social-media-how-facebook-custom-subscriptions-take-the-lead/"><u>Apple Vs. Social Media: How Facebook Custom Subscriptions Take the Lead</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-images-to-life-sharing-stereoscopic-content-with-fb/"><u>Bringing Images to Life: Sharing Stereoscopic Content with FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-the-social-life-you-want-customize-your-news-feed-today/"><u>Building the Social Life You Want: Customize Your News Feed Today</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-ultimate-guide-to-the-best-17-inch-laptops/"><u>Top Picks: Ultimate Guide to the Best 17-Inch Laptops</u></a></li>
+<li><a href="https://win-able.techidaily.com/top-strategies-for-troubleshooting-assassins-creed-unity-game-crashes/"><u>Top Strategies for Troubleshooting Assassin's Creed Unity Game Crashes</u></a></li>
 </ul></div>
 

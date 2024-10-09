@@ -1,7 +1,7 @@
 ---
 title: Understanding Sheryl Sandberg’s Role at Facebook
-date: 2024-09-18T00:03:01.347Z
-updated: 2024-09-21T17:14:50.410Z
+date: 2024-10-04T21:03:23.016Z
+updated: 2024-10-08T16:03:30.753Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
 
 ![Facebook and Meta logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/facebook-meta-rebrand.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Sandberg joined Facebook in its infancy stage back in 2008\. That's four years after the social network was founded by Harvard students Chris Hughes, Dustin Moskovitz, Andrew McCollum, Eduardo Saverin, and Mark Zuckerberg.
 
  Upon joining, she was tasked with giving the business more structure as an experienced member of the group. As a result of her efforts, she is credited with helping to build Meta into the multi-billion-dollar business it has become.
@@ -49,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
  For instance, there were allegations that Facebook helped Trump win the 2016 US presidential election by allowing his camp to spread fake news on the platform. However, Sandberg denied Facebook's role in Trump's win.
 
 ![President Trump Delivering Remarks in New Orleans](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/trump-at-ideag.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: Tia Dufour/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:TrumpAmericanFarmBureau%2719.jpg)
 
@@ -66,6 +80,13 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  While Sandberg didn't share her reasons for leaving Meta, some speculate that the previous controversial events involving Facebook have driven a wedge between the former COO and Mark Zuckerberg. Even though the two leaders have not shown any signs of tension publicly, it may have played a role in Sandberg eventually leaving the company.
 
  Sandberg told[The Washington Post](https://www.washingtonpost.com/technology/2022/06/01/sheryl-sandberg-leaves-facebook/) that she informed Zuckerberg of her resignation the weekend before making a public announcement. Considering how sudden her decision seems, we wonder if there may be any truth to the speculations.
@@ -73,16 +94,10 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
  Regardless, both Zuckerberg and Sandberg have shown the utmost diplomacy in their public announcements of Sandberg's departure. The pair sang each other's praises for the impact they've had on each other's professional and personal lives.
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What's Next for Sheryl Sandberg?
@@ -104,5 +119,23 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-expert-roundup-top-10-camcorders/"><u>[New] 2024 Approved Expert Roundup Top 10 Camcorders</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-master-blur-techniques-in-visual-editing/"><u>2024 Approved Master Blur Techniques in Visual Editing</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-unseen-by-fb-learn-to-use-the-off-fb-tool/"><u>Be Unseen by FB: Learn to Use the Off-FB Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-politics-and-religion-free-profile-spaces/"><u>Clean Slate: Politics and Religion-Free Profile Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivate-connections-not-clicks-leave-facebook/"><u>Cultivate Connections, Not Clicks: Leave Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-data-collection-at-risk-due-to-ios-145-update/"><u>Facebook's Data Collection at Risk Due to iOS 14.5 Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/four-pivotal-shifts-causing-facebooks-user-slide/"><u>Four Pivotal Shifts Causing Facebook's User Slide</u></a></li>
+<li><a href="https://change-location.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-xiaomi-redmi-k70e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-from-apple-iphone-12-pro-max-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even From Apple iPhone 12 Pro Max If Youve Tried Everything</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-tecno-phantom-v-flip-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Tecno Phantom V Flip Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/iphone-macro-and-close-up-photography-tips/"><u>IPhone Macro and Close-Up Photography Tips</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721102855021-missing-dvdcd-driver-on-win11-fixed/"><u>Missing DVD/CD Driver on Win11? Fixed</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-a-more-pleasant-online-space-escaping-irksome-fb-ads/"><u>Strategies for a More Pleasant Online Space: Escaping Irksome FB Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-hosting-events-via-facebook-platform/"><u>The Art of Hosting Events via Facebook Platform</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-no-more-searching-the-best-filmora-coupon-codes-revealed/"><u>Updated No More Searching The Best Filmora Coupon Codes Revealed</u></a></li>
+</ul></div>
 

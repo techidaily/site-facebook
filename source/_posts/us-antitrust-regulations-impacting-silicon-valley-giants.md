@@ -1,7 +1,7 @@
 ---
 title: "US Antitrust Regulations: Impacting Silicon Valley Giants"
-date: 2024-09-20T21:56:12.168Z
-updated: 2024-09-21T22:56:50.933Z
+date: 2024-10-06T21:19:16.430Z
+updated: 2024-10-09T00:15:02.217Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What Are the Five Antitrust Bills?
 
@@ -77,10 +84,16 @@ thumbnail: https://thmb.techidaily.com/d8d6563b1e83446e0eb6eee844ba3f9b3df6929ea
 In essence: leave the selling to the sellers.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
@@ -94,10 +107,10 @@ In essence: leave the selling to the sellers.
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
@@ -115,6 +128,13 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -135,5 +155,23 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-spotlight-on-revolutionary-vr-engine-software/"><u>[Updated] In 2024, Spotlight on Revolutionary VR Engine Software</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-core-principles-of-e-storytelling/"><u>2024 Approved Core Principles of E-Storytelling</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discontent-one-star-reviews-rising-for-fb-app-ratings/"><u>Digital Discontent: One-Star Reviews Rising for FB App Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-account-protection-by-revamping-social-network-phrasing/"><u>Enhancing Account Protection by Revamping Social Network Phrasing</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/fix-the-missing-shelldll-file-on-your-pc-today/"><u>Fix the Missing Shell.dll File on Your PC Today</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/install-the-newest-zexmte-bluetooth-interface-driver-on-windows-1078/"><u>Install the Newest Zexmte Bluetooth Interface Driver on Windows 10/7/8</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ion-audio-tailgater-plus-a-comprehensive-review-on-ultimate-sound-experience/"><u>ION Audio Tailgater Plus - A Comprehensive Review on Ultimate Sound Experience</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/mastering-your-tech-choices-comprehensive-insights-from-tomhrenology/"><u>Mastering Your Tech Choices: Comprehensive Insights From Tom'hrenology</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-noteworthy-transformations-4-essential-shifts-in-social-media/"><u>Networking Noteworthy Transformations: 4 Essential Shifts in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-secrets-skip-these-privacy-invasive-apps/"><u>Protect Your Secrets: Skip These Privacy Invasive Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconsidering-ties-will-fb-proceed-with-giphy-disintegration/"><u>Reconsidering Ties: Will FB Proceed With Giphy Disintegration?</u></a></li>
+<li><a href="https://facebook.techidaily.com/reestablishing-contact-post-blockage-on-fb/"><u>Reestablishing Contact Post-Blockage on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-admiration-how-to-conceal-like-counts-on-sites/"><u>Silent Admiration: How to Conceal Like Counts on Sites</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/tp-link-adapter-for-windows-free-fast-and-reliable/"><u>TP Link Adapter for Windows - Free, Fast, and Reliable</u></a></li>
+</ul></div>
 

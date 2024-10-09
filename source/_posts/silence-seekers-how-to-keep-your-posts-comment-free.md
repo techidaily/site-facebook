@@ -1,7 +1,7 @@
 ---
 title: "Silence Seekers: How to Keep Your Posts Comment-Free"
-date: 2024-09-14T22:06:22.101Z
-updated: 2024-09-21T17:04:57.376Z
+date: 2024-10-06T00:46:20.069Z
+updated: 2024-10-09T03:54:01.685Z
 tags:
   - facebook
 categories:
@@ -59,10 +59,10 @@ Close
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Click on**Settings and privacy > Settings > Privacy** .
@@ -75,20 +75,13 @@ Close
 ![screenshot of facebook post filters and tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-post-filters-and-tools-page.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  And that's all you need to manage comments on your Facebook post.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Disable Post Comments in a Facebook Group
 
@@ -96,7 +89,27 @@ Close
 
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -127,5 +140,16 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-a-critical-look-at-the-action-focused-polaroid-cubeplus/"><u>[Updated] In 2024, A Critical Look at the Action-Focused Polaroid Cube+</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-peek-into-vk-russias-social-media-giant/"><u>A Peek Into VK: Russia's Social Media Giant</u></a></li>
+<li><a href="https://blog-min.techidaily.com/blu-ray-to-ipad-conversion-guide-how-to-safeguard-and-enjoy-movies-on-the-go/"><u>Blu-Ray to iPad Conversion Guide: How to Safeguard and Enjoy Movies on the Go</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/correction-of-screen-boundary-alignment/"><u>Correction of Screen Boundary Alignment</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-oversight-to-unveil-ruling-on-prohibition-against-trump/"><u>FB Oversight to Unveil Ruling on Prohibition Against Trump.</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-fix-an-unresponsive-iphone-display-expert-tips-and-tricks/"><u>How To Fix an Unresponsive iPhone Display: Expert Tips & Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-privacy-managing-fb-photo-settings/"><u>Maximizing Privacy: Managing FB Photo Settings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/permanent-deactivation-the-ultimate-guide-to-youtube-shorts-for-2024/"><u>Permanent Deactivation The Ultimate Guide to YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/post-ban-facebooks-unrestricted-zone-for-vaccine-critics/"><u>Post-Ban, Facebook's Unrestricted Zone for Vaccine Critics</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Intelligent Customization of URL Pairings on Facebook
-date: 2024-09-20T23:59:16.734Z
-updated: 2024-09-22T00:40:55.956Z
+date: 2024-10-08T03:36:28.258Z
+updated: 2024-10-08T23:15:47.195Z
 tags:
   - facebook
 categories:
@@ -50,14 +50,14 @@ thumbnail: https://thmb.techidaily.com/7b420d51a7e917d12325acc7124ce448649fcdb3a
 
 ![facebook-app-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-profile.JPEG)
 
- The Profile shortcut is a circular avatar icon and it's where you can access your profile and all your posts. You can remove it, and if you do, your profile is still accessible from the Menu page via the hamburger icon.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ The Profile shortcut is a circular avatar icon and it's where you can access your profile and all your posts. You can remove it, and if you do, your profile is still accessible from the Menu page via the hamburger icon.
 
 ### Notifications
 
@@ -69,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/7b420d51a7e917d12325acc7124ce448649fcdb3a
 
  The Menu is on the far right (the hamburger icon) and will open a page where you can have quick access to things like saved posts, events, and the pages you like. You'll also find the standard Settings dropdown here from where you can customize the app's settings. This is an essential tab and can therefore not be removed.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Marketplace
 
 ![facebook-app-marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-marketplace.JPEG)
@@ -77,18 +84,18 @@ thumbnail: https://thmb.techidaily.com/7b420d51a7e917d12325acc7124ce448649fcdb3a
 
  The Marketplace section comes with its own list of settings where you can filter through specific items. Listings will be based on your location by default, but you can change it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Groups
 
  Facebook Groups combines posts from all the groups you're part of into its own feed. Similar to suggestions that pop up on your regular feed, you'll see some suggested groups here tpp. It's a circular icon with three people and can be removed.
 
  You can easily[leave a Facebook Group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) if you end up not liking the content.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Watch
 
@@ -99,6 +106,13 @@ thumbnail: https://thmb.techidaily.com/7b420d51a7e917d12325acc7124ce448649fcdb3a
 ### Gaming
 
 ![facebook-app-gaming](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-gaming.JPEG)
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The Gaming shortcut has multiple sections where you can access suggested Facebook games. This shortcut looks like a rectangular box with some lines and can be removed.
 
@@ -111,6 +125,13 @@ thumbnail: https://thmb.techidaily.com/7b420d51a7e917d12325acc7124ce448649fcdb3a
  Long-pressing an icon from the shortcuts bar is the simplest way to remove a shortcut in the Facebook app. But you can only hide or unpin shortcuts with this method, not add them.
 
 ![facebook-app-long-press-shortcut](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-long-press-shortcut.JPEG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 To quickly hide Facebook shortcuts by long-pressing:
 
@@ -125,6 +146,13 @@ To quickly hide Facebook shortcuts by long-pressing:
 ![facebook-app-menu-options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu-options.JPEG)
 
 ![facebook-app-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-settings.JPEG)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![facebook-app-shortcuts-customization](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-shortcuts-customization.JPEG)
 
@@ -149,25 +177,11 @@ To add or hide Facebook shortcuts via the settings:
 
 ![facebook-app-notification-dots-long-press](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-notification-dots-long-press.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 To disable and enable Facebook notification dots by long-pressing:
 
 1. Hold down on the shortcut icon in the navigation bar that you want to remove the notification dots for.
 2. From the pop-up, select**Turn off notification dots** .
 3. To turn these dots back on, long press on the shortcut icon again, and select**Turn on notification dots** .
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Turn Notification Dots On and Off From the Settings
 
@@ -175,14 +189,14 @@ To disable and enable Facebook notification dots by long-pressing:
 
 ![facebook-app-navigation-bar-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-navigation-bar-settings.JPEG)
 
-![26D7F542-5F40-4D39-B951-9EFBFD2E4EB8_converted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/26d7f542-5f40-4d39-b951-9efbfd2e4eb8_converted.JPEG)
-
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![26D7F542-5F40-4D39-B951-9EFBFD2E4EB8_converted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/26d7f542-5f40-4d39-b951-9efbfd2e4eb8_converted.JPEG)
 
 Close
 
@@ -193,6 +207,13 @@ To disable and enable Facebook notification dots from the settings:
 3. Scroll down to the**Preferences** category.
 4. Select**Navigation bar > Manage notification dots** . You will be taken to a section where you can manage your shortcut notification dots preferences.
 5. Toggle the blue tabs on and off to enable or disable notification dots for a shortcut. Only the shortcuts that you currently have pinned to your navigation bar will appear here.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Customize Your Facebook Shortcuts
 
@@ -211,5 +232,26 @@ To disable and enable Facebook notification dots from the settings:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-easy-to-use-no-cost-b2b-presentation-tools-for-2024/"><u>[New] Easy-to-Use, No-Cost B2B Presentation Tools for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-navigating-the-world-of-9gag-memes-made-easy/"><u>[New] Navigating the World of 9GAG Memes Made Easy</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-perfect-every-moment-incorporating-captions-in-instagram-footage-for-2024/"><u>[Updated] Perfect Every Moment Incorporating Captions in Instagram Footage for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-tecno-pova-5-pro-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Tecno Pova 5 Pro Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/boost-dying-light-2s-performance-on-pc-effective-solutions-for-fixing-frame-rate-drops-and-eliminating-game-lag/"><u>Boost Dying Light 2'S Performance on PC: Effective Solutions for Fixing Frame Rate Drops and Eliminating Game Lag</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722054367462-can-codegpt-transform-how-you-write-code-discover-its-capabilities-now/"><u>Can CodeGPT Transform How You Write Code? Discover Its Capabilities Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-privacy-vulnerability-fixing-it-now/"><u>Facebook Privacy Vulnerability: Fixing It Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-footprint-on-our-lives-a-mixed-bag/"><u>Facebook's Footprint on Our Lives: A Mixed Bag</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-swiping-features-are-they-worth-it/"><u>Facebook's Swiping Features: Are They Worth It?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-zte-nubia-z60-ultra-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from ZTE Nubia Z60 Ultra to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-unhook-yourself-from-fb-on-android-phones/"><u>How to Unhook Yourself From FB on Android Phones</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-will-your-local-marketplace-adapt-if-fb-stores-pop-up-here/"><u>How Will Your Local Marketplace Adapt if FB Stores Pop Up Here?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-adobes-toolset-perfecting-your-youtube-uploads/"><u>In 2024, Adobe's Toolset Perfecting Your YouTube Uploads</u></a></li>
+<li><a href="https://facebook.techidaily.com/inhibiting-the-apps-browser-functionality/"><u>Inhibiting the App's Browser Functionality</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/install-thrustmaster-t300-driver-software-on-windows-10-and-11-systems-downloads-available-here/"><u>Install ThrustMaster T300 Driver Software on Windows 10 & 11 Systems - Downloads Available Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/metascape-vs-bluefield-unveiling-top-titans-of-twitter-and-meta/"><u>Metascape Vs. Bluefield: Unveiling Top Titans of Twitter and Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/reaching-a-plateau-in-social-media-popularity/"><u>Reaching a Plateau in Social Media Popularity</u></a></li>
+<li><a href="https://facebook.techidaily.com/uk-sport-groups-pledge-no-online-presence/"><u>UK Sport Groups Pledge No Online Presence</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unleashing-creativity-and-learning-through-play-the-ultimate-review-of-wonder-workshop-dash-toys/"><u>Unleashing Creativity & Learning Through Play: The Ultimate Review of Wonder Workshop Dash Toys</u></a></li>
+</ul></div>
 

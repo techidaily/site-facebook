@@ -1,7 +1,7 @@
 ---
 title: "Revamping Social Media Profiles: Email & Number Switch"
-date: 2024-09-27T19:47:01.390Z
-updated: 2024-10-03T23:40:13.126Z
+date: 2024-10-06T16:26:32.692Z
+updated: 2024-10-09T00:16:05.759Z
 tags:
   - facebook
 categories:
@@ -46,7 +46,21 @@ To change your email address on the Facebook app, follow these steps:
 
 ![screenshot showing facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![screenshot showing personal information page on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-personal-information-page-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
@@ -67,39 +81,19 @@ Here's how to do this:
 
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![screenshot showing how to remove phone number from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-how-to-remove-phone-number-from-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
 
 1. Tap on the email or phone number on the**Manage Contact Info** page.
 2. Hit**Remove** .
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Change Your Contact Details on the Facebook Website
 
@@ -110,14 +104,21 @@ Close
 ![screenshot showing facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-homepage.jpg)
 3. Click on**Settings & Privacy** \>**Settings** .  
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![screenshot showing account settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-account-settings-page-on-Facebook.jpg)
 4. Click on**Account Settings** .
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 5. Click on**Edit** in line with the previously linked email address and then click on**\+ Add another email or mobile number** .  
@@ -125,19 +126,6 @@ Close
 6. Enter your new email address in the provided field and click**Add** or click on**Add your phone number?** .
 
 ![screenshot showing enter email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-enter-email-address-page.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Updating Your Contact Information on Facebook
 
@@ -158,20 +146,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-chuckle-cache-unearthing-humor-in-twitters-feeds/"><u>[New] Chuckle Cache Unearthing Humor in Twitters Feeds</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-direct-transfer-of-videos-merging-youtube-with-tiktok-platform/"><u>[New] Direct Transfer of Videos Merging YouTube with TikTok Platform</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-chart-topping-tunes-compiling-an-impressive-youtube-playlist/"><u>[Updated] Chart-Topping Tunes Compiling an Impressive YouTube Playlist</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/deciphering-dvd-resolutions-exploring-the-difference-between-480p-720p-and-1080p-on-dvd-media/"><u>Deciphering DVD Resolutions: Exploring the Difference Between 480P, 720P & 1080P on DVD Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/empowering-societies-through-7-digital-interactions/"><u>Empowering Societies Through 7 Digital Interactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/guiding-you-through-disconnecting-spotify-from-facebook/"><u>Guiding You Through Disconnecting Spotify From Facebook</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-move-custom-ringtones-from-apple-iphone-14-plus-to-android-drfone-by-drfone-transfer-from-ios/"><u>How to Move Custom Ringtones from Apple iPhone 14 Plus to Android? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-realme-c33-2023-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Realme C33 2023 Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-asus-rog-rapture-gt-ax11000-review-unleashing-top-gaming-performance-and-lightning-fast-connectivity/"><u>In-Depth Asus ROG Rapture GT-AX11000 Review – Unleashing Top Gaming Performance and Lightning-Fast Connectivity</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-authenticity-on-meta-worth-its-price/"><u>Is Authenticity on Meta Worth Its Price?</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-next-step-facebooks-personalized-business-tool/"><u>Navigating the Next Step: Facebook's Personalized Business Tool</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-principles-for-the-digital-age-critical-tips-and-traps/"><u>Privacy Principles for the Digital Age: Critical Tips & Traps</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-messages-on-facebooks-platform/"><u>Securing Messages on Facebooks Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/shaking-up-stereotypes-the-factual-side-of-facebook-probes/"><u>Shaking Up Stereotypes: The Factual Side of Facebook Probes</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/video-glamour-guide-elevating-your-shots-with-effective-lights/"><u>Video Glamour Guide Elevating Your Shots with Effective Lights</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-discover-the-hottest-tiktok-reading-trends/"><u>[Updated] Discover the Hottest TikTok Reading Trends</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-privacy-first-sending-your-personal-youtube-link-via-google/"><u>[Updated] In 2024, Privacy First Sending Your Personal YouTube Link via Google</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-quintessential-fb-video-list-for-you/"><u>2024 Approved The Quintessential FB Video List for You</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-y100-5g-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Vivo Y100 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-your-fb-experience-to-escape-annoying-ads/"><u>Customizing Your FB Experience to Escape Annoying Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-innovates-with-subscription-links-apple-comparison-explained/"><u>Facebook Innovates With Subscription Links: Apple Comparison Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-down-or-up-quick-ways-to-confirm/"><u>FB Down or Up: Quick Ways to Confirm</u></a></li>
+<li><a href="https://facebook.techidaily.com/halting-ios-app-tracking-the-mass-movement/"><u>Halting iOS App Tracking: The Mass Movement</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-motorola-razr-40-ultra-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Motorola Razr 40 Ultra to New Phone | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-art-of-finding-instagram-filters-on-a-budget/"><u>In 2024, The Art of Finding Instagram Filters on a Budget</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-your-image-boosting-likes-and-following-with-photo-tactics/"><u>Maximizing Your Image: Boosting Likes & Following with Photo Tactics</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-playback-issues-on-redmi-13c-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV playback issues on Redmi 13C</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-complete-process-for-crafting-your-own-ringtone-from-tiktok-music/"><u>The Complete Process for Crafting Your Own Ringtone From TikTok Music</u></a></li>
+<li><a href="https://facebook.techidaily.com/ultimate-destinations-for-pursuing-freelance-work/"><u>Ultimate Destinations for Pursuing Freelance Work</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-you-dont-see-can-hurt-your-online-presence-evasion-techniques/"><u>What You Don't See Can Hurt Your Online Presence - Evasion Techniques</u></a></li>
 </ul></div>
 

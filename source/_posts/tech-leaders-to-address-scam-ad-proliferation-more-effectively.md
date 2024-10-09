@@ -1,7 +1,7 @@
 ---
 title: Tech Leaders to Address Scam Ad Proliferation More Effectively
-date: 2024-09-30T20:43:59.351Z
-updated: 2024-10-03T16:02:41.824Z
+date: 2024-10-02T19:17:44.798Z
+updated: 2024-10-08T16:35:44.785Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -78,24 +78,18 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-financial-forecast-shooting-a-music-video/"><u>[New] Financial Forecast Shooting a Music Video</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-looms-labyrinth-navigating-screen-record-art-for-2024/"><u>[New] Loom's Labyrinth Navigating Screen Record Art for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unrestricted-gaming-beats-digital-download/"><u>[New] Unrestricted Gaming Beats Digital Download</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-capture-life-in-high-definition-on-a-budget-(1k-for-2024/"><u>[Updated] Capture Life in High Definition on a Budget (<$1K) for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-experience-a-bundle-of-9-whole-film-christmas-treasures-for-free/"><u>[Updated] In 2024, Experience a Bundle of 9 Whole-Film Christmas Treasures for Free</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-from-sketches-to-screens-animation-via-windows-movie-maker/"><u>2024 Approved From Sketches to Screens Animation via Windows Movie Maker</u></a></li>
-<li><a href="https://techtrends.techidaily.com/are-you-really-getting-dolby-atmos-sound/"><u>Are You Really Getting Dolby Atmos Sound?</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-upgrades-text-based-interaction-with-new-messaging-innovations-in-messenger-and-instagram/"><u>FB Upgrades Text-Based Interaction with New Messaging Innovations in Messenger & Instagram</u></a></li>
-<li><a href="https://driver-error.techidaily.com/how-to-fix-base-system-device-driver-issue-in-device-manager/"><u>How to Fix Base System Device Driver Issue in Device Manager</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-rewinds-time-for-trumps-profile/"><u>Meta Rewinds Time for Trump's Profile</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-xiaomi-redmi-k70e-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Xiaomi Redmi K70E Phone Now with These Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/recognizing-9-flaws-that-suggest-hacked-profiles/"><u>Recognizing 9 Flaws That Suggest Hacked Profiles</u></a></li>
-<li><a href="https://facebook.techidaily.com/riding-against-tides-why-facebook-may-survive/"><u>Riding Against Tides: Why Facebook May Survive</u></a></li>
-<li><a href="https://facebook.techidaily.com/sprucing-up-your-social-network-scene/"><u>Sprucing Up Your Social Network Scene</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-economics-of-engaging-with-each-other-online/"><u>The Economics of Engaging with Each Other Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-propel-engagement-in-fb-discussions/"><u>The Ultimate Guide to Propel Engagement in FB Discussions</u></a></li>
-<li><a href="https://facebook.techidaily.com/trump-files-suit-alleging-suppression-by-google-twitter/"><u>Trump Files Suit Alleging Suppression by Google, Twitter</u></a></li>
-<li><a href="https://facebook.techidaily.com/unfollow-unfriend-actions-prior-to-facebook-deletion/"><u>Unfollow, Unfriend: Actions Prior to Facebook Deletion</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-articulating-emotion-on-stage-through-words-for-2024/"><u>[New] Articulating Emotion on Stage Through Words for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-lighting-up-dull-iphone-videos-in-3-ways/"><u>[New] Lighting up Dull iPhone Videos in 3 Ways</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-tailored-strategies-for-free-clock-usage-optimization/"><u>[Updated] 2024 Approved Tailored Strategies for FREE Clock Usage Optimization</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-master-cameras-for-slow-motion-animations-for-2024/"><u>[Updated] Master Cameras for Slow-Motion Animations for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-elevating-video-previews-a-compreayer-approach-for-youtube/"><u>2024 Approved Elevating Video Previews A Compreayer Approach for YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-game-changing-ways-to-make-money-on-social-media/"><u>5 Game-Changing Ways to Make Money on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-old-walls-renaming-yourself-on-fb/"><u>Breaking Free From Old Walls: Renaming Yourself on FB</u></a></li>
+<li><a href="https://games-able.techidaily.com/child-protection-staying-vigilant-in-virtual-spaces/"><u>Child Protection: Staying Vigilant in Virtual Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/cleanse-your-feed-a-guide-to-page-de-selection/"><u>Cleanse Your Feed: A Guide to Page De-Selection</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-private-online-presence-essential-tips-for-fb-users/"><u>Crafting a Private Online Presence: Essential Tips for FB Users</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhance-user-experience-and-conversions-using-the-latest-in-cookiebot-analytics-tools/"><u>Enhance User Experience and Conversions Using the Latest in Cookiebot Analytics Tools</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-honor-x9b-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Honor X9b FRP Locks</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-is-your-iphone-15-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Is Your iPhone 15 in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Tactics to Decrease Fb Reel Viewing Frequency
-date: 2024-09-26T21:23:51.830Z
-updated: 2024-10-03T22:07:37.931Z
+date: 2024-10-08T00:35:51.938Z
+updated: 2024-10-09T03:34:43.574Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 
  If you're not interested in watching Reels, here are a few things you can do to avoid them.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Use Facebook Web
 
 ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
@@ -40,13 +47,6 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 
 ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
 
  The default visibility setting of the Video icon is Auto, which means Facebook can add or remove it to your navigation bar as it pleases. However, Facebook allows you to modify the setting to Hide or Pin the icon to your navigation bar.
@@ -58,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 ![Screenshot of Facebook Nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-nav-bar-page.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![screenshot of Facebook customize nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-customize-nav-bar-page.jpg)
@@ -69,16 +69,10 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 Close
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Use an Older Version of Facebook
@@ -98,10 +92,10 @@ Close
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -118,15 +112,22 @@ Close
 
 ![screenshot of Facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-profile-menu-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![screenshot of settings and privacy page on facebook showing media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook-showing-media.jpg)
 
 ![screenshot of Media settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-media-settings-page-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -136,13 +137,6 @@ Close
  Unfortunately, these are the only good options you have for hiding Reels on Facebook for now. Another alternative you could try is using third-party Facebook apps like SlimSocial and Frost.
 
  However, we don't recommend these, as they're usually not as good as the official app and can't be trusted privacy-wise.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Working Around Facebook Reels
 
@@ -163,18 +157,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-easy-to-use-free-youtube-downloader-with-mp3-support/"><u>[New] 2024 Approved Easy-to-Use Free YouTube Downloader with MP3 Support</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-boost-engagement-stream-live-from-twitch-embed-on-fb/"><u>[New] Boost Engagement Stream Live From Twitch, Embed on FB</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-moviemakermag-all-about-androvid-editor/"><u>[Updated] MovieMakerMag All About AndroVid Editor</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-navigating-through-top-6-ideal-helmet-harnesses-for-gopros/"><u>[Updated] Navigating Through Top 6 Ideal Helmet Harnesses for GoPros</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-streamlined-approach-save-youtube-videos/"><u>[Updated] Streamlined Approach Save YouTube Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/friends-files-legal-lines-navigating-video-acquisition-ethics/"><u>Friend's Files, Legal Lines: Navigating Video Acquisition Ethics</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-6s-plus-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone 6s Plus Without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Honor X7b | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-and-fb-stickers-a-test-of-brand-engagement/"><u>Instagram and FB Stickers: A Test of Brand Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/instantaneous-alteration-of-your-facebook-personality-icon/"><u>Instantaneous Alteration of Your Facebook Personality Icon</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solved-how-to-get-your-logitech-g230-mic-back-online/"><u>Solved! How to Get Your Logitech G230 Mic Back Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-22s-standout-podcast-episodes/"><u>The Ultimate Guide to '22'S Standout Podcast Episodes</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebook-touch-usefulness-assessment/"><u>Unveiling Facebook Touch: Usefulness Assessment</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-ranking-video-chat-winning-windows-tools-6-1/"><u>[New] 2024 Approved Ranking Video Chat Winning Windows Tools #6-#1</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-richer-imagery-enhancing-video-with-device-based-filters-for-2024/"><u>[New] Richer Imagery Enhancing Video with Device-Based Filters for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/comparing-chatgpt-and-gemini-who-excels-in-programming-assistance/"><u>Comparing ChatGPT and Gemini: Who Excels in Programming Assistance?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/crafting-captivating-vlog-narratives/"><u>Crafting Captivating Vlog Narratives</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptocurrencys-ascendancy-in-social-media-marketing/"><u>Cryptocurrency's Ascendancy in Social Media Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-mystique-a-guide-to-facebooks-emoji-lexicon/"><u>Demystifying the Mystique: A Guide to Facebook's Emoji Lexicon</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-how-and-why-telegram-flourished-during-fb-offline-hours/"><u>Dissecting How and Why Telegram Flourished During FB Offline Hours</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722099197746-experience-next-level-customization-with-openais-innovative-gpt-solution-begin-here/"><u>Experience Next-Level Customization with OpenAI’s Innovative GPT Solution - Begin Here!</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722978884888-fixing-samsung-all-in-one-printer-connectivity-problems-on-pc-solved/"><u>Fixing Samsung All-in-One Printer Connectivity Problems on PC - Solved!</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-clarify-your-fb-images-a-step-by-step-approach/"><u>How to Clarify Your Fb Images: A Step-by-Step Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-fb-push-notifications-and-messages/"><u>How to Stop FB Push Notifications and Messages</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-infusing-action-into-photos-using-illustrators-features/"><u>In 2024, Infusing Action Into Photos Using Illustrator's Features</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-the-art-of-fixed-windows-update-issues/"><u>Mastering the Art of Fixed Windows Update Issues</u></a></li>
+<li><a href="https://windows11.techidaily.com/secrets-for-locating-vanished-registry-management-utility/"><u>Secrets for Locating Vanished Registry Management Utility</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-building-a-significant-profile/"><u>The Art of Building a Significant Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollowfollow-dynamics-tactical-approaches-for-successful-facebook-engagement/"><u>Unfollow/Follow Dynamics: Tactical Approaches for Successful Facebook Engagement</u></a></li>
 </ul></div>
 

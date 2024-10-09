@@ -1,7 +1,7 @@
 ---
 title: Facebook's Financial Push in the Content War with a $5M Dollar Investment
-date: 2024-09-20T22:04:52.532Z
-updated: 2024-09-21T16:06:33.520Z
+date: 2024-10-05T01:06:53.456Z
+updated: 2024-10-09T05:16:02.268Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,19 @@ thumbnail: https://thmb.techidaily.com/e9711d2ba9e06d496671fabcb5c03dc2cfd9b4b1e
 
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook's News Drive
 
  Whether Facebook can make a success of this new venture remains to be seen. The social networking giant says that it will be investing $1 billion in news over the next three years, of which this current $5 million is just a tiny percentage.
@@ -57,12 +70,18 @@ thumbnail: https://thmb.techidaily.com/e9711d2ba9e06d496671fabcb5c03dc2cfd9b4b1e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-hdr-quality-evaluating-luminances-performance-for-2024/"><u>[New] HDR Quality Evaluating Luminance's Performance for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-add-text-to-youtube-video-before-or-after-uploading/"><u>[New] In 2024, How to Add Text to YouTube Video Before or After Uploading</u></a></li>
+<li><a href="https://facebook.techidaily.com/activating-facebooks-secure-measures-a-step-by-step-guide/"><u>Activating Facebook's Secure Measures: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-which-facebook-portable-screen-suits-you-best/"><u>Assessing Which Facebook Portable Screen Suits You Best</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-locked-iphone-11-pro-max-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>Forgot Locked iPhone 11 Pro Max Password? Learn the Best Methods To Unlock</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-best-performance-with-logitech-brio-webcam-drivers-on-windows-11-8-and-7/"><u>Get the Best Performance with Logitech Brio Webcam Drivers on Windows 11, 8 & 7</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-xiaomi-redmi-note-13-pro-5g-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Xiaomi Redmi Note 13 Pro 5G to Mac? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/optimize-website-insights-using-cookiebot-the-cutting-edge-visitor-analysis-tool/"><u>Optimize Website Insights Using Cookiebot - The Cutting-Edge Visitor Analysis Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagined-social-texting-new-features-for-fbs-messaging-apps/"><u>Reimagined Social Texting: New Features for FB's Messaging Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/say-hi-to-your-new-verified-meta-profile/"><u>Say Hi to Your New, Verified Meta Profile</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/ultimate-steps-for-transforming-your-ppts-into-video-magic-for-2024/"><u>Ultimate Steps for Transforming Your PPTs Into Video Magic for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Road Ahead for Silicon Valley After Antitrust Overhaul
-date: 2024-09-28T18:03:53.709Z
-updated: 2024-10-03T16:40:23.178Z
+date: 2024-10-03T01:08:23.841Z
+updated: 2024-10-09T05:34:14.849Z
 tags:
   - facebook
 categories:
@@ -34,26 +34,33 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -79,6 +86,13 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -89,13 +103,6 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
 In essence: leave the selling to the sellers.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -105,13 +112,6 @@ In essence: leave the selling to the sellers.
  It also requires them to maintain "transparent, third-party-accessible," portable APIs of all of their users' data. The idea is to make the services they offer interoperable—i.e., your medical record, as maintained by one app, can be easily transferred to the app of another service provider should you choose to make the switch.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
@@ -130,10 +130,10 @@ Finally, we come to the economic backing to make it all happen.
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
@@ -157,22 +157,24 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-xbox-power-up-with-these-top-hard-drives-rankings/"><u>[New] 2024 Approved Xbox Power-Up with These Top Hard Drives Rankings</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-synchronize-your-team-with-easy-slack-and-filmora-integration/"><u>[New] In 2024, Synchronize Your Team with Easy Slack & Filmora Integration</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ailored-free-offer-unlock-our-exclusive-youtube-banner-pack/"><u>[New] Tailored Free Offer - Unlock Our Exclusive YouTube Banner Pack</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-ideal-6-screen-recorders-for-mac-users/"><u>[Updated] Ideal 6 Screen Recorders for Mac Users</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-simple-steps-to-record-your-youtube-streams-for-2024/"><u>[Updated] Simple Steps to Record Your YouTube Streams for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-prime-video-editors-for-youtube-enthusiasts/"><u>2024 Approved Prime Video Editors for YouTube Enthusiasts</u></a></li>
-<li><a href="https://program-issues.techidaily.com/expert-insights-a-comprehastery-guide-to-overcoming-teardown-app-instability/"><u>Expert Insights: A Comprehastery Guide to Overcoming Teardown App Instability</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-name-change-from-news-feed-to-just-feed/"><u>Facebook's Name Change - From News Feed to Just Feed</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-lava-yuva-2-pro-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Lava Yuva 2 Pro without App | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-an-eye-detect-vanished-screenshot-photos/"><u>Keep an Eye: Detect Vanished Screenshot Photos</u></a></li>
-<li><a href="https://facebook.techidaily.com/masterful-fb-configuration-key-settings-for-maximum-engagement/"><u>Masterful FB Configuration: Key Settings for Maximum Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebooks-mobile-code-creation/"><u>Navigating Facebook's Mobile Code Creation</u></a></li>
-<li><a href="https://windows11.techidaily.com/overcome-cc-woes-a-handy-guide-for-win-10-users/"><u>Overcome CC Woes: A Handy Guide for Win 10 Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguard-sensitive-information-dodge-these-3-apps/"><u>Safeguard Sensitive Information: Dodge These 3 Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/societys-growth-catalyst-the-top-7-of-social-media-impacts/"><u>Society's Growth Catalyst: The Top 7 of Social Media Impacts</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-what-changed-with-facebooks-news-to-feed-transition/"><u>Understanding What Changed with Facebook's News to Feed Transition</u></a></li>
-<li><a href="https://facebook.techidaily.com/unifying-messages-across-different-facebook-circles/"><u>Unifying Messages Across Different Facebook Circles</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-free-6-best-youtube-to-mp3-downloader-for-android/"><u>[New] 2024 Approved FREE 6 Best YouTube to MP3 Downloader for Android</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-how-to-burn-video-to-dvd-on-mac/"><u>[New] In 2024, How to Burn Video to DVD on Mac</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-motorcyclings-best-bits-hats-cam-with-the-highest-scores/"><u>[New] In 2024, Motorcycling's Best Bits Hats Cam with the Highest Scores</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-list-6-videos-that-grab-attention/"><u>[New] The Ultimate List 6 Videos That Grab Attention</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-effective-financial-gains-through-youtube-shorts-for-2024/"><u>[Updated] Exploring Effective Financial Gains Through YouTube Shorts for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-influencers-secrets-top-10-video-editing-apps-for-ig-success/"><u>[Updated] Influencers' Secrets Top 10 Video Editing Apps for IG Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-how-to-estimate-income-from-youtube-video-snippets/"><u>2024 Approved How to Estimate Income From YouTube Video Snippets</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-lava-blaze-2-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-engagement-posting-vivid-3d-images-to-facebook/"><u>Boosting Engagement: Posting Vivid 3D Images to Facebook</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/easy-steps-to-archive-vimeo-video-recordings/"><u>Easy Steps to Archive Vimeo Video Recordings</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-a-new-frontier-the-potential-of-facebooks-metaverse/"><u>Exploring a New Frontier: The Potential of Facebook’s Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-keep-your-privacy-intact-on-facebook-albums/"><u>How to Keep Your Privacy Intact on Facebook Albums</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-removing-device-from-apple-id-for-your-iphone-6-by-drfone-ios/"><u>In 2024, Removing Device From Apple ID For your iPhone 6</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-techniques-for-dynamic-link-management-on-fb/"><u>Innovative Techniques for Dynamic Link Management on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-morale-without-offending-friends-online/"><u>Maintaining Morale without Offending Friends Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-giant-to-boost-rusts-coding-capabilities/"><u>Social Networking Giant to Boost Rust's Coding Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-your-brands-online-presence-crafting-impressive-facebook-reels/"><u>Transforming Your Brand's Online Presence: Crafting Impressive Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-user-deceit-for-better-privacy-choices/"><u>Unraveling User Deceit for Better Privacy Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-favorites-hiding-facebook-affection/"><u>Unseen Favorites: Hiding Facebook Affection</u></a></li>
 </ul></div>
 

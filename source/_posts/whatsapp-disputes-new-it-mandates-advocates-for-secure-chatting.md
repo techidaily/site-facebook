@@ -1,7 +1,7 @@
 ---
 title: WhatsApp Disputes New IT Mandates, Advocates for Secure Chatting
-date: 2024-09-14T17:25:32.754Z
-updated: 2024-09-22T01:15:49.781Z
+date: 2024-10-03T18:54:19.028Z
+updated: 2024-10-09T06:01:01.922Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/ea0b0402d1ea26fd039e2c69b50b2f77be9bc5a66
 
  This basically means that WhatsApp should provide details on the origins of a message, i.e., the sender if requested by the government. WhatsApp claims in its lawsuit that this rule is unconstitutional.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Indian Government Wants to Regulate Social Media Content
 
  The Information Technology (Intermediary Guidelines and Digital Media Ethics Code) Rules, 2021, was[first announced](https://www.meity.gov.in/content/notification-dated-25th-february-2021-gsr-139e-information-technology-intermediary) by the Indian government on February 25, 2021\. It aims to regulate social media and messaging platforms using a code of ethics.
@@ -37,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/ea0b0402d1ea26fd039e2c69b50b2f77be9bc5a66
  However, since WhatsApp uses end-to-end encryption, this is technically not possible, and breaking the encryption protocol to adhere to the regulations would put the privacy of WhatsApp users at risk.
 
 ![Close-up of the WhatsApp logo on a phone being held up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/India-Not-Backing-Down-WhatsApp-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  A WhatsApp spokesperson issued the following statement to[The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
 
@@ -54,9 +68,23 @@ thumbnail: https://thmb.techidaily.com/ea0b0402d1ea26fd039e2c69b50b2f77be9bc5a66
 
 ![WhatsApp](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fix-whatsapp-notifications-windows-10-featured.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  WhatsApp's move against the Indian government comes at a time when it has itself been[subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned[WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
 
  Related:[Best WhatsApp Alternatives That Don’t Share Your Data With Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## India Is One of WhatsApp's Key Markets
 
@@ -77,12 +105,21 @@ thumbnail: https://thmb.techidaily.com/ea0b0402d1ea26fd039e2c69b50b2f77be9bc5a66
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/updated-a-celebrated-list-top-15-classic-stop-motion-flicks-for-2024/"><u>[Updated] A Celebrated List Top 15 Classic Stop-Motion Flicks for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-simple-method-for-clearing-facebook-dings/"><u>A Simple Method for Clearing Facebook Dings</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-contacts-from-motorola-g54-5g-by-fonelab-android-recover-contacts/"><u>Best Android Data Recovery - Retrieve Lost Contacts from Motorola G54 5G.</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/beyond-the-basics-a-compreran-comparative-analysis/"><u>Beyond the Basics A Compreran Comparative Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-revelations-from-a-no-snap-break/"><u>Digital Detox: Revelations From a No-Snap Break</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-metas-new-privacy-standards-and-impact/"><u>Dissecting Meta's New Privacy Standards and Impact</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/easy-ways-to-create-and-share-audio-memos-on-ios-devices/"><u>Easy Ways to Create and Share Audio Memos on iOS Devices</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-poco-x5-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-depth-exploration-of-final-cut-pros-powerful-tools-and-features/"><u>In-Depth Exploration of Final Cut Pro’s Powerful Tools and Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-social-opportunities-the-case-for-facebook/"><u>Maximizing Social Opportunities: The Case for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-back-your-privacy-from-facebooks-watchfulness/"><u>Taking Back Your Privacy From Facebook's Watchfulness</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/troubleshoot-non-responsive-youtube-on-phonestablets-for-2024/"><u>Troubleshoot Non-Responsive YouTube on Phones/Tablets for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-a-new-self-the-art-of-changing-your-fb-photo/"><u>Unveiling a New Self: The Art of Changing Your FB Photo</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/your-iphones-mp3-fix-6-free-tools-to-convert-youtube-audio-for-2024/"><u>Your iPhone's MP3 Fix 6 Free Tools to Convert YouTube Audio for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Facebook Metaverse, Explained (And Why You Should Care)
-date: 2024-09-16T00:20:36.995Z
-updated: 2024-09-21T23:20:30.929Z
+date: 2024-10-04T17:01:41.095Z
+updated: 2024-10-08T16:50:00.489Z
 tags:
   - facebook
 categories:
@@ -40,7 +40,21 @@ thumbnail: https://thmb.techidaily.com/bb71352b27a9f0530f59cc2c36b568ff3e277e8a2
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Data Brokering and Targeted Ads
 
@@ -49,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/bb71352b27a9f0530f59cc2c36b568ff3e277e8a2
  Related:[Reasons Why Facebook Is a Security and Privacy Nightmare](https://www.makeuseof.com/tag/facebook-security-privacy-nightmare/)
 
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Algorithmic Biases
 
@@ -59,16 +80,10 @@ thumbnail: https://thmb.techidaily.com/bb71352b27a9f0530f59cc2c36b568ff3e277e8a2
  When it comes to social media, it’s important to remember that access to information on a curated newsfeed always comes with an agenda, even if it wasn’t the original intention.
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Security Risks of Granular Data
@@ -88,13 +103,6 @@ thumbnail: https://thmb.techidaily.com/bb71352b27a9f0530f59cc2c36b568ff3e277e8a2
  For this reason, the Facebook Metaverse is stepping up and expanding to other methods of data collection. It’s no longer enough to simply rely on the various data brokers it is affiliated with. As much as possible, Facebook wants to go head-to-head with the other giants in every sense of the word, especially because the war will be won by who can collect the most data from the customers and monetize it.
 
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Perils of Being an Ordinary Person
 
@@ -117,5 +125,24 @@ thumbnail: https://thmb.techidaily.com/bb71352b27a9f0530f59cc2c36b568ff3e277e8a2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-ready-set-fly-dji-spark-reviewed-for-selfie-enthusiasts-and-photographers-alike/"><u>[New] 2024 Approved Ready, Set, Fly DJI Spark Reviewed for Selfie Enthusiasts and Photographers Alike</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-streamlined-sharing-the-best-shortened-link-apps-for-youtubers/"><u>[New] In 2024, Streamlined Sharing The Best Shortened Link Apps for Youtubers</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipated-decision-from-social-media-regulators-on-trump-ban-case/"><u>Anticipated Decision From Social Media Regulators on Trump Ban Case</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-face-off-analyzing-features-and-performance-of-iphone-15-pro-and-pro-max/"><u>Apple Face-Off: Analyzing Features and Performance of iPhone 15 Pro & Pro Max</u></a></li>
+<li><a href="https://facebook.techidaily.com/declare-your-digital-connection-bliss/"><u>Declare Your Digital Connection Bliss</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-facebooks-direct-browser-access/"><u>Eliminate Facebook's Direct Browser Access</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-chiefs-choice-elite-sky-savers/"><u>In 2024, Chief's Choice Elite Sky Savers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-oneplus-nord-ce-3-lite-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On OnePlus Nord CE 3 Lite 5G Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Honor Magic 6 Lite? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/locating-latest-views-in-the-facebook-feed/"><u>Locating Latest Views in the Facebook Feed</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-realme-c51-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Realme C51 Black and White | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-social-data-downloading-every-post-like-share/"><u>Reclaiming Social Data: Downloading Every Post, Like, Share</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-silliness-navigating-friendly-teasing-digitally/"><u>Safe Silliness: Navigating Friendly Teasing Digitally</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-chats-on-facebooks-platform/"><u>Securing Chats on Facebooks Platform</u></a></li>
+<li><a href="https://extra-support.techidaily.com/sj4000-owners-guide-to-stylish-and-practical-gear-for-2024/"><u>SJ4000 Owners' Guide to Stylish & Practical Gear for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-3-essential-pc-gaming-analytics-apps-for-enhanced-in-game-tracking/"><u>Top 3 Essential PC Gaming Analytics Apps for Enhanced In-Game Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-withholds-enforcement-of-new-privacy-stance/"><u>WhatsApp Withholds Enforcement of New Privacy Stance</u></a></li>
+</ul></div>
 

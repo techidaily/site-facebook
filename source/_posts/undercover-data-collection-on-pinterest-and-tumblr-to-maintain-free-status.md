@@ -1,7 +1,7 @@
 ---
 title: Undercover Data Collection on Pinterest & Tumblr to Maintain Free Status
-date: 2024-09-18T21:27:26.919Z
-updated: 2024-09-22T00:26:34.206Z
+date: 2024-10-01T19:27:07.046Z
+updated: 2024-10-08T17:59:41.603Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/a74c765fb6818efdc56bfc7805aa17daf214ba70c
 
 > \[Apple's prompt\] discourages people from giving their permission, and provides little detail about what this decision means. (...) We will show an educational screen before presenting Apple’s prompt to help people make an informed decision about how their information is used.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Why Does Facebook Oppose the Apple iOS 14 Update So Much?
 
  The iOS 14 update added**App Tracking Transparency** , which requires all your apps that track user behavior to ask you for explicit permission to do so before anything else. You can tweak this setting for each individual app, or apply the same setting to all apps via the**Settings** menu.
@@ -41,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/a74c765fb6818efdc56bfc7805aa17daf214ba70c
  So the new prompts on Facebook and Instagram are in place to convince you to not turn off user tracking. Otherwise, it's implied you may have to pay to use these social networks in the future.
 
  Related: [Apple Releases iOS 14.5 With a Long List of New Features](https://www.makeuseof.com/apple-releases-ios-14-5-update-iphone-ipad-ipod-touch/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Will Facebook Go Back on Its Word?
 
@@ -61,12 +75,20 @@ thumbnail: https://thmb.techidaily.com/a74c765fb6818efdc56bfc7805aa17daf214ba70c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-film-titles-that-spur-positive-change-and-action-steps/"><u>[New] Film Titles That Spur Positive Change & Action Steps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-art-of-increasing-indoor-ambiance-via-sunlight/"><u>[Updated] 2024 Approved The Art of Increasing Indoor Ambiance via Sunlight</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-from-scribbles-to-spectacle-personalized-effect-crafting/"><u>[Updated] In 2024, From Scribbles to Spectacle Personalized Effect Crafting</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-unlock-the-secrets-to-intense-hdr-portraits/"><u>2024 Approved Unlock the Secrets to Intense HDR Portraits</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-whitelisting-strategy/"><u>Dissecting Facebook's Whitelisting Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/doppelganger-detection-spotting-digital-dupes/"><u>Doppelgänger Detection: Spotting Digital Dupes</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminating-unwanted-glances-the-ultimate-fb-privacy-guide/"><u>Eliminating Unwanted Glances: The Ultimate FB Privacy Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-pro-tips-to-elevate-your-headline-game/"><u>In 2024, Pro Tips to Elevate Your Headline Game</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-asus-rog-zephyrus-g14-the-ultimate-gamers-choice/"><u>In-Depth Evaluation of the Asus ROG Zephyrus G14: The Ultimate Gamer's Choice</u></a></li>
+<li><a href="https://facebook.techidaily.com/journey-to-prominence-in-the-social-sphere/"><u>Journey to Prominence in the Social Sphere</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/pinnacle-pathfinders-the-ultimate-10-game-guide-for-2024/"><u>Pinnacle Pathfinders The Ultimate 10 Game Guide for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-honor-magic-6-lite-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Honor Magic 6 Lite to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-opportunities-in-openais-vulnerability-disclosure-program-participation-steps/"><u>Unlocking Opportunities in OpenAI’s Vulnerability Disclosure Program – Participation Steps</u></a></li>
+</ul></div>
 

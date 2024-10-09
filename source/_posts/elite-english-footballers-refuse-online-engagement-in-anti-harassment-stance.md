@@ -1,7 +1,7 @@
 ---
 title: Elite English Footballers Refuse Online Engagement in Anti-Harassment Stance
-date: 2024-09-20T22:40:51.765Z
-updated: 2024-09-21T18:26:23.260Z
+date: 2024-10-03T00:52:49.918Z
+updated: 2024-10-08T23:46:39.906Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/0b17306a3ff43a3354c035a000988ea5867c75fb6
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -79,18 +86,24 @@ thumbnail: https://thmb.techidaily.com/0b17306a3ff43a3354c035a000988ea5867c75fb6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-affordable-4k-cameras-guide-(1k-top-picks-for-2024/"><u>[New] Affordable 4K Cameras Guide (<$1K) - Top Picks for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-global-elite-top-12-tools-with-no-time-limit-for-2024/"><u>[New] Global Elite Top 12 Tools With No Time Limit for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-precision-problem-solving-for-social-media-stories-issues-for-2024/"><u>[New] Precision Problem-Solving for Social Media Stories Issues for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-free-end-credits-maker-the-1-video-closers-guide/"><u>[Updated] Free End Credits Maker - The #1 Video Closers Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-instagram-enhancement-the-top-tactics-for-better-storytelling/"><u>[Updated] In 2024, Instagram Enhancement The Top Tactics for Better Storytelling</u></a></li>
+<li><a href="https://facebook.techidaily.com/compreenas-unlocking-your-facebook-blocked-friends-names/"><u>Compreenas: Unlocking Your Facebook Blocked Friends’ Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-doppelgangers-uncovered-spotting-the-9-profile-impostors/"><u>Digital Doppelgängers Uncovered: Spotting the 9 Profile Impostors</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-newest-hp-deskjet-3755-all-in-one-printer-software-compatible-with-windows-1187/"><u>Download the Newest HP DeskJet 3755 All-In-One Printer Software Compatible with Windows 11/8/7</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151233047-expectation-hangover-date-and-decision-for-facebooks-governance-board/"><u>Expectation Hangover: Date and Decision for Facebook's Governance Board</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-launching-successful-online-gaming-shows-on-youtube/"><u>In 2024, Launching Successful Online Gaming Shows on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-where-the-magic-of-video-editing-begins-on-youtube/"><u>In 2024, Where the Magic of Video Editing Begins on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-markup-magic-standout-text-styles/"><u>Messenger Markup Magic: Standout Text Styles</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-truths-and-misconceptions-a-reality-check/"><u>Metaverse Truths & Misconceptions – A Reality Check</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-age-of-digital-advertising-on-instagram-facebook/"><u>New Age of Digital Advertising on Instagram, Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-your-purchase-power-from-online-predators-at-facebook-marketplace/"><u>Protecting Your Purchase Power From Online Predators at Facebook Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-your-social-media-and-chat-life-on-whatsapp/"><u>Uniting Your Social Media and Chat Life on WhatsApp</u></a></li>
+<li><a href="https://driver-download.techidaily.com/upgrade-to-newest-nvidia-quadro-windows-10-graphics-drivers/"><u>Upgrade to Newest NVIDIA Quadro Windows 10 Graphics Drivers</u></a></li>
+</ul></div>
 

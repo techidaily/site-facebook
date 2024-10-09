@@ -1,7 +1,7 @@
 ---
 title: "Public Perception of Online Communities: More Harm, Less Good"
-date: 2024-09-16T00:13:41.134Z
-updated: 2024-09-21T20:00:19.038Z
+date: 2024-10-02T03:08:29.953Z
+updated: 2024-10-09T06:08:27.996Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/a8a502e12209ca4cf0a910d9af6975208a0b7497d
 
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Does Social Media Affect Your Life?
 
  The same poll also asked Americans how social media affects their quality of life. 49 percent say social media makes their lives better, while 37 percent say it makes their lives worse.
@@ -54,7 +61,33 @@ thumbnail: https://thmb.techidaily.com/a8a502e12209ca4cf0a910d9af6975208a0b7497d
 
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
 
@@ -77,12 +110,20 @@ thumbnail: https://thmb.techidaily.com/a8a502e12209ca4cf0a910d9af6975208a0b7497d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-social-media-synergy-connecting-twitch-streams-with-fb-for-2024/"><u>[New] Social Media Synergy Connecting Twitch Streams with FB for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-premium-photographic-archives/"><u>[Updated] Premium Photographic Archives</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-comprehensible-guide-downloading-safe-free-vlc-on-macos/"><u>[Updated] The Comprehensible Guide Downloading Safe, Free VLC on macOS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unlock-visual-potential-with-smart-photo-text-tools-online-for-2024/"><u>[Updated] Unlock Visual Potential with Smart Photo Text Tools Online for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-tecno-spark-20-proplus-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Tecno Spark 20 Pro+ System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-prevent-unsolicited-openings-of-search-bar-win11/"><u>How to Prevent Unsolicited Openings of Search Bar, Win11</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Pause Life360 Location Sharing For Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-of-mourning-disconnecting-your-fb-commerce-profile/"><u>Mastery of Mourning: Disconnecting Your FB Commerce Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-center-highlighting-facebooks-commitment-to-policy-clarity/"><u>New Center Highlighting Facebook's Commitment to Policy Clarity</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/revolutionize-visual-content-leading-montage-tools-for-phones-for-2024/"><u>Revolutionize Visual Content Leading Montage Tools for Phones for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-spread-conversation-wings-add-friends-on-facebook-messenger/"><u>Swiftly Spread Conversation Wings: Add Friends on Facebook Messenger</u></a></li>
+<li><a href="https://win-dash.techidaily.com/ultimate-guide-setting-up-gridiron-legends-in-kodi-for-premium-sports-broadcasting/"><u>Ultimate Guide: Setting Up Gridiron Legends in Kodi for Premium Sports Broadcasting</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-marketing-stands-tall-with-a-facebook-company-page-8-core-advantages/"><u>Why Marketing Stands Tall with a Facebook Company Page - 8 Core Advantages</u></a></li>
+</ul></div>
 

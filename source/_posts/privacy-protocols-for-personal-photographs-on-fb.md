@@ -1,7 +1,7 @@
 ---
 title: Privacy Protocols for Personal Photographs on FB
-date: 2024-09-30T17:07:03.835Z
-updated: 2024-10-03T16:23:29.198Z
+date: 2024-10-05T20:30:51.722Z
+updated: 2024-10-09T02:11:13.136Z
 tags:
   - facebook
 categories:
@@ -48,30 +48,30 @@ thumbnail: https://thmb.techidaily.com/a8dc09aa00b57fb659621da31b365534682fa3f06
 ![Edit album option on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-edit-facebook-album-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook album editing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-edit-facebook-album-privacy-options.jpg)
 
 ![Privacy settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-facebook-album-privacy-setting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Make Albums Private on Facebook on the Web
 
@@ -123,9 +123,23 @@ To make a single photo on Facebook private, follow these steps:
 
 ![Photo settings options on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-facebook-photo-settings-options.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Editing photo privacy settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-photo-privacy-settings-facebook.jpg)
 
 Close
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Make Individual Facebook Photos Private on the Web
 
@@ -137,23 +151,16 @@ Close
 
 ![Your photos in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-your-photos-album-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Click to open the photo you want to make private.
 * Next, click the**three dots** in the top right and select**Edit post audience** .
 
 ![Facebook's individual photo setting options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-viewing-photo-facebook-web.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Select**Only me** and click**Done** to save your changes.
@@ -170,16 +177,16 @@ Close
 
 ![View as on Facebook.com](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/view-as-option-facebook-website.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  This will show you all the previous posts that people outside your Facebook friends list and the platform can see. You can not change the[privacy settings of your Facebook you're](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) while you’re in the View As mode, but you can take note of the photos and the dates so that you can find them later.
 
  Once you know which photos you want to set to private, leave View As public mode by clicking on your thumbnail in the top right corner of your screen or clicking back. Alternatively, tap**Exit View As** . On mobile, tap the**X** button at the top to exit View As mode.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Hide Photos on Facebook From the Public in the Future
 
@@ -191,22 +198,22 @@ Close
 
 ![Making a Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-posting-on-facebook.jpg)
 
-![Facebook audience options for a post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-post-audience-facebook.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Facebook audience options for a post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-post-audience-facebook.jpg)
 
 ![Adjusting audience settings on a Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-facebook-default-audience-option.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -216,13 +223,6 @@ Close
  Also, regularly check your profile in View As mode to see if you may have accidentally shared anything with the public.
 
  Having a[Facebook privacy and security checklist](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) that you go through regularly will help make sure you catch any of these photos right away. Remember that the longer these photos are shared publicly on social media, the higher the chances of a scammer getting a hold of them. Although this helps, you can[make your Facebook private](https://www.makeuseof.com/how-to-make-facebook-private/) if you need more security.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Now You Know How to Hide Photos on Facebook
 
@@ -245,22 +245,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/xplore-the-ultimate-list-of-free-youtube-channel-starters-for-2024/"><u>[New] Explore the Ultimate List of Free YouTube Channel Starters for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-premier-manual-for-subtitle-precision-via-web-resources/"><u>[New] The Premier Manual for Subtitle Precision via Web Resources</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-must-have-10-tiktok-video-editor-apps-for-windows-pc/"><u>[Updated] 2024 Approved Must-Have 10 TikTok Video Editor Apps for Windows PC</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-prime-pick-extensive-digital-vaults/"><u>2024 Approved Prime Pick Extensive Digital Vaults</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-uptime-understanding-and-tracking-status/"><u>Facebook Uptime: Understanding and Tracking Status</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-tecno-phantom-v-flip-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Tecno Phantom V Flip to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/future-of-technology-firms-with-new-american-regulations/"><u>Future of Technology Firms with New American Regulations</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-use-a-facebook-avatar-on-whatsapp/"><u>How to Use a Facebook Avatar on WhatsApp</u></a></li>
-<li><a href="https://facebook.techidaily.com/make-friends-start-conversations-crafting-an-avatar-themed-cover-for-facebook/"><u>Make Friends, Start Conversations: Crafting an Avatar-Themed Cover for Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-image-privacy-fb-photo-settings-guide/"><u>Mastering Image Privacy: FB Photo Settings Guide</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/meta-drops-minimum-age-requirement-for-ownership-of-quest-accounts-is-it-safe-for-youngsters-to-dive-into-virtual-reality/"><u>Meta Drops Minimum Age Requirement for Ownership of Quest Accounts: Is It Safe for Youngsters to Dive Into Virtual Reality?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/no-more-shockwave-flash-on-google-chrome-overcome-the-compatibility-hurdle-today/"><u>No More Shockwave Flash on Google Chrome: Overcome the Compatibility Hurdle Today</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-greyed-out-erase-feature-in-windows-11-settings/"><u>Overcoming Greyed Out Erase Feature in Windows 11 Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/regaining-access-when-facebook-fails-to-send-verification-codes/"><u>Regaining Access: When Facebook Fails to Send Verification Codes</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-power-of-connectivity-8-social-networking-methods/"><u>The Power of Connectivity: 8 Social Networking Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-past-connections-downloading-full-facebook-activity/"><u>Unlocking Past Connections: Downloading Full Facebook Activity</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-foremost-20-anime-music-opener-list/"><u>[Updated] 2024 Approved Foremost 20 Anime Music Opener List</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-a-guide-to-innovative-metaverse-marketing/"><u>[Updated] A Guide to Innovative Metaverse Marketing</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-switching-back-from-macos-sierra-to-older-os-x/"><u>[Updated] Switching Back From MacOS Sierra To Older OS X</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unlocking-potential-in-snaps-maximizing-your-marketing-impact/"><u>[Updated] Unlocking Potential in Snaps Maximizing Your Marketing Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-dislike-options-necessary-online/"><u>Are Dislike Options Necessary Online?</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-zte-nubia-flip-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on ZTE Nubia Flip 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/complete-record-compilation-how-to-archive-your-facebook-life/"><u>Complete Record Compilation: How to Archive Your Facebook Life</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fix-lol-pvpnet-patcher-kernel-has-stopped-working-easily/"><u>Fix LOL PvP.net Patcher Kernel Has Stopped Working Easily</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/full-examination-hero4-black-designs/"><u>Full Examination Hero4 Black Designs</u></a></li>
+<li><a href="https://facebook.techidaily.com/greatest-age-friendly-networking-spaces/"><u>Greatest Age-Friendly Networking Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-evolution-uncovering-the-top-4-social-shifts-online/"><u>Interactive Evolution: Uncovering the Top 4 Social Shifts Online</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-effortless-4k-video-conversion-top-free-and-paid-options-for-2024/"><u>New Effortless 4K Video Conversion Top Free and Paid Options for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-locations-unveiling-freelancer-openings/"><u>Prime Locations Unveiling Freelancer Openings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-vast-majority-of-iphone-users-are-opting-out-of-app-tracking/"><u>The Vast Majority of iPhone Users Are Opting Out of App Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-functionality-unhindered-without-agreeing-to-updated-privacy-terms/"><u>WhatsApp: Functionality Unhindered Without Agreeing to Updated Privacy Terms</u></a></li>
 </ul></div>
 

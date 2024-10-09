@@ -1,7 +1,7 @@
 ---
 title: "Timeline Traversal: The Evolution of Online Companions"
-date: 2024-09-19T20:57:34.635Z
-updated: 2024-09-22T01:05:40.581Z
+date: 2024-10-08T01:08:15.351Z
+updated: 2024-10-08T19:57:08.222Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,13 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 * [Can You See the Friendship Between Any Two People on Facebook?](#can-you-see-the-friendship-between-any-two-people-on-facebook)
 * [Is There a Privacy Risk to Viewing Your Facebook Friendships?](#is-there-a-privacy-risk-to-viewing-your-facebook-friendships)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Viewing your friendship history on Facebook lets you see common interests and interactions with friends through a button or URL.
@@ -48,7 +55,27 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 
 ![Facebook Profile Page in App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-profile-page-in-app.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Manage Friend Menu on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/manage-friend-menu-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Facebook Friendship history Page on App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page-on-app.jpg)
 
@@ -65,14 +92,14 @@ Close
 
 ![Facebook Friendship Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page.jpg)
 
- Remember that you can only use this tool with your current Facebook friends, not profiles you used to be friends with or profiles you never friended. Once you become friends on Facebook, the URL will work as long as you stay friends on the site.
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Remember that you can only use this tool with your current Facebook friends, not profiles you used to be friends with or profiles you never friended. Once you become friends on Facebook, the URL will work as long as you stay friends on the site.
 
 ## Can You See the Friendship Between Any Two People on Facebook?
 
@@ -81,13 +108,6 @@ Close
  Today, the URL still exists (indeed, it is used in this process), but you are restricted to seeing the history between yourself and your Facebook friends. And the addition of the**See Friendship** button makes it even easier.
 
  You can also see the friendship history between your account and memorialized accounts on Facebook.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Is There a Privacy Risk to Viewing Your Facebook Friendships?
 
@@ -110,5 +130,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-tips-for-gaining-attention-via-snapchat-star/"><u>[New] Tips for Gaining Attention via Snapchat Star</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-the-streaming-platform-faceoff-twitch-versus-youtube-analysis/"><u>2024 Approved The Streaming Platform Faceoff Twitch Versus YouTube Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footsteps-lead-to-pages-groups-in-fb/"><u>Digital Footsteps Lead to Pages, Groups in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-read-between-the-lines-of-facebooks-chat-emoji-meanings/"><u>How to Read Between the Lines of Facebook's Chat Emoji Meanings</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-itel-p55t-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Itel P55T Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-every-shared-photo-permanent-archive/"><u>Is Every Shared Photo Permanent Archive?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/llama-vs-gpt-4-a-comprehensive-comparison-of-performance/"><u>Llama Vs. GPT-4: A Comprehensive Comparison of Performance</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/maximize-online-engagement-through-cookiebot-seo-solutions/"><u>Maximize Online Engagement Through Cookiebot SEO Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-authority-checks-right-to-suspend-trump-temporarily/"><u>Online Authority Checks: Right to Suspend Trump, Temporarily</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-latency-challenges-in-the-updated-gaming-experience/"><u>Overcoming Latency Challenges in the Updated Gaming Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/premium-metas-gain-verified-identity-badge/"><u>Premium Metas: Gain Verified Identity Badge</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/en-youtube-regulations-to-abide-by-for-2024/"><u>Top Ten YouTube Regulations to Abide By for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-vivo-t2x-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Vivo T2x 5G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-anonymity-options-in-social-networks/"><u>Understanding Anonymity Options in Social Networks</u></a></li>
+</ul></div>
 

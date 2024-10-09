@@ -1,7 +1,7 @@
 ---
 title: Steering Clear of Unwanted Facebook Screenshots
-date: 2024-09-28T17:03:09.184Z
-updated: 2024-10-03T20:33:51.104Z
+date: 2024-10-04T22:46:01.037Z
+updated: 2024-10-09T01:30:54.995Z
 tags:
   - facebook
 categories:
@@ -37,6 +37,13 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 * **Location:** Does your photo reveal where you are? If you're at home, have you just revealed your home address to the world?
 * **Embarrassment:** Has someone posted a snap of you in a compromising position? You probably don't want your family or your boss to see it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook and Photo Privacy
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
@@ -52,6 +59,13 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  You have six options to choose from:**Public** ,**Friends** ,**Friends except** (to exclude some people),**Specific friends** ,**Only me** , and**Custom** .
 
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Old Photos
 
@@ -72,10 +86,10 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
@@ -84,33 +98,26 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Pro Tip: Use the Activity Log
 
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Photos You're Tagged In
 
@@ -127,13 +134,6 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 ### Tag Suggestions
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
@@ -158,20 +158,21 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-exploring-the-merits-of-obs-studio-and-fraps-for-recording-screens-for-2024/"><u>[New] Exploring the Merits of OBS Studio & Fraps for Recording Screens for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-experts-guide-to-the-best-ipad-voice-recording-tools-3/"><u>[New] In 2024, Expert's Guide to the Best iPad Voice Recording Tools #3</u></a></li>
-<li><a href="https://driver-error.techidaily.com/update-hardware-and-dev-driver-operational-on-win/"><u>[Update: Hardware & Dev Driver Operational on Win</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unveiling-how-to-activate-windows-11-written-for-high-dynamic-range-auto-hdr/"><u>[Updated] 2024 Approved Unveiling How to Activate Windows 11' Written for High Dynamic Range (Auto HDR)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-from-good-to-great-elevate-reactions-in-youtube-videos-with-these-3-strategies/"><u>[Updated] From Good to Great Elevate Reactions in YouTube Videos with These 3 Strategies</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtube-growth-strategy-attracting-million-strong-fans/"><u>[Updated] In 2024, Youtube Growth Strategy Attracting Million-Strong Fans</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-innovative-metaverse-humor-generating-unique-memes/"><u>[Updated] Innovative Metaverse Humor Generating Unique Memes</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-social-presence-with-ripls-best-practices/"><u>Elevate Your Social Presence with Ripl's Best Practices</u></a></li>
-<li><a href="https://common-error.techidaily.com/expert-advice-step-by-step-instructions-to-fix-a-blank-screen-on-your-monitor/"><u>Expert Advice: Step-by-Step Instructions to Fix a Blank Screen on Your Monitor</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-public-participation-in-facebook-community-networks/"><u>Exploring Public Participation in Facebook Community Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-launches-new-admin-tools-to-help-moderate-communities/"><u>Facebook Launches New Admin Tools to Help Moderate Communities</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-protocol-for-self-safe-marking/"><u>FB Protocol for Self-Safe Marking</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-concealed-voice-in-online-collectives/"><u>Guide to Concealed Voice in Online Collectives</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-identity-evolution-oculuss-latest-avatars/"><u>Virtual Identity Evolution: Oculus's Latest Avatars</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-to-know-about-impending-thread-shutdown-on-insta/"><u>What to Know About Impending Thread Shutdown on Insta</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-energy-savings-calculations-while-not-directly-impacting-installation-cost-understanding-potential-energy-savings-is-crucial-for-long-term-roi/"><u>2024 Approved __Energy Savings Calculations__ While Not Directly Impacting Installation Cost, Understanding Potential Energy Savings Is Crucial for Long-Term ROI Analysis.</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-nine-techniques-for-reversing-livestream-engagement/"><u>2024 Approved Nine Techniques for Reversing Livestream Engagement</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-pros-guide-to-clearing-backdrops-in-figma-design/"><u>2024 Approved The Pro's Guide to Clearing Backdrops in Figma Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipating-the-next-chapter-fbs-move-into-physical-retail-expansion/"><u>Anticipating the Next Chapter: FB's Move Into Physical Retail Expansion</u></a></li>
+<li><a href="https://facebook.techidaily.com/detecting-deception-eyes-that-see-beyond-screen-saves/"><u>Detecting Deception: Eyes that See Beyond Screen Saves</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-knowledge-on-new-facebook-ui-elements/"><u>Essential Knowledge on New Facebook UI Elements</u></a></li>
+<li><a href="https://article-files.techidaily.com/harnessing-the-power-of-look-up-tables-in-film-grading-for-2024/"><u>Harnessing the Power of Look-Up Tables in Film Grading for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-xiaomi-redmi-note-12-4g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Xiaomi Redmi Note 12 4G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-locating-live-broadcasts-and-shared-films-on-fb/"><u>In 2024, Locating Live Broadcasts and Shared Films on FB</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-economic-sphere-of-the-philanthropic-mr-beast/"><u>In 2024, The Economic Sphere of the Philanthropic Mr. Beast</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-a-low-profile-on-social-networks/"><u>Keeping a Low Profile on Social Networks</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastering-the-art-of-checking-powershell-versions-in-windows-11-with-help-from-revouninstaller/"><u>Mastering the Art of Checking PowerShell Versions in Windows 11 with Help From RevoUninstaller</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-communication-via-facebooks-symbol-language/"><u>The Art of Communication via Facebook's Symbol Language</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dynamics-facebook-and-the-metaverse-connection/"><u>The Hidden Dynamics: Facebook and The Metaverse Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/weighing-in-should-you-utilize-meta-ai-on-social-networks/"><u>Weighing In: Should You Utilize Meta AI on Social Networks?</u></a></li>
 </ul></div>
 

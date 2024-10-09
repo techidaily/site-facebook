@@ -1,7 +1,7 @@
 ---
 title: WhatsApp Multi-Platform Support Confirmed by Zuckerberg
-date: 2024-09-15T19:33:28.952Z
-updated: 2024-09-21T21:38:26.967Z
+date: 2024-10-01T19:47:38.009Z
+updated: 2024-10-08T17:36:37.798Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ One of the messages from Zuckerberg reads as follows:
 
  WABetaInfo has made a name for itself by reverse engineering WhatsApp's beta releases in order to unearth evidence of unannounced and unreleased features. This has got to be the first time Zuckerberg has reached out to a blog to share what's coming to WhatsApp.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## WhatsApp to Gain Multi-Device Support Soon
 
  With multi-device support, he said, customers will be able to link a single WhatsApp account to up to four different devices. Furthermore, each device will be allowed to use WhatsApp even if the user doesn't have their smartphone on them.
@@ -43,6 +50,13 @@ One of the messages from Zuckerberg reads as follows:
  Zuckerberg mentions that the WhatsApp team has faced "a big technical challenge" in getting all your messages and content to sync properly across devices "even when your phone battery dies." Importantly, he went on to say that Facebook has solved this problem with an elegant solution that he thinks will be "the best solution out there."
 
  Multi-device support will be rolled out in a public WhatsApp beta within two months so people will be able to try out the feature ahead of launch. Zuckerberg has said that Facebook will consider opening up the WhatsApp beta to some more iOS users soon.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Is WhatsApp Working on an iPad App?
 
@@ -68,12 +82,17 @@ One of the messages from Zuckerberg reads as follows:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevating-your-youtube-stream-the-wirecast-way/"><u>[New] In 2024, Elevating Your YouTube Stream The WireCast Way</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-10plus-video-presentation-ideas-to-delight-your-audience/"><u>[Updated] 10+ Video Presentation Ideas to Delight Your Audience</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-quality-microphone-recorders-for-mac-devices-our-five-choices-revealed-for-2024/"><u>[Updated] Quality Microphone Recorders for Mac Devices Our Five Choices Revealed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-important-tech-news-stories-you-might-have-missed/"><u>4 Important Tech News Stories You Might Have Missed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/m4rwav/"><u>自由版多馬韋M4R變更WAV：線上瀏覽轉換器解決方案</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-soundmojis-on-social-messaging-platforms/"><u>Behind the Scenes of Soundmojis on Social Messaging Platforms</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-xs-passcode-screen-by-drfone-ios/"><u>In 2024, How to Unlock iPhone XS Passcode Screen?</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-self-safety-marker-on-social-media/"><u>Personalizing Self-Safety Marker on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-did-sheryl-do-that-changed-facebook/"><u>What Did Sheryl Do That Changed Facebook?</u></a></li>
+</ul></div>
 

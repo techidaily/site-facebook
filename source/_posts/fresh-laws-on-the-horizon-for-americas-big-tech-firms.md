@@ -1,7 +1,7 @@
 ---
 title: Fresh Laws on the Horizon for America's Big Tech Firms
-date: 2024-09-30T16:21:50.591Z
-updated: 2024-10-03T20:10:20.368Z
+date: 2024-10-02T23:26:01.054Z
+updated: 2024-10-08T18:17:32.105Z
 tags:
   - facebook
 categories:
@@ -33,13 +33,6 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What Are the Five Antitrust Bills?
 
@@ -74,16 +67,10 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. The Ending Platform Monopolies Act
@@ -96,6 +83,13 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
 In essence: leave the selling to the sellers.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -107,10 +101,10 @@ In essence: leave the selling to the sellers.
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
@@ -118,10 +112,10 @@ In essence: leave the selling to the sellers.
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
@@ -157,16 +151,24 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-unwind-with-our-top-10-serene-games-for-2024/"><u>[New] Unwind With Our Top 10 Serene Games for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-secrets-back-on-snapchat-screen/"><u>[Updated] 2024 Approved Secrets Back on Snapchat Screen</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-how-to-charm-your-way-into-a-friends-tiktok-show-for-2024/"><u>[Updated] How to Charm Your Way Into a Friend’s TikTok Show for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-streamline-your-shots-a-windows-11-guide/"><u>2024 Approved Streamline Your Shots A Windows 11 Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/eliminate-your-group-a-facebook-breakdown-guide/"><u>Eliminate Your Group: A Facebook Breakdown Guide</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-how-to-confirm-your-youtube-account-securely/"><u>In 2024, How to Confirm Your YouTube Account Securely?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-tecno-camon-20-pro-5g-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Tecno Camon 20 Pro 5G Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-someone-else-in-your-life-on-facebook/"><u>Is Someone Else in Your Life on Facebook?</u></a></li>
-<li><a href="https://facebook.techidaily.com/managing-online-reputation-block-users-on-business-fb-page/"><u>Managing Online Reputation: Block Users on Business FB Page</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-wevideo-your-go-to-platform-for-online-video-editing/"><u>New In 2024, WeVideo Your Go-To Platform for Online Video Editing</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategic-move-facebook-allocates-5m-amidst-rising-competition-from-substack/"><u>Strategic Move: Facebook Allocates $5M Amidst Rising Competition From Substack</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-unearthing-the-best-storytelling-channels-yearly-roundup/"><u>[New] 2024 Approved Unearthing the Best Storytelling Channels Yearly Roundup</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-decreasing-bitrate-in-high-quality-obs/"><u>[New] Decreasing Bitrate in High-Quality OBS</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-streamline-your-filming-journey-a-step-by-step-guide-to-utilize-your-logitech-camera/"><u>[New] Streamline Your Filming Journey A Step-by-Step Guide to Utilize Your Logitech Camera</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/affordable-lawn-care-solutions-find-the-best-value-ride-on-and-push-lawn-mowers-reviewed/"><u>Affordable Lawn Care Solutions - Find the Best Value Ride-On and Push Lawn Mowers Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-your-online-profile-a-guide-to-deletion/"><u>Banishing Your Online Profile: A Guide to Deletion</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-sage-of-symbolism-the-essential-guide-to-fb-emojis-and-icons/"><u>Becoming a Sage of Symbolism: The Essential Guide to FB Emojis and Icons</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-vk-insights-into-russias-social-media-world/"><u>Decoding VK: Insights Into Russia's Social Media World</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-vivo-x100-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Vivo X100 FRP</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-nokia-g22-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Nokia G22 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-screen-to-air-comparison-who-wins-obs-or-twitch-studio/"><u>In 2024, Screen to Air Comparison Who Wins, OBS or Twitch Studio?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-metas-verified-validity/"><u>Navigating Through Meta's Verified Validity</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-2024-approved-step-by-step-guide-how-to-translate-tiktok-videos/"><u>New 2024 Approved Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-identity-new-space-modify-your-fb-profile-url/"><u>New Identity, New Space: Modify Your FB Profile URL</u></a></li>
+<li><a href="https://facebook.techidaily.com/pinpointing-exact-time-i-joined-facebook/"><u>Pinpointing Exact Time I Joined Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-sound-of-social-networking-project-boombox-by-fb-and-spotify/"><u>The Sound of Social Networking: Project Boombox by FB & SPOTIFY</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-triple-threat-of-metas-social-supremacy/"><u>The Triple Threat of Meta's Social Supremacy</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unmatched-mobileweb-image-magnification-toolkit-for-2024/"><u>Unmatched Mobile/Web Image Magnification Toolkit for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/withholding-uninvited-network-suggestions-in-fb/"><u>Withholding Uninvited Network Suggestions in FB</u></a></li>
 </ul></div>
 

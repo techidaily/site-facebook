@@ -1,7 +1,7 @@
 ---
 title: Optimizing Privacy Settings in Your Child's Facebook Messenger
-date: 2024-09-19T20:25:46.067Z
-updated: 2024-09-21T19:54:14.517Z
+date: 2024-10-06T18:29:00.532Z
+updated: 2024-10-08T20:12:16.994Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ Here's a look at the different fields you can add...
 
  Parents can choose one from the list, which will be saved for future reference. This simple step encourages kids to embrace their identities and come out to the world with confidence.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Profile Picture
 
  Like most adults, kids also love to share their pictures on social media. Although Messenger Kids does not have a story feature like the standard version, there is an option to change the profile picture.
@@ -55,10 +62,10 @@ Here's a look at the different fields you can add...
  Facebook allows you to do this both on the website or using the mobile app.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Changing Personal Information on Messenger Kids Via Smartphone
@@ -75,13 +82,6 @@ Here's how to change the information through a smartphone:
 
 ![Parental Controls on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Parental-Controls-on-Messenger-Kids-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
 
 1. Open your Facebook app. You’ll be directed to the**Home Page** .
@@ -94,16 +94,22 @@ Close
 
 **Download:** Messenger Kids for[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Change Your Kid's Profile Picture
 
 ![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Choose photo from gallery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Choose-photo-from-gallery.jpg)
 
@@ -115,37 +121,18 @@ To change your child's profile image:
 2. Choose the picture you want to use as a profile photo. Make changes in the editing menu (if needed).
 3. Tap on the**Checkmark** to update the profile picture.
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Change Name and Date of Birth
 
 ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Change date of birth in Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-date-of-birth-in-Messenger-Kids.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -159,6 +146,13 @@ Close
 
 ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Set pronouns on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Set-pronouns-on-Messenger-Kids.jpg)
 
 Close
@@ -168,6 +162,13 @@ Follow these steps to change pronouns in the Messenger Kids app:
 1. If the pronouns are not specified, or you wish to change them, tap the menu to open the list.
 2. Select your child's pronouns.
 3. Select**Save** . You can also clear pronouns if already listed.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Changing Personal Information on Messenger Kids Via Desktop
 
@@ -184,12 +185,33 @@ Follow these steps:
 5. Select**Controls** to access a menu with all the relevant features. Thanks to[updates in Messenger Kids parental controls](https://www.makeuseof.com/tag/facebook-messenger-kids-parental-controls/) , only parents can open this menu.  
 ![Click on Messenger Kids controls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids-controls.jpg)
 6. From the menu, tap on**Edit Info** to open**Account Settings** . You can change the information like username, date of birth, and gender from here. The desktop version does not allow you to add/change pronouns.  
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Change account details](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-account-settings.jpg)  
  7\. Bring your cursor to the name area and change it accordingly. Remember, it is mandatory to have a first and surname.
 7. Similarly, update the date of birth and gender of your child.
 8. Select**Save** to apply the changes.
 9. If you don't want your child to use Messenger Kids anymore, or they have outgrown the age to be using it, there is an option to**Delete Account** and erase all information.  
 ![Delete Messenger kids Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Delete-Messenger-kids-Account.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Changing Information on Messenger Kids Made Easy
 
@@ -212,5 +234,24 @@ Follow these steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-crafting-compelling-conversations-essential-expressions-for-2024/"><u>[New] Crafting Compelling Conversations Essential Expressions for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-discovering-local-insta-stars-finding-your-niches-top-influencers-for-2024/"><u>[Updated] Discovering Local Insta Stars Finding Your Niche's Top Influencers for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-dynamic-designs-mastering-motion-blur-in-adobe-ai-creations-for-2024/"><u>[Updated] Dynamic Designs Mastering Motion Blur in Adobe AI Creations for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-key-findings-from-leaked-fb-documents/"><u>Analyzing Key Findings From Leaked FB Documents</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-from-iphone-7-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out From iPhone 7 How to Bypass?</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-worlds-facebooks-pivotal-shift-to-becoming-meta/"><u>Connecting Worlds: Facebook's Pivotal Shift to Becoming Meta</u></a></li>
+<li><a href="https://techtrends.techidaily.com/deciding-on-ios-17-upgrade-is-it-the-right-choice-for-you/"><u>Deciding on iOS 17 Upgrade: Is It the Right Choice for You?</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-disappearing-text-feature-in-fb-messenger/"><u>Decoding the Disappearing Text Feature in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/executing-the-perfect-pivot-tearing-down-facebook-business-pages/"><u>Executing the Perfect Pivot: Tearing Down Facebook Business Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-next-gen-tech-fbs-smartwatch-with-potential-for-2-cameras/"><u>Exploring Next-Gen Tech: FB's Smartwatch With Potential for 2 Cameras?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-can-i-unlock-my-iphone-se-2022-after-forgetting-my-pin-code-drfone-by-drfone-ios/"><u>How Can I Unlock My iPhone SE (2022) After Forgetting my PIN Code? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-a-facebook-business-page/"><u>How to Delete a Facebook Business Page</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-video-brand-enhancement-embedding-logoswatermarks-for-youtube-shows/"><u>In 2024, Video Brand Enhancement Embedding Logos/Watermarks for YouTube Shows</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovation-in-connections-top-5-business-centric-networks/"><u>Innovation in Connections: Top 5 Business-Centric Networks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/shing-online-music-potential-with-imovie-and-youtube-for-2024/"><u>Unleashing Online Music Potential with iMovie & YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-a-cryptocurrency-stablecoin/"><u>What Is a Cryptocurrency Stablecoin?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1725285668331-winxdvd/"><u>WinXDVD 專業指導：完美安裝課程</u></a></li>
+</ul></div>
 

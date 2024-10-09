@@ -1,7 +1,7 @@
 ---
 title: How to Unlock Account Without Mobile After Theft
-date: 2024-09-20T21:46:19.164Z
-updated: 2024-09-22T01:06:07.576Z
+date: 2024-10-03T02:54:29.563Z
+updated: 2024-10-08T23:38:32.401Z
 tags:
   - facebook
 categories:
@@ -68,6 +68,13 @@ Your options are:
 
 ![meta backup security method](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/facebook-two-factor-authentication-backup-methods.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Disable Two-Factor Authentication on Facebook Without Your Phone
 
  Assuming you did set up a backup method and you can log in to your Facebook account via a different browser or device, go back to your**Security and Login** settings.
@@ -78,13 +85,6 @@ Your options are:
 
  But what do you do if you don’t have a backup method? There’s no reason to panic because Facebook and a few other tricks have you covered.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Bypass Two-Factor Authentication on Facebook When Locked Out
 
  So, your phone is lost or broken, and you didn’t set up a backup method, but you need to get through your two-factor authentication.
@@ -94,26 +94,26 @@ Your options are:
  In 2023, Facebook removed its trusted contacts feature, but how to remove two-factor authentication on Facebook despite a lost phone still has a few solutions. Here are the best ways to log in without your phone and without your security measures getting in the way.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Log In Through a Recognized Device or Location
 
 ![who has signed into your facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/authorized-logins-list-in-facebook-s-two-factor-authentication-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If you regularly use Facebook on your computer, tablet, and phone, especially with your two-factor authentication active, the app will recognize all these devices and locations. This is why you should check and remember that list.
 
  Go onto any of your other recognized devices, and Facebook will log you in automatically. Then, follow the steps above to disable your two-factor authentication or change its settings.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Provide an Email Address and Form of ID
 
@@ -130,6 +130,19 @@ A window opens that offers the following choices:
  You want the last section, which will start a different process to confirm your identity. On there, click the**Get More Help** button.
 
 ![what happens if you never got a 2fa code meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/facebook-two-factor-authentication-didnt-receive-code-options.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The next window informs you that you will be providing an email address and government-issued ID. You get 13 options for the latter, including:
 
@@ -170,5 +183,24 @@ A window opens that offers the following choices:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-step-up-your-streams-advanced-practices-for-capturing-vr-playtimes-for-2024/"><u>[New] Step Up Your Streams Advanced Practices for Capturing VR Playtimes for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-mini-stories-decoded-whats-inside/"><u>[Updated] Mini Stories Decoded What's Inside?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-optimizing-google-meet-view-with-grids-for-all-attendees-for-2024/"><u>[Updated] Optimizing Google Meet View with Grids for All Attendees for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/broadcasting-on-ig-live-cut-the-clutter/"><u>Broadcasting On IG Live: Cut the Clutter</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/convert-vob-to-avi-without-compromise-discover-the-best-5-techniques-for-free-flawless-transformation/"><u>Convert VOB to AVI Without Compromise: Discover the Best 5 Techniques for Free, Flawless Transformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-queries-gain-friends-insights-via-chats/"><u>Crafting Queries: Gain Friends' Insights via Chats</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/engineering-a-standout-tiktok-endcap-for-2024/"><u>Engineering A Standout TikTok Endcap for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-new-ar-experiences-on-messenger-what-you-can-do-with-them/"><u>Facebook Launches New AR Experiences on Messenger: What You Can Do With Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-share-instagram-reels-to-facebook/"><u>How to Share Instagram Reels to Facebook</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-dvd-burning-on-hard-drive-using-windows-10-or-7-with-winxdvd/"><u>Mastering DVD Burning on Hard Drive Using Windows 10 or 7 with WinXDVD</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-hevc-h-265-on-huawei-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on Huawei , is it possible?</u></a></li>
+<li><a href="https://facebook.techidaily.com/smart-strategies-no-cost-top-10-free-social-management-apps/"><u>Smart Strategies, No Cost - Top 10 Free Social Management Apps</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-complete-blueprint-to-tally-your-youtube-growth-and-income/"><u>The Complete Blueprint to Tally Your YouTube Growth and Income</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-three-step-roadmap-to-efficiently-tag-friends-on-facebook/"><u>The Three-Step Roadmap to Efficiently Tag Friends on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-trio-of-dread-from-metas-social-clout/"><u>The Trio of Dread From Meta’s Social Clout</u></a></li>
+<li><a href="https://facebook.techidaily.com/unauthorized-peek-into-fbs-hidden-realm/"><u>Unauthorized Peek Into Fb's Hidden Realm</u></a></li>
+</ul></div>
 

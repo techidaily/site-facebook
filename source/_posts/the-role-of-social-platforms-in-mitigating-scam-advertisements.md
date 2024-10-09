@@ -1,7 +1,7 @@
 ---
 title: The Role of Social Platforms in Mitigating Scam Advertisements
-date: 2024-09-18T22:09:37.259Z
-updated: 2024-09-21T20:22:38.208Z
+date: 2024-10-02T04:30:28.023Z
+updated: 2024-10-08T17:08:45.870Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ Adam French, Consumer Rights Expert at Which?, said:
 
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Response by Facebook and Google
 
 Facebook and Google both responded to the report by Which?
@@ -69,12 +76,17 @@ Facebook further stated:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-interactive-media-meets-brand-partnerships-on-youtube/"><u>[New] Interactive Media Meets Brand Partnerships on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-mastering-internet-based-live-audio-capture-5-key-strategies-for-2024/"><u>[Updated] Mastering Internet-Based Live Audio Capture 5 Key Strategies for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-hidden-online-connections-on-fb/"><u>Discovering Hidden Online Connections on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/experience-the-world-anywhere-facebooks-mobility-focused-portal/"><u>Experience the World Anywhere: Facebook's Mobility-Focused Portal</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-unstick-windows-update-from-permanent-full-completion-solution/"><u>How to Unstick Windows Update From Permanent Full-Completion - SOLUTION</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-zte-blade-a73-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change ZTE Blade A73 5G Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-top-picks-free-fb-to-mp4-file-transformers/"><u>In 2024, Top Picks Free FB to MP4 File Transformers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-video-to-mp3-everything-you-need-to-know-for-2024/"><u>Instagram Video to Mp3 - Everything You Need to Know for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-multi-app-sign-ins-the-case-for-and-against-using-facebook-login/"><u>Navigating Multi-App Sign-Ins: The Case for & Against Using Facebook Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivating-fb-after-phone-theft-heres-what-to-do/"><u>Reactivating FB After Phone Theft? Here's What to Do</u></a></li>
+</ul></div>
 

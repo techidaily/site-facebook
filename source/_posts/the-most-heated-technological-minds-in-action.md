@@ -1,7 +1,7 @@
 ---
 title: The Most Heated Technological Minds in Action
-date: 2024-09-20T17:18:51.514Z
-updated: 2024-09-21T20:01:02.707Z
+date: 2024-10-03T23:03:41.523Z
+updated: 2024-10-09T02:14:04.063Z
 tags:
   - facebook
 categories:
@@ -58,6 +58,19 @@ thumbnail: https://thmb.techidaily.com/5a836c04a4d923a2e47e122afc97ffb5e93afa98d
 
 ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Best known for:** Founder of WikiLeaks
 
  Julian Assange shot to notoriety in 2010 after publishing a number of classified documents on WikiLeaks. The most damaging leaks involved a series of classified US war logs and diplomatic cables, which prompted high-profile US politicians to label Assange a "terrorist."
@@ -72,16 +85,16 @@ thumbnail: https://thmb.techidaily.com/5a836c04a4d923a2e47e122afc97ffb5e93afa98d
 
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Susan Wojcicki
 
 ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Best known for:** CEO of YouTube
 
@@ -95,16 +108,16 @@ thumbnail: https://thmb.techidaily.com/5a836c04a4d923a2e47e122afc97ffb5e93afa98d
 
  The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Bill Gates
 
 ![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Senator Chris Coons meeting with Bill Gates at the Russell Senate Office Building on November 8, 2019.
 
@@ -117,13 +130,6 @@ thumbnail: https://thmb.techidaily.com/5a836c04a4d923a2e47e122afc97ffb5e93afa98d
  Gates has also been a magnet for conspiracy theories, including the outlandish theory that he promoted the worldwide COVID-19 vaccine rollout as a pretext to inject people with microchips.
 
  Contrary to the many conspiracy theories that paint Gates as a supervillain, his foundation (the Bill & Melinda Gates Foundation) promotes philanthropy to combat disease and poverty worldwide.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Mark Zuckerberg
 
@@ -147,6 +153,19 @@ thumbnail: https://thmb.techidaily.com/5a836c04a4d923a2e47e122afc97ffb5e93afa98d
 
  When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to[delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Least Polarizing Tech Figure?
 
  It is not easy being a public figure. Deciding to do something, or a lack of action, will attract both praise and criticism.
@@ -168,5 +187,19 @@ thumbnail: https://thmb.techidaily.com/5a836c04a4d923a2e47e122afc97ffb5e93afa98d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-creating-heartfelt-youtube-journeys/"><u>[Updated] 2024 Approved Creating Heartfelt YouTube Journeys</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-beyond-social-media-norms-the-distinctive-features-of-triller/"><u>[Updated] Beyond Social Media Norms The Distinctive Features of Triller</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-laying-the-groundwork-for-av1-understanding/"><u>[Updated] Laying The Groundwork for AV1 Understanding</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-greening-the-grid-paving-the-way-for-sustainable-metropolises/"><u>2024 Approved Greening the Grid Paving the Way for Sustainable Metropolises</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-steps-to-downloading-and-updating-hp-officejet-pro-6970-drivers-on-pc/"><u>Easy Steps to Downloading and Updating HP OfficeJet Pro 6970 Drivers on PC</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/elevate-your-reel-game-mastering-attractive-instagram-unboxing-for-2024/"><u>Elevate Your Reel Game Mastering Attractive Instagram Unboxing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-guide-to-discovering-facebook-pages-and-groups-links/"><u>Essential Guide to Discovering Facebook Pages & Groups Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-the-portal-go-making-the-portal-portable-for-the-first-time/"><u>Facebook Launches the Portal Go, Making the Portal Portable for the First Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-users-on-friend-activity-sharing-controls/"><u>Guiding Users on Friend Activity Sharing Controls</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Tecno Pop 7 Pro? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-mute-mysteries-how-to-restore-sound-in-your-valheim-gameplay-on-pc/"><u>Resolving Mute Mysteries: How to Restore Sound in Your Valheim Gameplay on PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-of-integrated-facebook-exploration/"><u>Steering Clear of Integrated Facebook Exploration</u></a></li>
+</ul></div>
 

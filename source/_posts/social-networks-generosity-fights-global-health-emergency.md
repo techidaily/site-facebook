@@ -1,7 +1,7 @@
 ---
 title: Social Network's Generosity Fights Global Health Emergency
-date: 2024-09-30T18:56:00.122Z
-updated: 2024-10-03T20:34:26.514Z
+date: 2024-10-06T21:49:26.730Z
+updated: 2024-10-08T17:59:13.216Z
 tags:
   - facebook
 categories:
@@ -37,16 +37,10 @@ Image Credit: Facebook
  "These fundraisers will support equitable vaccine distribution around the world, reducing the spread of COVID-19 and putting countries on a path to recovery," Facebook notes. Facebook will donate a total of $5 million to the cause.
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Also Aims to Highlight "Trusted Messengers"
@@ -58,10 +52,16 @@ Image Credit: Facebook
 ![Facebook COVID messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-covid-messages.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The platform is teaming up with AARP and Johns Hopkins University's Bloomberg School of Public Health to roll out vaccine-related campaigns in Spanish as well.
@@ -73,10 +73,10 @@ Image Credit: Facebook
  Lastly, Facebook will also be working with UNICEF to promote posts of healthcare workers receiving the vaccine around the globe. By making these posts more visible, Facebook hopes that it will encourage more people to get the vaccine.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Fights for Vaccine Equity
@@ -98,15 +98,16 @@ Image Credit: Facebook
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-comprehensive-guide-to-android-screenshotting/"><u>[New] Comprehensive Guide to Android Screenshotting</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-excellent-replacements-to-top-rated-fbx-recorder-apps/"><u>[Updated] Excellent Replacements to Top-Rated FBX Recorder Apps</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-m1-marvel-a-new-wave-of-smooth-and-efficient-editing/"><u>2024 Approved M1 Marvel A New Wave of Smooth and Efficient Editing</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/decode-408-timeout-a-guide-to-recognizing-and-resolving-this-http-status-code/"><u>Decode '408 Timeout': A Guide to Recognizing & Resolving This HTTP Status Code</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-oneplus-nord-ce-3-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on OnePlus Nord CE 3 5G Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/ray-ban-stories-on-facebook-detailed-overview-and-pricing-info/"><u>Ray-Ban Stories on Facebook - Detailed Overview & Pricing Info</u></a></li>
-<li><a href="https://facebook.techidaily.com/sneak-peek-into-private-digital-discourse-on-fb/"><u>Sneak Peek Into Private Digital Discourse on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailoring-group-specific-polls-on-facebook/"><u>Tailoring Group-Specific Polls on Facebook</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/try-out-the-newly-launched-qbittorrent-50-beta-version-ready-for-testing/"><u>Try Out the Newly Launched qBittorrent 5.0: Beta Version Ready for Testing!</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-power-of-compelling-fb-backgrounds/"><u>Unlocking The Power of Compelling FB Backgrounds</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-ps5xbox-series-x-gaming-sets-the-top-5-list/"><u>[New] PS5/Xbox Series X Gaming Sets The Top 5 List</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-new-horizons-in-video-codecs-comparing-av1-and-vp9/"><u>2024 Approved New Horizons in Video Codecs Comparing Av1 and VP9</u></a></li>
+<li><a href="https://facebook.techidaily.com/after-the-social-giant-your-datas-fate/"><u>After the Social Giant: Your Data's Fate</u></a></li>
+<li><a href="https://facebook.techidaily.com/cracking-the-code-how-many-are-quitting-facebook/"><u>Cracking the Code: How Many Are Quitting Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-erase-and-reset-your-facebook-narrative/"><u>Easy Steps: Erase and Reset Your Facebook Narrative</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Samsung Galaxy A15 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/inside-openai-the-foundation-behind-it-all/"><u>Inside OpenAI: The Foundation Behind It All</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-whats-the-best-green-screen-app-for-mac-weve-got-the-answer-for-2024/"><u>New Whats the Best Green Screen App for Mac? Weve Got the Answer for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/professional-ppt-recording-tactics-and-tricks/"><u>Professional PPT Recording Tactics and Tricks</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-shift-in-development-due-to-ai/"><u>The Shift in Development Due to AI</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-sophisticated-cyber-charades/"><u>Unmasking Sophisticated Cyber Charades</u></a></li>
 </ul></div>
 

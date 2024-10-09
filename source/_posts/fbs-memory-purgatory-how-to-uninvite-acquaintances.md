@@ -1,7 +1,7 @@
 ---
 title: "FB's Memory Purgatory: How to Uninvite Acquaintances"
-date: 2024-09-19T20:06:15.720Z
-updated: 2024-09-21T16:31:26.547Z
+date: 2024-10-07T21:55:19.639Z
+updated: 2024-10-08T21:46:48.458Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,19 @@ thumbnail: https://thmb.techidaily.com/b432bdff253fde3d555eb0e4e70a3a08238022a0a
 
  As Meyer pointed out, there is an algorithm failing here, but there is also a human failing. The human failing was that Facebook pushed this to users without giving them a way to opt-out. But the social site has since introduced ways to do this.
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Block People in Facebook's 'On This Day'
 
 ![Screenshot of Memories on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/memories-home-facebook.jpg)
@@ -56,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/b432bdff253fde3d555eb0e4e70a3a08238022a0a
 
 ![Screenshot Memories on Facebook hide date ranges](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/date-ranges.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Facebook also lets you hide certain dates or entire date ranges. Here's how to do this:
 
 1. On a computer browser, click on**Memories** on the left-hand side of your Facebook home screen.
@@ -66,15 +86,22 @@ thumbnail: https://thmb.techidaily.com/b432bdff253fde3d555eb0e4e70a3a08238022a0a
  That's it, memories from that particular date range won't show up.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Turn Off Facebook Memories Notifications
 
 ![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can[get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
 
@@ -85,19 +112,6 @@ thumbnail: https://thmb.techidaily.com/b432bdff253fde3d555eb0e4e70a3a08238022a0a
  That's really all there is to it. Now you won't see Facebook Memories suggestions in your news feed, but you can still check them out any time by going to the direct URL for[Facebook Memories](https://www.facebook.com/memories/) .
 
  If there are memories you would like to share however, click the Share button under your memories and show them to people. Remember, you don't need to share them publicly, Facebook's[Facebook's photo privacy options](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) let you select the audience.
-
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Learn to Live with Your Past
 
@@ -116,5 +130,18 @@ thumbnail: https://thmb.techidaily.com/b432bdff253fde3d555eb0e4e70a3a08238022a0a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-craft-an-attractive-animation-from-any-video-a-comprehensive-youtube-to-gif-guide/"><u>[Updated] 2024 Approved Craft an Attractive Animation From Any Video - A Comprehensive Youtube-to-GIF Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-advanced-3d-media-player-for-android-users/"><u>[Updated] Advanced 3D Media Player for Android Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-from-beginner-to-pro-transforming-windows-videos-with-minimal-tools-for-2024/"><u>[Updated] From Beginner to Pro Transforming Windows Videos with Minimal Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-surface-speculations-a-balanced-view-on-facebook-revelations/"><u>Beyond Surface Speculations: A Balanced View on Facebook Revelations</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-connections-one-profile-at-a-time-facebooks-redefined-dating-approach/"><u>Building Connections, One Profile at a Time: Facebook's Redefined Dating Approach</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-resolve-freezing-glitches-in-pubg-mobile-version-pc-step-by-step-tips/"><u>How to Resolve Freezing Glitches in PUBG Mobile Version (PC) - Step-by-Step Tips</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-iphone-13-pro-max-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>How to Unlock iPhone 13 Pro Max When We Dont Have Apple ID or Password?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-tecno-camon-20-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Tecno Camon 20?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-from-speech-to-storage-the-recorders-pathway/"><u>In 2024, From Speech to Storage The Recorder's Pathway</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-becoming-an-online-mogul/"><u>Steps to Becoming an Online Mogul</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dark-side-social-networks-popularity-controversy/"><u>The Dark Side: Social Networks' Popularity Controversy</u></a></li>
+</ul></div>
 

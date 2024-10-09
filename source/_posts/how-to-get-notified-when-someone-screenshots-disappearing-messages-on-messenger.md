@@ -1,7 +1,7 @@
 ---
 title: How to Get Notified When Someone Screenshots Disappearing Messages on Messenger
-date: 2024-09-15T21:38:58.106Z
-updated: 2024-09-21T23:52:10.106Z
+date: 2024-10-06T05:00:15.022Z
+updated: 2024-10-08T20:55:47.954Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/a7150b4ff2ea7550c12f390526178357d28d5879c
 
  Meta expects default encryption on Messenger to be[globally implemented by 2023](https://www.makeuseof.com/meta-delays-end-to-end-encryption-until-2023/) , when Instagram and Messenger are also likely to merge.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Activate Screenshot Notifications on Messenger
 
  Because Messenger's end-to-end encryption isn't turned on by default, you have to enable Secret Conversations with each Messenger contact. Both parties must have the latest version of the app. If one party doesn't, they'll have to update the app before this feature can work on their end.
@@ -54,11 +61,32 @@ thumbnail: https://thmb.techidaily.com/a7150b4ff2ea7550c12f390526178357d28d5879c
 
 ![Starting a secret conversation in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery5-2.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Messenger secret conversations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery6-2.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
  Once you do the above, if your chat partner takes a screenshot of your secret conversation before the message disappears, Messenger will immediately let you know.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Other Updates to Messenger
 
@@ -79,12 +107,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-perfecting-your-videos-farewell-scene/"><u>[Updated] In 2024, Perfecting Your Video's Farewell Scene</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-top-audio-tools-for-professional-podcast-creators/"><u>[Updated] Top Audio Tools for Professional Podcast Creators</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/achieve-uninterrupted-gameplay-solutions-for-v-rising-stuttering-problems-on-desktop/"><u>Achieve Uninterrupted Gameplay: Solutions for V Rising Stuttering Problems on Desktop</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-the-issue-steps-to-resolve-your-cs-go-microphone-failure/"><u>Fixing the Issue: Steps to Resolve Your CS: GO Microphone Failure</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/harness-the-power-of-post-production-top-11-techniques-for-vibrant-colors/"><u>Harness the Power of Post-Production Top 11 Techniques for Vibrant Colors</u></a></li>
+<li><a href="https://facebook.techidaily.com/mapping-your-friends-facebooks-new-neighborhood-structure/"><u>Mapping Your Friends: Facebook's New Neighborhood Structure</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/mastering-stable-discord-sound-quality-expert-strategies-and-fixes-for-the-modern-user/"><u>Mastering Stable Discord Sound Quality - Expert Strategies and Fixes for the Modern User</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-level-of-socializing-messengers-new-ar-dimensions/"><u>Next Level of Socializing: Messenger’s New AR Dimensions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/overcoming-educator-apprehension-8-key-advantages-of-artificial-intelligence-for-teachers/"><u>Overcoming Educator Apprehension: 8 Key Advantages of Artificial Intelligence for Teachers</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrospect-significant-stories-from-google/"><u>Retrospect: Significant Stories From Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150243390-securing-communications-in-the-digital-age-facebook-introduces-advanced-end-to-end-encryption-on-direct-messaging-and-calls/"><u>Securing Communications in the Digital Age: Facebook Introduces Advanced End-to-End Encryption on Direct Messaging & Calls.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explorers-blueprint-for-a-complete-analysis-of-every-facebook-interaction/"><u>The Explorer's Blueprint for a Complete Analysis of Every Facebook Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-reason-for-non-visibility-in-app-interactions/"><u>Unveiling the Reason for Non-Visibility in App Interactions</u></a></li>
+</ul></div>
 

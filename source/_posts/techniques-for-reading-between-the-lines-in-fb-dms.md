@@ -1,7 +1,7 @@
 ---
 title: Techniques for Reading Between the Lines in FB DMs
-date: 2024-09-17T22:29:07.764Z
-updated: 2024-09-21T19:40:50.260Z
+date: 2024-10-03T04:21:42.802Z
+updated: 2024-10-09T03:31:46.886Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/a284b8622794b8ba45f3866eaa63e737e0684e210
 
 ![Messenger Stop Hearing From Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Stop-Hearing-From-Person.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You’ll then get a choice to**Delete chat** (good for cleaning up your request inbox) or**Block** the person (useful if they won’t stop messaging you). Either way, the other person won’t be aware you’ve done this.
 
  To delete many requests at once, click the**Pencil** icon above the message list to show checkboxes next to all threads. Check the boxes for each one you want to erase, then choose**Delete** to remove them.
@@ -64,13 +71,6 @@ thumbnail: https://thmb.techidaily.com/a284b8622794b8ba45f3866eaa63e737e0684e210
 
  Note that in addition to the below controls, Facebook will move messages it detects as going against its Community Standards to Spam. In addition, people from Marketplace, Facebook Dating, or a Facebook job post can message you directly.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Potential Connections: Legitimate Requests
 
  In the**Potential Connections** section, you can choose how to handle message requests from**People with your phone number** and**Friends of friends on Facebook** . The former includes anyone who has your[number in their phone and has uploaded it to Facebook](https://www.makeuseof.com/tag/upload-delete-phone-contacts-facebook/) , even if they aren’t Facebook friends with you. This is relevant since you can[use Messenger without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
@@ -78,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/a284b8622794b8ba45f3866eaa63e737e0684e210
  For both of these, opt to have new messages go to**Chats** (your main inbox),**Message requests** , or**Don’t receive requests** to block them.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Other People: Probably Spam
@@ -92,7 +92,21 @@ thumbnail: https://thmb.techidaily.com/a284b8622794b8ba45f3866eaa63e737e0684e210
 
 ![01a Messenger Settings Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01a-Messenger-Settings-Menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![01b Messenger Privacy Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01b-Messenger-Privacy-Menu.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![01c Messenger Message Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01c-Messenger-Message-Delivery.jpg)
 
@@ -108,14 +122,14 @@ Close
 
 ![Messenger Archived Chats](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Archived-Chats.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  This is useful for reducing clutter in your message list, without deleting the thread in case you need it later.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Block People on Facebook Messenger
 
@@ -124,13 +138,6 @@ Close
  This page contains several ways to block people; choose**Block messages** and search for anyone you want to block. These people won’t be able to contact you on Messenger, but can still connect on Facebook. If you don’t want to hear from them at all, add them to the**Block users** list instead. See
 
 ![Facebook Messenger Blocking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Messenger-Blocking.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Seek and Find Hidden Messages on Facebook Messenger
 
@@ -153,5 +160,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-highlight-strategy-guide-10-must-try-tips-for-your-business/"><u>[New] Highlight Strategy Guide 10 Must-Try Tips for Your Business</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-skype-talk-improvement-silence-the-surroundings/"><u>[New] In 2024, Skype Talk Improvement Silence the Surroundings</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-utilizing-obs-in-android-setups-a-beginners-manual-for-2024/"><u>[Updated] Utilizing OBS in Android Setups A Beginner's Manual for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-video-mastery-on-instagram-tips-and-tricks-for-2024/"><u>[Updated] Video Mastery on Instagram Tips and Tricks for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/a-complete-guide-to-troubleshooting-the-windows-camera-app/"><u>A Complete Guide to Troubleshooting the Windows Camera App</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ehensive-directory-of-inexpensive-stock-images/"><u>Comprehensive Directory of Inexpensive Stock Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/focus-on-friendship-not-politics-in-feeds/"><u>Focus on Friendship, Not Politics in Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/gain-peace-of-mind-with-instagrams-whatsapp-2fa-delivery/"><u>Gain Peace of Mind with Instagram's WhatsApp 2FA Delivery</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-infinix-note-30-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Infinix Note 30 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-to-oppo-f25-pro-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Oppo F25 Pro 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-media-livestream-ig-now/"><u>No Media? Livestream IG NOW</u></a></li>
+<li><a href="https://facebook.techidaily.com/peaceful-pages-avoid-political-distractions-on-fb/"><u>Peaceful Pages: Avoid Political Distractions on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-secrets-within-fb-chat-rooms/"><u>Safeguarding Secrets Within FB Chat Rooms</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-removing-your-fb-search-footprints/"><u>Step-By-Step: Removing Your FB Search Footprints</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-what-lies-beneath-in-fbs-documentation/"><u>Unveiling What Lies Beneath in FB's Documentation</u></a></li>
+</ul></div>
 

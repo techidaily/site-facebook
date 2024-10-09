@@ -1,7 +1,7 @@
 ---
 title: "Strategies: Noticing and Acting upon Minor User Details, FB"
-date: 2024-10-02T20:26:34.447Z
-updated: 2024-10-03T18:03:46.082Z
+date: 2024-10-07T17:31:32.014Z
+updated: 2024-10-09T03:34:53.578Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 
  Facebook might need your help or verification proof to proceed with the report. For recovery, the underage account must submit details like official documents or evidence of identity. Failure to do so will result in the account being permanently disabled.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Request Data of Your Underage Child's Facebook Account From Facebook
 
  As a parent, you might allow kids to use Facebook. However, there is always a peak of interest in knowing what the child is doing on the app. Facebook understands parents' mindsets and the need to keep tabs.
@@ -56,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 ![Add details for child data request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-for-child-data-request-form.jpg)
 5. Pick the age range of your child. You will see**Under 13** and**13 and Over** options.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6. From the following drop-down menu, choose the year your child was born.
 7. Select the attested documentation under the Notarized Statement tab.
 8. Add your first and last name, email address, and country of residence.
@@ -67,29 +81,9 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 
  Letting an underage child use Facebook might not feel dangerous to some people, but there are some genuine grounds to avoid it. Here are some reasons why you should report a Facebook account owned by an underage person.
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Facebook Can Be Addictive
 
 ![Children using electronic devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Children-using-phones.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Social media addiction is real](https://www.makeuseof.com/what-is-social-media-addiction/) , and exposing your children to Facebook at an early age might trigger their minds to use the app for a long time. Initially, trying out the endless Facebook features can be exciting, but the addiction can slowly grow and start getting to you.
 
@@ -101,16 +95,16 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 
  It can start with intimidating messages and threats. Other kids from school can also approach children in an attempt to mistreat them.[Messenger Kids is a relatively safer](https://www.makeuseof.com/is-messenger-kids-safe-children/) and more convenient option for parents to keep tabs on their children.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### It Can Worsen Mental Health Issues
 
 ![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Children can face mental health issues, just like adults. Research has shown that regular use of Facebook might affect underage users' self-esteem. Looking at the so-called fake perfection on social media can make them constantly compare themselves with others and negatively impact their mind.
 
@@ -123,10 +117,10 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 ###
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Say No to Underage Facebook Accounts
@@ -150,22 +144,19 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/from-old-labels-to-new-beginnings-your-complete-guide-to-facebook-name-modification/"><u>From Old Labels to New Beginnings: Your Complete Guide to Facebook Name Modification</u></a></li>
-<li><a href="https://fox-that.techidaily.com/guide-to-fixing-hitches-when-sharing-subscriptions-with-your-loved-ones/"><u>Guide to Fixing Hitches When Sharing Subscriptions with Your Loved Ones</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/how-to-install-latest-amd-drivers-on-windows-11107/"><u>How to Install Latest AMD Drivers on Windows 11/10/7</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-xcover-7-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Samsung Galaxy XCover 7 Phone Without Password?</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-paving-digital-pathways-for-ig-and-tiktok/"><u>In 2024, Paving Digital Pathways for IG & TikTok</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-recording-winning-calls-a-complete-guide-free-vs-paid-for-windows-and-mac-users/"><u>In 2024, Recording Winning Calls A Complete Guide (Free vs Paid) for Windows & Mac Users</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Poco X5 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/invisible-layers-for-your-facebook-images/"><u>Invisible Layers for Your Facebook Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-hidden-landscape-of-digital-interactions/"><u>Navigating the Hidden Landscape of Digital Interactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimize-your-social-media-experience-a-dive-into-facebooks-upgraded-privacy-hub/"><u>Optimize Your Social Media Experience: A Dive Into Facebook’s Upgraded Privacy Hub</u></a></li>
-<li><a href="https://win11.techidaily.com/supercharge-your-win11-connectivity-9-remarkable-tips-to-try/"><u>Supercharge Your Win11 Connectivity: 9 Remarkable Tips to Try</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-implications-of-integrating-meta-ai-into-instagramfacebook/"><u>The Implications of Integrating Meta AI Into Instagram/Facebook</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/tips-for-perfect-iptv-stream-snapping/"><u>Tips for Perfect IPTV Stream Snapping</u></a></li>
-<li><a href="https://facebook.techidaily.com/turn-on-dark-theme-in-facebook-settings/"><u>Turn On Dark Theme in Facebook Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-dread-in-the-facebook-virtual-world/"><u>Understanding Dread in the Facebook Virtual World</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/unlock-zooms-full-power-with-share-screen-expertise-for-2024/"><u>Unlock Zoom’s Full Power with Share Screen Expertise for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/untangle-issues-keeping-facebook-unavailable/"><u>Untangle Issues Keeping Facebook Unavailable</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-unveiling-the-most-effective-zoom-recording-tools-for-2024/"><u>[New] Unveiling the Most Effective Zoom Recording Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-dates-on-facebooks-nostalgic-moments/"><u>Blocking Dates on Facebook's Nostalgic Moments</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-securityfacebookmailcom-be-trusted-for-fb-safety/"><u>Can Security@facebookmail.com Be Trusted for FB Safety?</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectors-guide-to-facebooks-emerging-zones/"><u>Connectors' Guide to Facebook’s Emerging Zones</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-private-visual-footprint-on-facebook/"><u>Crafting a Private Visual Footprint on Facebook</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-nvidia-quadro-drivers-and-software-for-windows-10-official-dch-drivers/"><u>Download NVIDIA Quadro Drivers & Software for Windows 10 - Official DCH Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152839748-heres-what-facebooks-new-page-labels-mean/"><u>Here's What Facebook's New Page Labels Mean</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-your-tecno-spark-20-pro-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Tecno Spark 20 Pro Lock Screen Password</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Vivo Y100A? | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/mastering-driver-updates-on-the-hp-envy-2n-pc-series-a-user-friendly-guide/"><u>Mastering Driver Updates on the HP ENVY 2N PC Series - A User-Friendly Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-messages-after-s18-pro-has-been-deleted-by-fonelab-android-recover-messages/"><u>Recover your messages after S18 Pro has been deleted</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-to-fix-scroll-pad-issues-in-windows-11-for-enhanced-user-experience/"><u>Step-by-Step Guide to Fix Scroll Pad Issues in Windows 11 for Enhanced User Experience</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-6-plus-drfone-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nail-design-101-for-video-promotion-on-youtube/"><u>Thumbnail Design 101 for Video Promotion on YouTube</u></a></li>
 </ul></div>
 

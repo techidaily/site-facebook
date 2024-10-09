@@ -1,7 +1,7 @@
 ---
 title: Mastering the Art of Selective Social Media Use
-date: 2024-09-14T19:12:25.189Z
-updated: 2024-09-21T22:15:31.814Z
+date: 2024-10-06T02:06:13.396Z
+updated: 2024-10-09T00:05:14.471Z
 tags:
   - facebook
 categories:
@@ -42,11 +42,25 @@ thumbnail: https://thmb.techidaily.com/786e0982cfdee2d5f20c6d4b4308fc64b7f3b17fc
 
  Once your account has been deactivated, the platform does not let others[tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### No Notifications
 
  If you deactivate your Facebook account, you won’t be receiving Facebook notifications anymore.
 
  You can even opt out of or adjust receiving email notifications for a deactivated account. This gives you time to relax and relieves the stress of opening the app every now and then.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Adjusted Messages and Comments
 
@@ -59,10 +73,16 @@ thumbnail: https://thmb.techidaily.com/786e0982cfdee2d5f20c6d4b4308fc64b7f3b17fc
  Taking time off from Facebook seems like an effective stress reliever, right? But you should follow the proper steps. Here is how you can deactivate your Facebook account through the mobile app and desktop:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Via Mobile
@@ -73,16 +93,16 @@ thumbnail: https://thmb.techidaily.com/786e0982cfdee2d5f20c6d4b4308fc64b7f3b17fc
 
 ![Personal and account information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-and-account-information.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Deactivation and deletion of Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivation-and-deletion-of-Facebook-account.JPG)
 
 ![Deactivate your Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivate-your-Facebook-account.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Reason for deactivating Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Reason-for-deactivating-Facebook-account.JPG)
 
@@ -114,14 +134,22 @@ Close
 3. Click**Settings & Privacy** to open a new menu and select**Settings** .  
 ![Facebook Settings and Privacy desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Settings-and-Privacy-desktop.jpg)
 4. From the menu on your left, navigate to**Privacy** and click**Your Facebook Information** . This section contains all the settings to delete the account or download your information.  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Personal Account Information of Facebook on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-Account-Information-of-Facebook-on-desktop.jpg)
 5. Scroll down to**Deactivation and Deletion** and press**View** .
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. In this section, you can deactivate or delete your account. Select the**Deactivate Account** option, and tap**Continue to Account Deactivation** .  
@@ -131,22 +159,8 @@ Close
 ![Reason for deactivating Facebook account desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Reason-for-deactivating-Facebook-account-desktop.jpg)
 4. Scroll down and check to**Opt out of receiving future emails from Facebook** to block notifications.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 5. Select**Deactivate** , and you’ll be logged out of Facebook.  
 ![Choose to deactivate account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Choose-to-deactivate-account.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You can use a similar method to deactivate Facebook using a browser on a mobile phone or a Chromebook.
 
@@ -179,5 +193,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-secrets-to-unlocking-costless-image-streams/"><u>[New] 2024 Approved Secrets to Unlocking Costless Image Streams</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-ultimate-hd-video-memory-creators/"><u>[New] In 2024, Ultimate HD Video Memory Creators</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-unlock-the-power-of-fb-conversation-capture-tools/"><u>[Updated] Unlock the Power of FB Conversation Capture Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725286054571-digiarty/"><u>DigiArty プログラムでお客様がご利用の可能性のある違反品の返金方法【公式】</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-assistance-unveiling-its-capabilities/"><u>Facebook Assistance: Unveiling Its Capabilities</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-assembling-channel-summaries-that-attract/"><u>In 2024, Assembling Channel Summaries That Attract</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Samsung Galaxy S23+ | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-sports-season-with-fb-and-twt/"><u>Interactive Sports Season with FB & Twt</u></a></li>
+<li><a href="https://facebook.techidaily.com/narrating-visuals-auto-captioning-for-instagram-and-fb/"><u>Narrating Visuals: Auto-Captioning for Instagram & FB</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigating-through-technology-the-toms-hardware-guide-to-pc-excellence/"><u>Navigating Through Technology: The Tom's Hardware Guide to PC Excellence</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-11-typical-facebook-snags-and-their-fixes/"><u>Overcoming 11 Typical Facebook Snags and Their Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-evolved-should-we-consider-meta-ais-entry/"><u>Social Networking Evolved: Should We Consider Meta AI's Entry?</u></a></li>
+<li><a href="https://facebook.techidaily.com/suspicious-signs-of-pc-or-email-overuse/"><u>Suspicious Signs of PC or Email Overuse</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secret-to-riches-5-innovative-money-making-methods-on-social-networks/"><u>The Secret to Riches: 5 Innovative Money-Making Methods on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/undervalued-tech-developments-top-4-silent-game-changers/"><u>Undervalued Tech Developments - Top 4 Silent Game Changers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/unveiling-advanced-game-recording-techniques-in-windows-11/"><u>Unveiling Advanced Game Recording Techniques in Windows 11</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-windows-10-webcam-recording-made-easy-top-10-software-picks/"><u>Updated 2024 Approved Windows 10 Webcam Recording Made Easy Top 10 Software Picks</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Personalize Your Playlists Anywhere - FB's Mini-Panel Feature, Spotify
-date: 2024-10-02T17:34:16.814Z
-updated: 2024-10-03T18:08:40.064Z
+date: 2024-10-03T16:35:08.183Z
+updated: 2024-10-08T19:35:04.529Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
  Spotify’s miniplayer has already launched in the US, Canada, Australia, and in 25 other countries. Spotify is planning to expand this feature to more countries over the following months.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Listen to Spotify Songs Through the Facebook Miniplayer
@@ -60,19 +60,19 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -82,10 +82,10 @@ Close
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## More Audio Features Are Coming Soon
@@ -109,24 +109,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-web-warriors-championing-screen-recording-tools/"><u>[Updated] 2024 Approved Web Warriors Championing Screen Recording Tools</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-dslr-and-mirrorless-excellence-with-ideal-gimbals/"><u>[Updated] In 2024, DSLR & Mirrorless Excellence with Ideal Gimbals</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-grasping-av1-starters-guidebook/"><u>[Updated] In 2024, Grasping AV1 Starter's Guidebook</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-sony-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Sony</u></a></li>
-<li><a href="https://app-tips.techidaily.com/edit-pdf-documents-at-no-cost-with-google-docs-a-step-by-step-tutorial/"><u>Edit PDF Documents at No Cost with Google Docs: A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://facebook.techidaily.com/fake-friend-alerts-on-facebook/"><u>Fake Friend Alerts on Facebook</u></a></li>
-<li><a href="https://techidaily.com/hard-reset-xiaomi-redmi-note-13-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Xiaomi Redmi Note 13 5G in 3 Efficient Ways | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-reset-your-social-media-browsing-history/"><u>How to Reset Your Social Media Browsing History</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-clearframew11-easy-instant-screen-recording-for-windows/"><u>In 2024, ClearFrameW11 Easy, Instant Screen Recording for Windows</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-lightning-fast-photo-reader-for-pcs/"><u>In 2024, Lightning-Fast Photo Reader for PCs</u></a></li>
-<li><a href="https://facebook.techidaily.com/maintain-anonymity-no-more-public-likes-on-social-sites/"><u>Maintain Anonymity: No More Public Likes on Social Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-the-unstoppable-social-giant/"><u>Meta: The Unstoppable Social Giant</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-to-past-facebook-entries/"><u>Navigating to Past Facebook Entries</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-make-movies-like-a-pro-insider-secrets-for-achieving-professional-results/"><u>New In 2024, Make Movies Like a Pro Insider Secrets for Achieving Professional Results</u></a></li>
-<li><a href="https://common-error.techidaily.com/optimizing-memory-management-executables-impact-on-your-pc-windows-10/"><u>Optimizing Memory Management Executable's Impact on Your PC [WINDOWS 10]</u></a></li>
-<li><a href="https://facebook.techidaily.com/setting-up-portals-for-seamless-video-chats/"><u>Setting Up Portals for Seamless Video Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-xbox-guide-to-weaving-a-web-of-social-network-ties/"><u>The Xbox Guide to Weaving a Web of Social Network Ties</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-effects-of-filtering-on-consumers/"><u>Unveiling the Effects of Filtering on Consumers</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-do-so-many-people-hate-facebook/"><u>Why Do So Many People Hate Facebook?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-best-online-houses-purchasing-unique-tailored-boxed-gifts/"><u>[Updated] Best Online Houses Purchasing Unique, Tailored Boxed Gifts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-interpreting-second-duration-from-mb-content/"><u>2024 Approved Interpreting Second Duration From MB Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-scaling-your-income-with-beauty-tutorials/"><u>2024 Approved Scaling Your Income with Beauty Tutorials</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-practices-for-drone-cinematography-for-2024/"><u>Best Practices for Drone Cinematography for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/bluetooth-woes-no-more-effective-solutions-for-windows-users-facing-mouse-connectivity-problems/"><u>Bluetooth Woes No More: Effective Solutions for Windows Users Facing Mouse Connectivity Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-blueprint-for-worldwide-ai-dominance/"><u>Decoding Meta's Blueprint for Worldwide AI Dominance</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-amazon-lawsuit-against-facebook-group-admins/"><u>Dissecting the Amazon Lawsuit Against Facebook Group Admins</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/enhance-your-analytics-through-advanced-cookiebot-driven-solutions/"><u>Enhance Your Analytics Through Advanced Cookiebot-Driven Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-evolutionary-impact-on-society/"><u>Facebook's Evolutionary Impact on Society</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-clear-social-media-chatter-deleting-comments-effortlessly/"><u>How to Clear Social Media Chatter: Deleting Comments Effortlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/imposter-in-the-network-social-scam-alert/"><u>Imposter in the Network: Social Scam Alert</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-oneplus-nord-ce-3-lite-5g-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your OnePlus Nord CE 3 Lite 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/learning-on-film-school-vid-editing-best-practices-for-2024/"><u>Learning on Film School Vid Editing Best Practices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-resolving-stalled-fb-notifications/"><u>Techniques for Resolving Stalled FB Notifications</u></a></li>
 </ul></div>
 

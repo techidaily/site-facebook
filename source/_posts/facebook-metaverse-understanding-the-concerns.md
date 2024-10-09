@@ -1,7 +1,7 @@
 ---
 title: "Facebook Metaverse: Understanding the Concerns"
-date: 2024-09-18T18:08:38.758Z
-updated: 2024-09-21T20:03:59.072Z
+date: 2024-10-02T18:58:56.128Z
+updated: 2024-10-09T00:00:00.207Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/8ff514e7ae8e73f00c632257f00b6aefbc08dc01d
 
 ![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Facebook's poor privacy practices](http://www.makeuseof.com/tag/facebook-security-privacy-nightmare/) have always been a subject of concern. One of the most high-profile examples was the Cambridge Analytica scandal of 2018.
 
  Although most Big Tech players like Amazon and Google aren't innocent of data collection, Meta stands out because of the kind of data it has access to. After buying WhatsApp and Instagram, the company has one of the largest databases of personally identifying data of any company.
@@ -60,9 +67,23 @@ thumbnail: https://thmb.techidaily.com/8ff514e7ae8e73f00c632257f00b6aefbc08dc01d
 
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Another Digital Addiction for Gen Z
 
 ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
 
@@ -77,28 +98,15 @@ thumbnail: https://thmb.techidaily.com/8ff514e7ae8e73f00c632257f00b6aefbc08dc01d
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
@@ -131,5 +139,19 @@ thumbnail: https://thmb.techidaily.com/8ff514e7ae8e73f00c632257f00b6aefbc08dc01d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-captivating-cuts-editor-apps-that-liberate-android-users/"><u>[New] Captivating Cuts Editor Apps That Liberate Android Users</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-integrating-twitter-feed-into-your-whatsapp-conversations/"><u>[New] Integrating Twitter Feed Into Your WhatsApp Conversations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-holistic-motion-analysis-2023/"><u>2024 Approved Holistic Motion Analysis 2023</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/oggmp3-movavi/"><u>免費移動網路改變OGG成MP3 - 利用Movavi解決方案</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-through-the-competition-with-unique-facebook-reels/"><u>Break Through the Competition with Unique Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-data-step-by-step-photovideo-save/"><u>Decoding Facebook's Data – Step by Step Photo/Video Save</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/driven-with-innovative-cookiebot-technology/"><u>Driven with Innovative Cookiebot Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/essentials-of-message-icons-on-social-media-platforms-like-fb/"><u>Essentials of Message Icons on Social Media Platforms Like FB</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/hubsan-h501s-x4-fpv-quadcopter-review/"><u>Hubsan H501S X4 FPV Quadcopter Review</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/mastering-anamorphic-video-conversion-with-handbrake-tips-and-tricks-for-enhanced-cinematic-quality/"><u>Mastering Anamorphic Video Conversion with HandBrake: Tips and Tricks for Enhanced Cinematic Quality.</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/troubleshooting-instagrams-rotating-videos/"><u>Troubleshooting Instagram's Rotating Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapps-operations-remain-intact-despite-denial-of-new-privacy-policies/"><u>WhatsApp's Operations Remain Intact Despite Denial of New Privacy Policies</u></a></li>
+</ul></div>
 

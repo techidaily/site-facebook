@@ -1,7 +1,7 @@
 ---
 title: "Uncertain Times: What Lies in Store for FB?"
-date: 2024-09-17T21:38:15.364Z
-updated: 2024-09-21T17:38:38.705Z
+date: 2024-10-07T18:49:46.403Z
+updated: 2024-10-09T02:20:35.807Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/32e2647cfec7540fd7d33c1c66a7dde730efec283
 
  That's because Facebook had caught wind of an upcoming, coordinated release of the leaked documents from Haugen by a consortium of reporters. In the memo, Clegg encouraged employees to, “listen and learn from criticism when it is fair, and push back strongly when it is not.”
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Who Is the Facebook Whistleblower?
 
  The Facebook whistleblower is Frances Haugen, a 37-year-old woman and data scientist from Iowa. Haugen was a product manager on the Civic Integrity team at Facebook. Before joining Facebook, she worked for big tech companies like Google and Pinterest for nearly two decades.
@@ -50,9 +57,23 @@ thumbnail: https://thmb.techidaily.com/32e2647cfec7540fd7d33c1c66a7dde730efec283
 
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Is the Facebook Consortium?
 
 ![A visual showing manager instructing resources](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Asana-Reporting-Resource-Management.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The Facebook Consortium is a group of reporters tasked with releasing information from copies of leaked documents from Haugen. These include publications like the Associated Press, The New York Times, The Washington Post, and CNN. A few European outlets are also included.
 
@@ -63,10 +84,10 @@ thumbnail: https://thmb.techidaily.com/32e2647cfec7540fd7d33c1c66a7dde730efec283
  However, that plan fell apart when some outlets contacted Facebook shortly after receiving the documents on October 10, 2021, after which the rest of the news outlets—including The New York Times, CNN, NBC News, and Bloomberg—started publishing their stories.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can Facebook Overcome This Storm?
@@ -88,5 +109,16 @@ thumbnail: https://thmb.techidaily.com/32e2647cfec7540fd7d33c1c66a7dde730efec283
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-details-on-creating-effective-yt-shorts/"><u>[New] 2024 Approved Essential Details on Creating Effective YT Shorts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-expert-choices-best-video-cards-for-youtubes-clearest-output/"><u>[New] 2024 Approved Expert Choices Best Video Cards for YouTube's Clearest Output</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-youtube-to-igtv-migration-step-by-step-guide/"><u>[New] In 2024, YouTube-to-IGTV Migration Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternative-communication-tools-stepping-away-from-fb-messenger/"><u>Alternative Communication Tools: Stepping Away From FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-your-facebook-outage-rationale/"><u>Decoding Your Facebook Outage Rationale</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-new-beats-with-miniplayer-spotify-meets-facebook/"><u>Discover New Beats with Miniplayer: Spotify Meets Facebook</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-digital-personas-set-to-revolutionize-vr/"><u>Tailored Digital Personas Set to Revolutionize VR</u></a></li>
+</ul></div>
 

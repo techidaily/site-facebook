@@ -1,7 +1,7 @@
 ---
 title: "Spotify Miniplayer: A Compact Music Haven Within FB App"
-date: 2024-09-30T22:16:50.093Z
-updated: 2024-10-03T22:35:57.627Z
+date: 2024-10-03T02:51:49.367Z
+updated: 2024-10-09T05:03:55.518Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
  Spotify’s miniplayer has already launched in the US, Canada, Australia, and in 25 other countries. Spotify is planning to expand this feature to more countries over the following months.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Listen to Spotify Songs Through the Facebook Miniplayer
@@ -60,19 +60,19 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -82,10 +82,10 @@ Close
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## More Audio Features Are Coming Soon
@@ -109,19 +109,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/updated-in-2024-the-ultimate-guide-for-emoji-laden-discord-statements/"><u>[Updated] In 2024, The Ultimate Guide for Emoji-Laden Discord Statements</u></a></li>
-<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-realme-c33-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Apple iPhone 7? | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/ophelie-bellevita-professional-photography-showcase-by-movavi/"><u>Ophélie Bellevita - Professional Photography Showcase by Movavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimizing-online-image-content-via-alt-text-techniques/"><u>Optimizing Online Image Content via Alt Text Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/reel-riches-understanding-metas-monetary-mechanisms-for-artists/"><u>Reel Riches: Understanding Meta’s Monetary Mechanisms for Artists</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/score-greatest-ipad-offers-of-the-year-limited-time-savings-inside/"><u>Score Greatest iPad Offers of the Year - Limited-Time Savings Inside</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-problem-why-your-steam-updates-wont-download/"><u>Solving the Problem: Why Your Steam Updates Won't Download</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-keeping-like-count-secretive-fbig-edition/"><u>The Art of Keeping Like Count Secretive: FB/IG Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-balance-of-comedy-and-courtesy-online/"><u>The Balance of Comedy and Courtesy Online</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/unselect-recommended-podcasts-efficiently-on-spotify-for-2024/"><u>Unselect Recommended Podcasts Efficiently on Spotify for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-s-best-ipad-video-editing-tools-a-comprehensive-review-for-2024/"><u>Updated S Best iPad Video Editing Tools A Comprehensive Review for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-did-my-facebook-profile-vanish-top-reasons/"><u>Why Did My Facebook Profile Vanish? Top Reasons</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/windows-movie-maker-vs-movavi-video-editor-a-comprehensive-feature-and-performance-showdown/"><u>Windows Movie Maker Vs. Movavi Video Editor: A Comprehensive Feature and Performance Showdown</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-shot-selection-mastery-making-every-frame-count-on-youtube/"><u>[Updated] 2024 Approved Shot Selection Mastery Making Every Frame Count on YouTube</u></a></li>
+<li><a href="https://techtrends.techidaily.com/analyzing-the-resilience-and-functionality-of-evs-in-harsh-thermal-environments/"><u>Analyzing the Resilience and Functionality of EVs in Harsh Thermal Environments</u></a></li>
+<li><a href="https://facebook.techidaily.com/awaiting-judgement-social-media-governance-board-vs-trump-ban/"><u>Awaiting Judgement: Social Media Governance Board Vs. Trump Ban.</u></a></li>
+<li><a href="https://facebook.techidaily.com/chat-charisma-enhancing-with-bold-and-italic-styles/"><u>Chat Charisma: Enhancing with Bold and Italic Styles</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-digital-giant-understanding-vk-in-russia/"><u>Decoding the Digital Giant: Understanding VK in Russia</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/effortless-installation-of-scansnap-s1300i-driver-update-now/"><u>Effortless Installation of ScanSnap S1300i Driver Update Now!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/explore-the-upgraded-evolution-of-apples-airpod-lineup-the-4-most-notable-features-revealed/"><u>Explore the Upgraded Evolution of Apple's AirPod Lineup - The 4 Most Notable Features Revealed</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/free-download-full-version-of-pdf-repair-software-stellar-by-stellar-guide/"><u>Free Download - Full Version of PDF Repair Software | Stellar</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-connectivity-facebook-unveils-new-subscription-link-methods/"><u>Innovating Connectivity: Facebook Unveils New Subscription Link Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-likes-why-less-is-more-on-social-sites/"><u>Life Without Likes: Why Less Is More on Social Sites</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/master-the-art-of-sound-alteration-on-sony-games-for-2024/"><u>Master the Art of Sound Alteration on Sony Games for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/maximizing-collaboration-with-zoom-meeting-recordings-for-2024/"><u>Maximizing Collaboration with Zoom Meeting Recordings for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-reconnection-on-social-networks/"><u>Navigating Reconnection on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-cyber-spaces-permit-negative-feedback/"><u>Should Cyber Spaces Permit Negative Feedback?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-mastery-for-your-career-journey/"><u>Social Networking Mastery for Your Career Journey</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/subtitles-that-shine-discover-the-best-free-online-tools/"><u>Subtitles That Shine - Discover the Best Free Online Tools</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-and-optimizing-slow-boots-in-windows-7-systems/"><u>Troubleshooting and Optimizing Slow Boots in Windows 7 Systems</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Filter Bubble Bill: A Closer Look"
-date: 2024-09-16T16:35:59.560Z
-updated: 2024-09-21T21:23:23.682Z
+date: 2024-10-03T18:52:21.883Z
+updated: 2024-10-08T16:18:04.188Z
 tags:
   - facebook
 categories:
@@ -50,15 +50,36 @@ thumbnail: https://thmb.techidaily.com/46bc9e67353768ac792e1534a64f3c2875130c736
 
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How the Filter Bubble Transparency Act Could Affect You
 
 ![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The bill means that instead of a personalized news feed, you could have the option to choose between that and a feed showing you posts as they appear on apps like Facebook and Instagram—much like on Twitter.
 
 [Twitter's tab-switching feature](https://www.makeuseof.com/twitter-switch-between-top-and-latest-tweets/) makes it easy for you to choose and switch between an algorithmic feed and a feed showing you the latest tweets on your timeline.
 
  This, and giving users an option to opt out of a personalized algorithm, sounds more realistic, at least for now until tech giants can improve their algorithms.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Will Personalized Algorithms Become a Thing of the Past?
 
@@ -79,12 +100,26 @@ thumbnail: https://thmb.techidaily.com/46bc9e67353768ac792e1534a64f3c2875130c736
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-crafting-immersive-video-experiences-using-captivate-for-2024/"><u>[New] Crafting Immersive Video Experiences Using Captivate for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-efficiently-tagging-dates-in-image-files/"><u>[Updated] In 2024, Efficiently Tagging Dates in Image Files</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-photo-deformation-masterclass-essentials/"><u>[Updated] Photo Deformation Masterclass Essentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-news-feed-curation-by-fb/"><u>Behind-the-Scenes of News Feed Curation by FB</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/capturing-the-best-visuals-in-vlogs-for-2024/"><u>Capturing the Best Visuals in Vlogs for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/comparing-cloud-providers-who-offers-what-price/"><u>Comparing Cloud Providers Who Offers What Price</u></a></li>
+<li><a href="https://facebook.techidaily.com/effectively-tapping-into-facebook-on-this-day/"><u>Effectively Tapping Into Facebook On This Day</u></a></li>
+<li><a href="https://win-dash.techidaily.com/epson-l3110-printer-software-download-compatible-with-windows-11-10-and-7/"><u>Epson L3110 Printer Software Download: Compatible with Windows 11, 10 & 7</u></a></li>
+<li><a href="https://facebook.techidaily.com/expect-an-uptick-in-crypto-advertising-on-platforms-like-facebook-and-instagram/"><u>Expect an Uptick in Crypto Advertising on Platforms Like Facebook & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-picture-to-persona-integrating-an-avatar-into-your-fb-cover/"><u>From Picture to Persona: Integrating an Avatar Into Your FB Cover</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-adopting-nature-positive-policies-in-urban-governance/"><u>In 2024, Adopting Nature-Positive Policies in Urban Governance</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-tecno-spark-go-2024-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Tecno Spark Go (2024) Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-strategic-posts-private-establishing-a-customized-fb-visibility-list/"><u>Keep Strategic Posts Private: Establishing a Customized FB Visibility List</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-trend-instagram-2fa-codes-via-whatsapp-link/"><u>New Trend: Instagram 2FA Codes via WhatsApp Link</u></a></li>
+<li><a href="https://facebook.techidaily.com/peek-into-facebook-bonds-history-of-connections/"><u>Peek Into Facebook Bonds: History of Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/reach-for-spotify-anywhere-even-the-miniplayer/"><u>Reach for Spotify Anywhere, Even the Miniplayer</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solution-fix-headphones-when-audio-streams-through-speakers-instead/"><u>Solution: Fix Headphones when Audio Streams Through Speakers Instead</u></a></li>
+<li><a href="https://facebook.techidaily.com/tapping-into-resources-from-facebooks-help-center/"><u>Tapping Into Resources From Facebook's Help Center</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/virtual-vanguard-over-a-hundred-games-galore-for-2024/"><u>Virtual Vanguard Over a Hundred Games Galore for 2024</u></a></li>
+</ul></div>
 

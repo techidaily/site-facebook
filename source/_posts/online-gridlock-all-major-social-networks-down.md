@@ -1,7 +1,7 @@
 ---
 title: "Online Gridlock: All Major Social Networks Down"
-date: 2024-09-27T17:04:36.762Z
-updated: 2024-10-03T19:02:12.994Z
+date: 2024-10-03T00:53:41.379Z
+updated: 2024-10-09T00:47:06.926Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Facebook Down? Is Facebook Up Yet?
@@ -55,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
 
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### What Are BGP Routes?
 
  Facebook is down because it has withdrawn its BGP routes from the internet. But, what is a BGP route, anyway?
@@ -66,10 +73,10 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
@@ -77,10 +84,10 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Hashtag #facebookdown Trends on Twitter
@@ -88,13 +95,6 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  Within minutes of Facebook, WhatsApp, and Instagram going down, the hashtag #facebookdown was trending on Twitter, amassing hundreds of thousands of tweets. #whatsappdown and #instadown also shot to the top of the Twitter trending charts as panicked users flocked en masse to the social network in an attempt to find out why Facebook is down.
 
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
 
@@ -117,16 +117,16 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-captivate-audiences-with-perfectly-tailored-youtube-descriptions/"><u>[New] 2024 Approved Captivate Audiences with Perfectly Tailored Youtube Descriptions</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-cutting-edge-tools-for-seamless-vimeo-video-download/"><u>[New] Cutting-Edge Tools for Seamless Vimeo Video Download</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-unlock-video-potential-leading-tools-turning-youtubes-to-avis/"><u>[Updated] Unlock Video Potential Leading Tools Turning YouTubes to Avis</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-lava-blaze-curve-5g-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Lava Blaze Curve 5G?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/easy-mp3-snippet-from-fb-chats-for-2024/"><u>Easy MP3 Snippet From FB Chats for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-itel-p40plus-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Itel P40+ Without PUK Codes</u></a></li>
-<li><a href="https://facebook.techidaily.com/reason-behind-my-curated-list-of-fb-ads/"><u>Reason Behind My Curated List of Fb Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/should-you-use-facebook-events-the-pros-and-cons-explained/"><u>Should You Use Facebook Events? The Pros and Cons Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-virtual-world-of-expats-balancing-the-scales-with-facebook-groups/"><u>The Virtual World of Expats: Balancing the Scales with Facebook Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-non-facebook-direct-messaging-methods/"><u>Unlocking Non-Facebook Direct Messaging Methods</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unveiling-best-overlooked-free-speech-tools-for-mac/"><u>Unveiling Best Overlooked Free Speech Tools for Mac</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-streamlining-your-monetization-mastering-youtube-adsense/"><u>[New] 2024 Approved Streamlining Your Monetization Mastering YouTube AdSense</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-cutting-edge-identifying-instagram-leavers/"><u>[Updated] 2024 Approved Cutting Edge Identifying Instagram Leavers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-how-to-expertly-record-and-save-your-favorite-hulu-shows-for-2024/"><u>[Updated] How To Expertly Record and Save Your Favorite Hulu Shows for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-master-your-images-top-15-instagram-downloader-apps-for-2024/"><u>[Updated] Master Your Images Top 15 Instagram Downloader Apps for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unveiling-enhancements-in-sonys-s6500-bdhd-player/"><u>[Updated] Unveiling Enhancements in Sony's S6500 BD/HD Player</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-purebred-social-media-helpers-free/"><u>10 Purebred Social Media Helpers (FREE)</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-(securityfacebookmailcom)-be-trusted-for-fb-safety/"><u>Can <Security@facebookmail.com> Be Trusted for FB Safety?</u></a></li>
+<li><a href="https://facebook.techidaily.com/ceo-to-reconsider-trump-page-ban-policy/"><u>CEO to Reconsider Trump Page Ban Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparing-oculus-quest-privacy-in-meta-and-facebook-realms/"><u>Comparing Oculus Quest Privacy in Meta & Facebook Realms</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-make-your-own-meme-now/"><u>In 2024, Make Your Own Meme Now</u></a></li>
+<li><a href="https://games-able.techidaily.com/steps-to-prevent-steam-auto-launch/"><u>Steps to Prevent Steam Auto-Launch</u></a></li>
 </ul></div>
 

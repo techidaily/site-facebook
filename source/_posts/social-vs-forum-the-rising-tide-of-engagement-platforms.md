@@ -1,7 +1,7 @@
 ---
 title: "Social vs Forum: The Rising Tide of Engagement Platforms"
-date: 2024-09-15T21:56:42.283Z
-updated: 2024-09-22T01:12:15.826Z
+date: 2024-10-06T00:04:03.542Z
+updated: 2024-10-08T18:35:55.979Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,19 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
 
 ![A class of students paying attention to a lecture.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/students-attention.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Social media, by design, knows how to grab your attention and then hold it. You likely find yourself scrolling for a while on Twitter, Facebook, or some other social media before realizing you've lost track of time. While you could have the same experience on a forum, social media platforms are more adept at maintaining users' attention. This is because they run on an[attention economy model](https://www.makeuseof.com/tag/what-is-attention-economy/) , as your sustained usage makes these platforms money.
 
  The fast-moving nature, mixed media types (text, image, and video), and design principle of scrolling through a "timeline" encourage you to "catch up" are all examples of social media trying to keep you on the platform for longer. On a forum, you have many subsections—each with their own threads. They tend to be a bit more narrow in focus and long-form and predominately text-based, which is easier to pull yourself out of because it takes more sustained focus to navigate.
@@ -45,10 +58,16 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
  This is because young internet users will learn from people around them that are older about social media, and the less they see forums, the less chance they'll think to sign up for one. As time goes on, forums will likely become more obscure and more outdated—leading to fewer signups.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Forums Tend to Be Dedicated Around One Subject
@@ -66,10 +85,10 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
  This is a big reason social media killed online forums because they typically can be used on a mobile app as well as a browser, whereas forums can only be used on browsers. While you can access most forums via your mobile browser, it'll be clunky and less responsive than an app—and almost definitely less friendly to navigate. The accessibility that apps provide makes people more likely to stick to them rather than go out of their way to use a forum on a browser to connect with people.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. The Rise of Facebook Groups
@@ -77,6 +96,13 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
  Facebook Groups are extremely popular, with over[1.8 billion people using them monthly](https://www.searchenginejournal.com/1-8-billion-people-use-facebook-groups-every-month/397109/) . It's no surprise; they are well-designed and make it simple to keep up with conversations. As they are typically narrowly focused on a certain subject, it means that you can get information or conversation on specific subjects without even having to leave the Facebook app.
 
  While you may find that it's still harder to find older conversations on Facebook Groups than on a forum, the accessibility that they offer is undeniable. No other social media really has a competing feature, with LinkedIn Groups often littered with self-promotion, non-moderated conversations, and a lack of presence compared to Facebook Groups. This, combined with the popularity of Facebook's platform on the whole, means that their Groups feature is extremely popular—and these were also big reasons that online forums fell by the wayside over the past decade.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Social Media Is the Current-Day Online Forum
 
@@ -97,5 +123,21 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/updated-from-stills-to-movies-a-pixiz-tutorial-for-photo-animators/"><u>[Updated] From Stills to Movies A Pixiz Tutorial for Photo Animators</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-guide-to-mastering-snapchats-zoom-feature/"><u>[Updated] The Ultimate Guide to Mastering Snapchat's Zoom Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-arena-vying-for-the-top-in-verified-metas-and-blue-ticks/"><u>Authenticity Arena: Vying for the Top in Verified Metas and Blue Ticks</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-sheryls-contributions-to-facebook/"><u>Behind the Scenes: Sheryl's Contributions to Facebook</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/enhance-your-ebooks-visual-appeal-with-our-flipbuilder-integrate-your-brand-in-the-background/"><u>Enhance Your eBook's Visual Appeal with Our FlipBuilder - Integrate Your Brand in the Background!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-combining-skypes-ease-with-zooms-advanced-features/"><u>In 2024, Combining Skype's Ease with Zoom's Advanced Features</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pinnacle-of-picture-perfection-top-10-screens/"><u>In 2024, Pinnacle of Picture Perfection Top 10 Screens</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/is-your-system-enough-to-welcome-windows-11/"><u>Is Your System Enough to Welcome Windows 11?</u></a></li>
+<li><a href="https://facebook.techidaily.com/latest-watches-on-facebook-unveiled/"><u>Latest Watches on Facebook Unveiled</u></a></li>
+<li><a href="https://techidaily.com/samsung-galaxy-s24plus-won-t-play-mov-videos-how-to-fix-by-aiseesoft-video-converter-play-mov-on-android/"><u>Samsung Galaxy S24+ won't play MOV videos, how to fix ?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-your-corsair-hs70-mic-for-improved-sound-quality-and-functionality/"><u>Troubleshooting Your Corsair HS70 Mic for Improved Sound Quality and Functionality</u></a></li>
+<li><a href="https://facebook.techidaily.com/where-to-avoid-facebook-websites-top-3-places/"><u>Where to Avoid Facebook Websites: Top 3 Places</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-full-implementation-of-e2e-encryption-delayed-to-next-year/"><u>Why Meta's Full Implementation of E2E Encryption Delayed to Next Year</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1726030161716-youtubepc/"><u>YouTube音源のPC上で簡易な録画手順とヒント</u></a></li>
+</ul></div>
 

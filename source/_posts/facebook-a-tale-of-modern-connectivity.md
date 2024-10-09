@@ -1,7 +1,7 @@
 ---
 title: "Facebook: A Tale of Modern Connectivity"
-date: 2024-09-20T18:35:59.330Z
-updated: 2024-09-21T22:13:56.669Z
+date: 2024-10-03T22:23:35.362Z
+updated: 2024-10-09T02:39:07.902Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 
  While Facebook received a lot of negative press in recent years, it wasn't all negative. After all, Facebook did not get over 2 billion users by being a bad social media platform. So, these are some of the few good things the social media platform brought to humanity.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Facebook Brought People Together
 
 ![a group of friends sitting on a dock](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-group-of-friends-sitting-on-a-dock.jpg)
@@ -39,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
  And, if you're looking to connect with more people, millions of Facebook groups allow you to meet others with the same interests. This feature became even more critical during the COVID-19 lockdowns. Since almost no one could go out to meet others, Facebook groups allowed many to meet new people without leaving the safety of their homes.
 
 [Social media brings us closer to each other](https://www.makeuseof.com/ways-social-media-brings-people-together/) —and Facebook is the best example of this phenomenon.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Connecting Our Past and Present
 
@@ -52,31 +66,24 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 
 ![A lady starting an online business selling home decor and gifts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-lady-starting-an-online-business-selling-home-decor-and-gifts.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  With its massive audience, Facebook is definitely one of[the best social media platforms for businesses](https://www.makeuseof.com/best-social-media-platforms-for-business/) . And because it knows that companies are more than willing to invest to tap into this market, the social media platform developed several tools they can use.
 
  Some of these tools are free, like Facebook Pages and Groups, while others are paid, like Facebook Ads. But even with just the free tools, many entrepreneurs found success through the social media platform.
 
  Again, this tool was crucial during the pandemic, when many who've lost their jobs turned to online entrepreneurship to get them through the global lockdowns.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Ways Facebook Has Worsened Our Lives
 
  Despite the good things Facebook brought to humanity, it also had to deal with many issues. Some of these issues were new to our society, as Facebook seemingly became the wild west of misnformation dissemination.
 
 So, what are some of the biggest things that affected us negatively?
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Misinformation on Facebook Deceived the Masses
 
@@ -87,10 +94,10 @@ So, what are some of the biggest things that affected us negatively?
 [A study published by the National Library of Medicine](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9609763/) has shown a correlation between Facebook posts and COVID-19 vaccine hesitancy. That means false social media posts, especially those that go viral, could have a real and lasting impact on individuals and our society. Although[Facebook eventually took steps to control misinformation](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) , some say it was too little, too late.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Your Data, Cambridge Analytica, Presidential Elections, and International Politics
@@ -98,16 +105,10 @@ So, what are some of the biggest things that affected us negatively?
 ![protesters behind a police man](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/protesters-behind-a-police-man.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Because Facebook collects and stores so much personal data on all its users, some companies have taken advantage of this data to manipulate public opinion. It has grown so much that it's alleged that this data mining allowed external parties to influence national elections.
@@ -143,5 +144,23 @@ So, what are some of the biggest things that affected us negatively?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-excellence-in-capturing-moments-best-add-ops-for-yi-4k-for-2024/"><u>[New] Excellence in Capturing Moments - Best Add-Ops for YI 4K for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-ranking-the-leading-free-srt-translation-tools/"><u>[New] In 2024, Ranking the Leading Free SRT Translation Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-curb-automated-youtube-content-feeds/"><u>[Updated] 2024 Approved Curb Automated YouTube Content Feeds</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-expertise-in-apps-enhancing-video-conferencing/"><u>[Updated] Expertise in Apps Enhancing Video Conferencing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-elite-5-youtube-channel-power-players/"><u>[Updated] The Elite 5 YouTube Channel Power Players</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-concerns-with-facebook-quizzes-explored/"><u>Cybersecurity Concerns with Facebook Quizzes Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/design-your-own-content-formula-with-facebooks-reel-feature/"><u>Design Your Own Content Formula with Facebook's Reel Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-engagement-curve-top-or-trough/"><u>Facebook's Engagement Curve: Top or Trough?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-honor-90-lite-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Honor 90 Lite FRP?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-secure-shots-with-a-steadier-gopro-video-technique/"><u>In 2024, Secure Shots with a Steadier GoPro Video Technique</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-xiaomi-14-pro-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Xiaomi 14 Pro Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/indian-tech-regulation-faces-legal-challenge-from-whatsapp/"><u>Indian Tech Regulation Faces Legal Challenge From WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-facebooks-altered-meanings-for-page-labels/"><u>Interpreting Facebook's Altered Meanings for Page Labels</u></a></li>
+<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-tecno-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for Tecno</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-backs-new-content-platform-with-5m-financing/"><u>Social Network Backs New Content Platform with $5M Financing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unspoken-stories-in-whistleblowing-documents-on-fb/"><u>The Unspoken Stories in Whistleblowing Documents on FB</u></a></li>
+</ul></div>
 

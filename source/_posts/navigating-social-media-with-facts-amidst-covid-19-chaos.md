@@ -1,7 +1,7 @@
 ---
 title: Navigating Social Media with Facts Amidst COVID-19 Chaos
-date: 2024-09-17T18:46:43.420Z
-updated: 2024-09-21T21:00:48.216Z
+date: 2024-10-01T18:45:39.780Z
+updated: 2024-10-08T22:42:35.142Z
 tags:
   - facebook
 categories:
@@ -64,15 +64,22 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Read more: [Is Facebook Doing Enough to Tackle Misinformation?](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Social Media Companies Can Protect Users From Harmful Misinformation
 
  In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Tap Into Celebrities and Religious and Community Leaders
@@ -80,6 +87,13 @@ YouTube also removes videos that violate its COVID-19 policy.
  Many people distrust figures of authority, such as the government. Social media companies can partner with celebrities and religious and community leaders to post videos presenting factual and myth-busting information online.
 
  They can also share their personal experiences around getting vaccinated.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Establish Shared Online Standards Across Social Media Platforms
 
@@ -92,10 +106,10 @@ YouTube also removes videos that violate its COVID-19 policy.
  This would still allow the user to exercise their right to free speech while being moderated for the type of information they upload.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Display Corrective Posts to Users Exposed to Disinformation
@@ -111,19 +125,6 @@ YouTube also removes videos that violate its COVID-19 policy.
 ### 6\. Ban Private and Secret Anti-Vaccine Facebook Groups
 
  Ban private groups that traffic primarily in vaccine disinformation and prevent groups that require a Facebook disclaimer from existing as private or secret groups, as anti-vaxxers rely on the privacy of these groups to spread dangerous anti-vaccine misinformation.
-
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Social Media Companies Play a Key Role in Reducing COVID-19 Related Misinformation Online
 
@@ -144,5 +145,24 @@ YouTube also removes videos that violate its COVID-19 policy.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-top-10-channels-to-watch-on-igtv-daily/"><u>[New] Top 10 Channels to Watch on IGTV Daily</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-unlock-extra-space-premium-external-drives-for-ps5/"><u>[Updated] In 2024, Unlock Extra Space Premium External Drives for PS5</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-discovering-the-past-best-history-youtubers/"><u>2024 Approved Discovering the Past Best History YouTubers</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ways-to-regain-sanity-by-unfollowing-not-undergoing/"><u>5 Ways to Regain Sanity by Unfollowing, Not Undergoing</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerated-actions-fastest-lite-android-picks/"><u>Accelerated Actions: Fastest Lite Android Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/ban-random-friends-notifications-on-social-media/"><u>Ban Random Friends Notifications on Social Media</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/cryptic-code-deciphered-direct-x-error-eradicated-in-league/"><u>Cryptic Code Deciphered: Direct X Error Eradicated in League</u></a></li>
+<li><a href="https://facebook.techidaily.com/engineering-your-social-media-iconography/"><u>Engineering Your Social Media Iconography</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/enhance-your-strategy-with-the-leading-5-valorant-clipout-tools-comprehensive-tutorials-inside/"><u>Enhance Your Strategy with the Leading 5 Valorant Clipout Tools – Comprehensive Tutorials Inside!</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-in-plain-sight-the-4-most-influential-silicon-stories/"><u>Hidden in Plain Sight: The 4 Most Influential Silicon Stories</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/how-to-conceal-images-in-videos-proven-techniques-for-maintaining-corporate-image/"><u>How to Conceal Images in Videos - Proven Techniques for Maintaining Corporate Image</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-guide-to-muting-instagram-accounts/"><u>In 2024, Guide to Muting Instagram Accounts</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mount-and-blade-ii-how-we-fixed-the-notorious-crashing-bug/"><u>Mount and Blade II: How We Fixed The Notorious Crashing Bug</u></a></li>
+<li><a href="https://facebook.techidaily.com/planning-and-executing-impressive-social-events-on-fb/"><u>Planning & Executing Impressive Social Events on FB</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-reviews-expert-insights-on-computer-components/"><u>Tom's Tech Reviews: Expert Insights on Computer Components</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-creativity-with-ai-assisted-photo-posting-to-facebook/"><u>Unleash Creativity with AI-Assisted Photo Posting to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-is-your-favorite-social-media-platform-poll/"><u>Which Is Your Favorite Social Media Platform? [Poll]</u></a></li>
+</ul></div>
 

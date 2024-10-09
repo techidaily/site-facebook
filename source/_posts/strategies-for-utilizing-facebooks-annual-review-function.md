@@ -1,7 +1,7 @@
 ---
 title: Strategies for Utilizing Facebook's Annual Review Function
-date: 2024-09-30T20:07:17.981Z
-updated: 2024-10-03T22:07:10.170Z
+date: 2024-10-01T22:13:58.677Z
+updated: 2024-10-08T21:45:39.247Z
 tags:
   - facebook
 categories:
@@ -32,13 +32,6 @@ thumbnail: https://thmb.techidaily.com/ea46c2c3bcce8249fe3c90a83e87a709d2898868b
 
  You can also find tagged posts, things your friends shared on your timeline, or how many years you have been friends with a user. The memories are initially shown to you privately, and you can later share and edit them.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Use the On This Day Feature
 
  Users can access the On This Day feature on Facebook by the following method.
@@ -50,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/ea46c2c3bcce8249fe3c90a83e87a709d2898868b
  You can use the On This Day feature to better manage your Facebook profile. Let's see how you can share, save and manage your memories.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Share Memories
@@ -68,18 +61,25 @@ To share a memory from the On This Day feature:
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
  The memories from On This Day can also be shared with other apps like WhatsApp, Snapchat, and Messenger as a link.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Save and Delete Memories
 
@@ -95,13 +95,6 @@ You can save your On This Day posts with the following steps:
 
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
 
 To access your saved memories:
@@ -112,13 +105,6 @@ To access your saved memories:
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
 
 Close
@@ -126,6 +112,13 @@ Close
  To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can[download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
 
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. See What Your Friends Shared on Your Wall
 
@@ -143,6 +136,19 @@ Close
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
 Close
@@ -157,18 +163,18 @@ Close
 
  Select**None** if you do not want to use the On This Day feature of Facebook. You will not be notified about your memories in that case.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Hide Memories
 
  Facebook enables its users to hide memories from specific people. Under**Hide Memories** in the**Memory Settings** section, tap**People** and search for the names you do not wish to see memories from.
 
  Also, if you do not like to recall a specific date, tap**Dates** \> Mark**Start** and**End** dates > Tap**Save** . Facebook will stop showing you memories from those specific dates.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Stay in Touch With Your Past Using Facebook’s On This Day Feature
 
@@ -191,24 +197,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-streaming-royalty-ranking-the-top-10-platforms-for-real-time-content/"><u>[New] Streaming Royalty Ranking the Top 10 Platforms for Real-Time Content</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solved-modern-warfare-voice-chat-not-working/"><u>[SOLVED] Modern Warfare Voice Chat Not Working</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-unlock-the-potential-of-fb-chronicles-with-free-apps/"><u>[Updated] Unlock the Potential of FB Chronicles with Free Apps</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/easy-steps-deleting-several-contacts-simultaneously-in-snapchat/"><u>Easy Steps: Deleting Several Contacts Simultaneously in Snapchat</u></a></li>
-<li><a href="https://facebook.techidaily.com/hide-and-seek-in-the-social-media-universe/"><u>Hide-and-Seek in the Social Media Universe</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-oneplus-nord-ce-3-lite-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your OnePlus Nord CE 3 Lite 5G Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-vivo-y56-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Vivo Y56 5G Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/initiating-polls-on-facebook-stories-and-pages-effectively/"><u>Initiating Polls on Facebook Stories and Pages Effectively</u></a></li>
-<li><a href="https://facebook.techidaily.com/permanently-dissolve-your-facebook-account-using-android/"><u>Permanently Dissolve Your Facebook Account Using Android</u></a></li>
-<li><a href="https://facebook.techidaily.com/post-hack-habits-social-network-headsets-and-user-spending-patterns/"><u>Post-Hack Habits: Social Network Headsets and User Spending Patterns</u></a></li>
-<li><a href="https://facebook.techidaily.com/preserve-your-anonymity-avoid-risky-privacy-apps/"><u>Preserve Your Anonymity: Avoid Risky Privacy Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/sheryl-sandbergs-influence-on-corporate-culture/"><u>Sheryl Sandberg's Influence on Corporate Culture</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-tutorial-how-to-perfectly-pair-up-for-a-tiktok-collaboration/"><u>Step-by-Step Tutorial: How to Perfectly Pair Up for a TikTok Collaboration</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-art-of-audio-finesse-advanced-editing-strategies-for-podcasters/"><u>The Art of Audio Finesse Advanced Editing Strategies for Podcasters</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-dichotomy-of-utilizing-facebook-for-event-planning-success/"><u>The Dichotomy of Utilizing Facebook for Event Planning Success</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-10-password-cracking-tools-for-vivo-g2-by-drfone-android/"><u>Top 10 Password Cracking Tools For Vivo G2</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-are-the-facebook-papers-everyone-is-talking-about/"><u>What Are The Facebook Papers Everyone Is Talking About?</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-the-facebook-backed-diem-cryptocurrency-and-can-you-trust-it/"><u>What Is the Facebook-Backed Diem Cryptocurrency and Can You Trust It?</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/1726030590697-gif/"><u>ユーザーフレンドリーなGIF制作ツールとその使い方</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-jokeframe-creations-punpicture-studio/"><u>[New] 2024 Approved JokeFrame Creations PunPicture Studio</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-art-of-flawless-conversion-from-slides-to-videos/"><u>[Updated] 2024 Approved The Art of Flawless Conversion From Slides to Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-earn-big-on-youtube-strategies-for-successful-creators/"><u>[Updated] In 2024, Earn Big on YouTube Strategies for Successful Creators</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-photos-for-every-project-an-exclusive-list-of-top-12-online-sources/"><u>2024 Approved Free Photos for Every Project - An Exclusive List of Top 12 Online Sources</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/bright-ideas-for-android-video-mastery/"><u>Bright Ideas for Android Video Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/celebrating-googles-noteworthy-news/"><u>Celebrating Google's Noteworthy News</u></a></li>
+<li><a href="https://facebook.techidaily.com/clarifying-the-difference-between-profile-and-username-ids/"><u>Clarifying the Difference Between Profile and Username IDs</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-billionaires-pledge-5m-to-help-combat-virus/"><u>Digital Billionaire's Pledge: $5M to Help Combat Virus</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/how-to-embed-custom-control-buttons-into-your-ebooks-with-flipbuilder-explore-the-possibilities/"><u>How to Embed Custom Control Buttons Into Your eBooks with FlipBuilder - Explore the Possibilities!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-xiaomi-civi-3-disney-100th-anniversary-edition-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Xiaomi Civi 3 Disney 100th Anniversary Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-tap-into-the-latest-gaming-and-app-splash-of-win11/"><u>In 2024, Tap Into the Latest Gaming and App Splash of Win11</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/iphone-image-transfer-methods-explained/"><u>IPhone Image Transfer Methods Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/textual-transformation-in-chats-focus-and-style-techniques/"><u>Textual Transformation in Chats: Focus & Style Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-behaviors-in-online-network-invitations/"><u>Understanding Social Behaviors in Online Network Invitations</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthed-tech-moments-youve-overlooked-top-4-must-know/"><u>Unearthed Tech Moments You've Overlooked - Top 4 Must-Know!</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-spoke-freely-on-facebooks-data-management/"><u>Who Spoke Freely on Facebook’s Data Management?</u></a></li>
 </ul></div>
 

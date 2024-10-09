@@ -1,7 +1,7 @@
 ---
 title: "The Fall of Forums: Top 6 Social Platform Factors"
-date: 2024-10-02T16:20:49.603Z
-updated: 2024-10-03T18:14:31.924Z
+date: 2024-10-06T02:30:51.773Z
+updated: 2024-10-08T19:26:40.591Z
 tags:
   - facebook
 categories:
@@ -30,33 +30,27 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 
  While you may be happy with the familiarity that comes from forums, a lot of people expect much more innovation than these platforms typically get. Even if social media platforms are sometimes slow to implement changes that their user base wants, you're probably less likely to stick around for changes to happen on a forum that already falls short of many features that social media offers.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Social Media Is Designed to be Attention-Grabbing
 
 ![A class of students paying attention to a lecture.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/students-attention.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Social media, by design, knows how to grab your attention and then hold it. You likely find yourself scrolling for a while on Twitter, Facebook, or some other social media before realizing you've lost track of time. While you could have the same experience on a forum, social media platforms are more adept at maintaining users' attention. This is because they run on an[attention economy model](https://www.makeuseof.com/tag/what-is-attention-economy/) , as your sustained usage makes these platforms money.
 
  The fast-moving nature, mixed media types (text, image, and video), and design principle of scrolling through a "timeline" encourage you to "catch up" are all examples of social media trying to keep you on the platform for longer. On a forum, you have many subsections—each with their own threads. They tend to be a bit more narrow in focus and long-form and predominately text-based, which is easier to pull yourself out of because it takes more sustained focus to navigate.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Forums Seem Outdated
 
@@ -70,15 +64,28 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 
  Forums commonly have a subsection where you can talk about everyday life stuff, films, TV shows, games, anything that isn't related to the primary subject it was created for. However, because of this dedication to a single subject, it can lead to you thinking that they're very niche. This may not be favorable compared to Twitter, Facebook, or Instagram, all of which cover pretty much anything—and connect you to people based on a comprehensive algorithm or your manual searches.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Apps Are More User-Friendly
 
 ![Cluster of icons for popular social media apps.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/social-apps-icons.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You likely have dozens of apps on your phone. It's possible you even regularly use most of them, even if it's pretty common for most apps on a users' phone to go ignored for months at a time. In any case, you probably agree that apps are more user-friendly than simply using a browser. Even though[social media can negatively affect you](https://www.makeuseof.com/tag/negative-effects-social-media/) , you're more likely to prioritize the convenience that apps and social media provide rather than the negative impacts that usage can cause.
@@ -90,13 +97,6 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
  Facebook Groups are extremely popular, with over[1.8 billion people using them monthly](https://www.searchenginejournal.com/1-8-billion-people-use-facebook-groups-every-month/397109/) . It's no surprise; they are well-designed and make it simple to keep up with conversations. As they are typically narrowly focused on a certain subject, it means that you can get information or conversation on specific subjects without even having to leave the Facebook app.
 
  While you may find that it's still harder to find older conversations on Facebook Groups than on a forum, the accessibility that they offer is undeniable. No other social media really has a competing feature, with LinkedIn Groups often littered with self-promotion, non-moderated conversations, and a lack of presence compared to Facebook Groups. This, combined with the popularity of Facebook's platform on the whole, means that their Groups feature is extremely popular—and these were also big reasons that online forums fell by the wayside over the past decade.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Social Media Is the Current-Day Online Forum
 
@@ -119,20 +119,20 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-convert-any-youtube-tracking-ios-solutions-in-6-free-tools/"><u>[New] 2024 Approved Convert Any YouTube Tracking IOS Solutions in 6 Free Tools</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-infinix-gt-10-pro-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Infinix GT 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-the-best-android-collage-platforms/"><u>2024 Approved Explore the Best Android Collage Platforms</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-proven-strategies-for-professional-green-screen-filming/"><u>2024 Approved Proven Strategies for Professional Green Screen Filming</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/comprehensive-guide-to-secure-data-destruction-tips-by-stellar/"><u>Comprehensive Guide to Secure Data Destruction - Tips by Stellar</u></a></li>
-<li><a href="https://facebook.techidaily.com/giving-voice-to-the-whole-crew-in-a-single-facebook-post/"><u>Giving Voice to the Whole Crew in a Single Facebook Post</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-download-facebook-photos-and-videos/"><u>How to Download Facebook Photos and Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-log-into-facebook-if-you-lost-access-to-code-generator/"><u>How to Log Into Facebook If You Lost Access to Code Generator</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/most-effective-dvd-to-mpeg-4-transcoder-software-optimized-for-win10win11/"><u>Most Effective DVD to MPEG-4 Transcoder Software : Optimized for Win10/Win11</u></a></li>
-<li><a href="https://facebook.techidaily.com/prevent-facebook-fraud-identify-14-common-scams-now/"><u>Prevent Facebook Fraud: Identify 14 Common Scams Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/public-perception-of-big-tech-slipping-facebook-takes-the-hit/"><u>Public Perception of Big Tech Slipping; Facebook Takes the Hit?</u></a></li>
-<li><a href="https://some-skills.techidaily.com/stunning-celestinas-and-skies-online-directory-for-2024/"><u>Stunning Celestinas and Skies Online Directory for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailor-make-your-social-media-journey-key-facebook-customizations/"><u>Tailor-Make Your Social Media Journey: Key Facebook Customizations</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-12-best-free-voip-services-a-comprehensive-guide/"><u>Top 12 Best Free VoIP Services : A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/zuckerberg-discloses-pet-goats-name-is-blockchain/"><u>Zuckerberg Discloses: Pet Goat's Name Is 'Blockchain'</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-redirecting-noise-free-tweets-back-to-audio/"><u>[New] 2024 Approved Redirecting Noise-Free Tweets Back to Audio</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-audioarchitects-building-without-dacast/"><u>[New] AudioArchitects Building Without DaCast</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unlocking-the-secrets-to-professional-quality-instagram-videos/"><u>[New] Unlocking the Secrets to Professional-Quality Instagram Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/accelerate-your-arts-journey-with-these-7-nft-converters-for-2024/"><u>Accelerate Your Art's Journey with These 7 NFT Converters for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722876472524-discover-the-best-free-movie-download-websites-here/"><u>Discover the Best Free Movie Download Websites Here!</u></a></li>
+<li><a href="https://facebook.techidaily.com/engagement-enigma-solved-transform-your-fb-gathering/"><u>Engagement Enigma Solved: Transform Your FB Gathering</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-evaluating-top-quality-fee-free-lut-tools-for-creatives/"><u>In 2024, Evaluating Top-Quality, Fee-Free LUT Tools for Creatives</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/mastering-file-conversion-seamlessly-changing-your-asf-videos-to-avi-format-with-an-all-inclusive-converter/"><u>Mastering File Conversion: Seamlessly Changing Your ASF Videos to AVI Format with an All-Inclusive Converter</u></a></li>
+<li><a href="https://facebook.techidaily.com/outsmart-facebooks-tracking-mechanisms-now/"><u>Outsmart Facebook's Tracking Mechanisms Now</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-excel-2023-files-from-virus-infected-pen-drives-for-free-by-stellar-guide/"><u>Recover Excel 2023 Files from Virus-Infected Pen Drives for Free</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/streamlining-your-tweets-with-video-upload-rules-for-2024/"><u>Streamlining Your Tweets with Video Upload Rules for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-back-control-untag-on-facebook-photos/"><u>Taking Back Control: Untag on Facebook Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-exit-strategy-an-unshakeable-departure-from-facebook/"><u>The Exit Strategy: An Unshakeable Departure From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unplug-from-the-world-discover-3-anti-facebook-locales/"><u>Unplug From the World: Discover 3 Anti-Facebook Locales</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-choose-a-professional-platform-eight-key-reasons-to-prefer-company-pages/"><u>Why Choose A Professional Platform: Eight Key Reasons to Prefer Company Pages</u></a></li>
 </ul></div>
 

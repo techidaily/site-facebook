@@ -1,7 +1,7 @@
 ---
 title: Unraveling Your FB Blacklist Entities
-date: 2024-09-17T20:50:38.402Z
-updated: 2024-09-22T00:56:28.737Z
+date: 2024-10-07T21:54:33.727Z
+updated: 2024-10-08T19:27:10.044Z
 tags:
   - facebook
 categories:
@@ -44,9 +44,23 @@ Close
 
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to View Your Blocked List on the Web
 
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
 
@@ -57,6 +71,13 @@ Close
 
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Can People Tell if You've Blocked Them on Facebook?
 
  People will not be notified when you block them on Facebook. However, there are[ways to figure out if someone has blocked you on Facebook](https://www.makeuseof.com/tag/who-blocked-me-on-facebook/) .
@@ -66,10 +87,10 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
@@ -89,5 +110,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-seamless-acquisition-of-twitters-jokes-for-pc/"><u>[New] Seamless Acquisition of Twitter's Jokes for PC</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-pinnacle-actions-recorder-assessment/"><u>[Updated] In 2024, Pinnacle Actions Recorder Assessment</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-million-viewer-milestone-and-associated-income-levels/"><u>[Updated] Million-Viewer Milestone and Associated Income Levels</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-guide-to-premium-vr-showrooms/"><u>2024 Approved Guide to Premium VR Showrooms</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-privacy-on-social-networking-sites-fb/"><u>Ensuring Privacy on Social Networking Sites (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-may-be-forced-to-sell-giphy-heres-why/"><u>Facebook May Be Forced to Sell Giphy: Here's Why</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-system-up-to-date-installing-the-newest-intel-irisplus-graphics-driver-v655-on-windows-1011/"><u>Get Your System Up-to-Date: Installing the Newest Intel Iris+ Graphics Driver v655 on Windows 10/11</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-language-preferences-in-facebook-advertising/"><u>Navigating Language Preferences in Facebook Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-netiquette-social-media-boundaries-you-must-respect/"><u>Navigating Netiquette: Social Media Boundaries You Must Respect</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ltimate-guide-to-youtube-success-with-tubebuddy/"><u>The Ultimate Guide to YouTube Success with TubeBuddy</u></a></li>
+<li><a href="https://facebook.techidaily.com/unravel-facebooks-spying-off-facebook-tool-usage-guide/"><u>Unravel Facebook's Spying - Off-Facebook Tool Usage Guide</u></a></li>
+</ul></div>
 

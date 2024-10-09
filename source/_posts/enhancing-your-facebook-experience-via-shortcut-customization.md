@@ -1,7 +1,7 @@
 ---
 title: Enhancing Your Facebook Experience via Shortcut Customization
-date: 2024-09-18T23:16:09.331Z
-updated: 2024-09-22T00:33:20.675Z
+date: 2024-10-07T00:45:22.513Z
+updated: 2024-10-09T05:55:47.943Z
 tags:
   - facebook
 categories:
@@ -50,7 +50,21 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 
 ![facebook-app-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-profile.JPEG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The Profile shortcut is a circular avatar icon and it's where you can access your profile and all your posts. You can remove it, and if you do, your profile is still accessible from the Menu page via the hamburger icon.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Notifications
 
@@ -61,13 +75,20 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 ![facebook-app-menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu.JPEG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The Menu is on the far right (the hamburger icon) and will open a page where you can have quick access to things like saved posts, events, and the pages you like. You'll also find the standard Settings dropdown here from where you can customize the app's settings. This is an essential tab and can therefore not be removed.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Marketplace
 
@@ -82,6 +103,13 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
  Facebook Groups combines posts from all the groups you're part of into its own feed. Similar to suggestions that pop up on your regular feed, you'll see some suggested groups here tpp. It's a circular icon with three people and can be removed.
 
  You can easily[leave a Facebook Group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) if you end up not liking the content.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Watch
 
@@ -119,13 +147,6 @@ To quickly hide Facebook shortcuts by long-pressing:
 
 ![facebook-app-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-settings.JPEG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![facebook-app-shortcuts-customization](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-shortcuts-customization.JPEG)
 
 Close
@@ -143,31 +164,24 @@ To add or hide Facebook shortcuts via the settings:
 * **Available:** Selecting the Auto setting on a shortcut will let Facebook add, remove, or rearrange them automatically based on how frequently you use them.
 * **Hidden:** When you Hide a shortcut from the navigation bar, it gets put in this category.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Quickly Turn Notification Dots On and Off
 
  If you'd prefer not to see notification dots on your shortcut icons, you can disable them by long-pressing. It works the same as removing a shortcut by long-pressing in the first section above.
 
 ![facebook-app-notification-dots-long-press](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-notification-dots-long-press.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 To disable and enable Facebook notification dots by long-pressing:
 
 1. Hold down on the shortcut icon in the navigation bar that you want to remove the notification dots for.
 2. From the pop-up, select**Turn off notification dots** .
 3. To turn these dots back on, long press on the shortcut icon again, and select**Turn on notification dots** .
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Turn Notification Dots On and Off From the Settings
 
@@ -178,16 +192,10 @@ To disable and enable Facebook notification dots by long-pressing:
 ![26D7F542-5F40-4D39-B951-9EFBFD2E4EB8_converted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/26d7f542-5f40-4d39-b951-9efbfd2e4eb8_converted.JPEG)
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -199,6 +207,13 @@ To disable and enable Facebook notification dots from the settings:
 3. Scroll down to the**Preferences** category.
 4. Select**Navigation bar > Manage notification dots** . You will be taken to a section where you can manage your shortcut notification dots preferences.
 5. Toggle the blue tabs on and off to enable or disable notification dots for a shortcut. Only the shortcuts that you currently have pinned to your navigation bar will appear here.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Customize Your Facebook Shortcuts
 
@@ -217,5 +232,24 @@ To disable and enable Facebook notification dots from the settings:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-guide-to-screen-record-on-mac-with-shortcuts/"><u>[New] 2024 Approved Guide to Screen Record on Mac with Shortcuts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-amass-1000-visionary-supporters-fast-track-style/"><u>[New] In 2024, Amass 1,000 Visionary Supporters Fast-Track Style</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-capture-the-moment-enhancing-and-cutting-video-for-instagram-impact/"><u>[Updated] In 2024, Capture the Moment Enhancing and Cutting Video for Instagram Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-emojis-and-icons-on-the-social-networking-frontier/"><u>Decoding Emojis and Icons on the Social Networking Frontier</u></a></li>
+<li><a href="https://facebook.techidaily.com/develop-a-strong-brand-voice-through-engaging-video-content-for-facebook/"><u>Develop a Strong Brand Voice Through Engaging Video Content for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/enigmatic-devices-peering-at-facebooks-hidden-wearable-project/"><u>Enigmatic Devices: Peering at Facebook's Hidden Wearable Project</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/generative-ai-and-its-potential-role-in-propagating-disinformation-tactics/"><u>Generative AI and Its Potential Role in Propagating Disinformation Tactics.</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-efficiently-clear-updates-from-your-profile/"><u>How to Efficiently Clear Updates From Your Profile</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-oneplus-ace-3-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on OnePlus Ace 3 Quickly? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-experience-the-virtual-reality-frontier-on-youtube/"><u>In 2024, Experience the Virtual Reality Frontier on Youtube</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-texting-facebook-rolls-out-groundbreought-features-for-apps-like-instagram-and-messenger/"><u>Revolutionize Texting: Facebook Rolls Out Groundbreought Features for Apps Like Instagram and Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/rights-and-rules-in-image-hosting-services/"><u>Rights and Rules in Image Hosting Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-landscapes-overhauited-discovering-4-major-online-shifts/"><u>Social Landscapes Overhauited: Discovering 4 Major Online Shifts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-oppo-reno-11-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Oppo Reno 11 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/step-by-step-guide-deleting-browser-history-and-cache-on-your-android-device/"><u>Step-by-Step Guide: Deleting Browser History & Cache on Your Android Device</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/steps-to-resolve-geforce-now-error-xc0f1103f-in-windows-11/"><u>Steps to Resolve GeForce Now Error Xc0f1103f in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-messaging-emphasis-bold-and-italics-tips/"><u>The Art of Messaging Emphasis: Bold & Italics Tips</u></a></li>
+</ul></div>
 

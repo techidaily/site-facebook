@@ -1,7 +1,7 @@
 ---
 title: "Future of Music & Networks: Facebook's Boombox Project with Spotify"
-date: 2024-09-14T18:04:26.141Z
-updated: 2024-09-21T22:26:12.776Z
+date: 2024-10-03T17:41:39.681Z
+updated: 2024-10-09T06:06:27.743Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/e3cf30b4720656ba32f87d0a36d739d3e594003c9
 
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Audio Is Exploding, But Is It Here to Stay?
 
  Facebook is making an aggressive push towards audio as it races to compete with Clubhouse, an app for audio-based chatrooms. Other platforms are creating their own versions of Clubhouse as well, with Twitter launching Spaces and even LinkedIn working on Live Audio Rooms.
@@ -57,12 +64,20 @@ thumbnail: https://thmb.techidaily.com/e3cf30b4720656ba32f87d0a36d739d3e594003c9
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win11.techidaily.com/7-key-reasons-users-prefer-older-windows-versions/"><u>7 Key Reasons Users Prefer Older Windows Versions</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-oppo-f23-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Oppo F23 5G System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-with-conciseness-the-essential-smart-list-for-users/"><u>Connecting with Conciseness: The Essential SMART List for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-covid-misinformation-a-roadmap-for-social-networks/"><u>Curbing COVID Misinformation: A Roadmap for Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tech-updates-forgotten-the-top-4-innovations-to-remember/"><u>Essential Tech Updates Forgotten: The Top 4 Innovations to Remember</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-8-upgrades-for-webcam-video-quality/"><u>In 2024, Innovative 8 Upgrades for Webcam Video Quality</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-zoom-breakout-rooms-for-newcomers-explored/"><u>In 2024, Zoom Breakout Rooms for Newcomers Explored</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/initial-setup-guide-what-to-do-when-you-unbox-a-new-computer/"><u>Initial Setup Guide: What to Do When You Unbox a New Computer</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722971322599-install-canon-pixma-ts3322-drivers-get-your-printing-up-to-date/"><u>Install Canon PIXMA TS3322 Drivers - Get Your Printing Up-to-Date!</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-online-identity-consequences-free/"><u>Is Online Identity Consequences-Free?</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-messaging-innovations-roll-out-on-fb-messenger-and-instagram/"><u>New Messaging Innovations Roll Out on FB Messenger & Instagram</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sennheiser-presence-uc-review-mobile-communication-with-a-professional-flair/"><u>Sennheiser Presence-UC Review: Mobile Communication With A Professional Flair</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-rated-mac-software-expert-picks-and-reviews/"><u>Top-Rated Mac Software : Expert Picks and Reviews</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Journey Into Meta's Hub: Administering Facebook & Instagram Profiles"
-date: 2024-09-26T22:12:56.288Z
-updated: 2024-10-03T21:12:08.539Z
+date: 2024-10-07T18:54:58.598Z
+updated: 2024-10-08T16:06:22.290Z
 tags:
   - facebook
 categories:
@@ -33,32 +33,26 @@ thumbnail: https://thmb.techidaily.com/a4fdcd80183f244d65d1a43dcdc553851a248e6cf
  Here's a brief look at how to access the Accounts Center on Instagram and Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Finding the Accounts Center on Instagram
 
 ![Instagram page with images of cats](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151629.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Instagram page with settings window open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151639.jpg)
 
 ![Settings menu for Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151644.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -74,22 +68,22 @@ Here's how you can access the Accounts Center on Instagram:
 ![Facebook home page portraying a post and icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143300.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Settings menu for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143358.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Meta Accounts Center hub with options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143112.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -122,24 +116,22 @@ Here's how to access the Accounts Center on Facebook:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-fast-format-transformation-youtube-for-mac-ratio/"><u>[New] In 2024, Fast Format Transformation YouTube for Mac Ratio</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-screencapturetech-2023-highlighting-the-apeak-software-review/"><u>[Updated] In 2024, ScreenCaptureTech 2023 Highlighting the Apeak Software Review</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-translated-subtitles-for-global-igtv-audience/"><u>[Updated] In 2024, Translated Subtitles for Global IGTV Audience</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-motorola-moto-g84-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Motorola Moto G84 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-harness-the-power-of-live-videos-for-greater-engagement-on-facebook/"><u>How to Harness the Power of Live Videos for Greater Engagement on Facebook</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-oppo-find-x7-by-drfone-android/"><u>How to Show Wi-Fi Password on Oppo Find X7</u></a></li>
-<li><a href="https://facebook.techidaily.com/implementing-night-mode-on-facebook-profile/"><u>Implementing Night Mode on Facebook Profile</u></a></li>
-<li><a href="https://os-tips.techidaily.com/improving-iphone-call-clarity-a-guide-with-10-effective-techniques/"><u>Improving iPhone Call Clarity: A Guide with 10 Effective Techniques</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-integrating-azure-transcription-in-your-apps/"><u>In 2024, Integrating Azure Transcription in Your Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/network-failure-fb-whatsapp-and-instagram-halted/"><u>Network Failure: FB, WhatsApp & Instagram Halted</u></a></li>
-<li><a href="https://facebook.techidaily.com/overcoming-two-factor-authentication-barrier-without-phone/"><u>Overcoming Two-Factor Authentication Barrier without Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/potential-facebook-improvement-more-engaging-story-panels-with-reels-and-rooms/"><u>Potential Facebook Improvement: More Engaging Story Panels with Reels & Rooms</u></a></li>
-<li><a href="https://facebook.techidaily.com/proposed-update-for-facebook-more-interactive-stories-reels-and-rooms/"><u>Proposed Update for Facebook: More Interactive Stories, Reels, and Rooms</u></a></li>
-<li><a href="https://facebook.techidaily.com/secrets-to-using-smschat-apps-beyond-facebook/"><u>Secrets to Using SMS/Chat Apps Beyond Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-sector-shift-what-it-means-to-be-a-metamate/"><u>Social Sector Shift: What It Means To Be A 'Metamate'</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-oppo-reno-11-5g-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Oppo Reno 11 5G Phone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/troubleshooting-tips-resolving-issues-with-google-maps/"><u>Troubleshooting Tips: Resolving Issues with Google Maps</u></a></li>
-<li><a href="https://facebook.techidaily.com/warning-signs-someones-in-your-digital-domain/"><u>Warning Signs: Someone's in Your Digital Domain</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/whatsapp-or-signal-exploring-the-critical-differences-between-them/"><u>WhatsApp or Signal? Exploring the Critical Differences Between Them</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-from-play-to-pixels-compreehensive-ps4-recording-with-obs-studio/"><u>[New] In 2024, From Play to Pixels Compreehensive PS4 Recording with OBS Studio</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-fifa-visuals-key-youtube-video-trends/"><u>[Updated] FIFA Visuals Key YouTube Video Trends</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-your-go-to-tools-for-screen-recording-for-2024/"><u>[Updated] Your Go-To Tools for Screen Recording for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-subscription-tactics-that-overtake-apples-model/"><u>Breaking Down Facebook's Subscription Tactics That Overtake Apple’s Model</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-asus-rog-phone-7-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Asus ROG Phone 7 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/compact-yet-powerful-pcs-for-gamers-the-2021-ranking/"><u>Compact Yet Powerful PCs for Gamers: The 2021 Ranking</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-how-content-is-screened-by-facebook/"><u>Decoding How Content Is Screened by Facebook</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/guia-completa-para-subir-videos-al-ipod-con-movavi/"><u>Guía Completa Para Subir Videos Al iPod Con Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-online-image-on-facebook/"><u>Mastering Your Online Image on Facebook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/obs-mastered-functioning-camera-now-for-2024/"><u>OBS Mastered Functioning Camera Now for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalization-leads-facebooks-customized-mobile-payments-exceeding-expectations/"><u>Personalization Leads: Facebook's Customized Mobile Payments Exceeding Expectations</u></a></li>
+<li><a href="https://facebook.techidaily.com/simple-guide-updating-your-facebook-birthday/"><u>Simple Guide: Updating Your Facebook Birthday</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-describing-photos-on-popular-networks/"><u>Strategies for Describing Photos on Popular Networks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-complete-guide-to-the-j5-tactical-v1-pro-a-robust-compact-beam-light-reviewed/"><u>The Complete Guide to the J5 Tactical V1-Pro: A Robust, Compact Beam Light Reviewed!</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rationale-behind-multiplying-user-identities-in-a-single-facebook-profile/"><u>The Rationale Behind Multiplying User Identities in a Single Facebook Profile</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/unlock-the-potential-of-user-data-with-cookiebot-for-smarter-marketing-strategies/"><u>Unlock the Potential of User Data with Cookiebot for Smarter Marketing Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-your-digital-footprint-deserves-a-break-the-case-for-quitting-facebook/"><u>Why Your Digital Footprint Deserves a Break: The Case for Quitting Facebook</u></a></li>
 </ul></div>
 

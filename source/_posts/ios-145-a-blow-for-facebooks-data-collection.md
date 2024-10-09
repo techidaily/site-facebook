@@ -1,7 +1,7 @@
 ---
 title: "IOS 14.5: A Blow for Facebook's Data Collection?"
-date: 2024-10-02T20:58:39.220Z
-updated: 2024-10-03T18:57:46.487Z
+date: 2024-10-07T06:05:40.302Z
+updated: 2024-10-08T22:37:13.509Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
 
  Facebook's primary source of revenue is selling advertising space on its social media platforms.
@@ -57,37 +64,36 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Many Users Allow App Tracking?
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What Does This All Mean for Facebook?
 
@@ -104,10 +110,10 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's Likely Response
@@ -135,17 +141,22 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/-free-online-courses-for-beginner-youtube-creators-for-2024/"><u>[New] 8 Free Online Courses for Beginner YouTube Creators for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-a-beginners-companion-best-software-for-gamers-recordings-and-editing/"><u>[New] In 2024, A Beginner's Companion Best Software for Gamers’ Recordings & Editing</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-optimal-mp4-to-fb-video-solution/"><u>[Updated] 2024 Approved Optimal MP4-to-FB Video Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/compact-powerhouse-the-echo-dot-3rd-generation-unveiled-experience-the-full-alexa-potential/"><u>Compact Powerhouse: The Echo Dot (3Rd Generation) Unveiled - Experience the Full Alexa Potential!</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-pinpointing-precision-with-minecrafts-zoom-feature/"><u>In 2024, Pinpointing Precision with Minecraft's Zoom Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/isbm-enhances-mental-wellness-with-groundbreaking-cbt-strategies/"><u>ISBM Enhances Mental Wellness with Groundbreaking CBT Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/responsible-networking-on-social-media-platforms/"><u>Responsible Networking on Social Media Platforms</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/samsungs-new-marvel-dive-into-the-anticipated-release-date-cost-and-unique-attributes-of-the-galaxy-z-flip-n6/"><u>Samsung's New Marvel: Dive Into the Anticipated Release Date, Cost, and Unique Attributes of the Galaxy Z Flip N°6</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-messenger-location-sharing/"><u>Step-by-Step Guide to Messenger Location Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/stop-everyone-emoticons-in-comments/"><u>Stop @Everyone Emoticons in Comments</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailor-your-soundtrack-listen-to-spotifys-mini-player-on-fb/"><u>Tailor Your Soundtrack: Listen to Spotify's Mini Player on FB</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/visionary-devices-pushing-computing-limits/"><u>Visionary Devices Pushing Computing Limits</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-essential-win11-pro-tips-and-hacks-for-2024/"><u>[New] Essential Win11 Pro Tips & Hacks for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-10plus-online-photo-background-changers-to-remove-background-easily/"><u>[New] Top 10+ Online Photo Background Changers to Remove Background Easily</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-carving-out-your-place-in-the-design-world/"><u>2024 Approved Carving Out Your Place in the Design World</u></a></li>
+<li><a href="https://fox-links.techidaily.com/are-thoughtful-analyses-monetarily-rewarded-in-2024/"><u>Are Thoughtful Analyses Monetarily Rewarded, In 2024</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/effective-steps-for-removing-webdiscover-from-your-computer-as-recommended-by-cyberprotectors/"><u>Effective Steps for Removing WebDiscover From Your Computer as Recommended by CyberProtectors</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-blades-vivid-palette-now-in-stunning-4k-clarity/"><u>In 2024, Blade's Vivid Palette, Now in Stunning 4K Clarity</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Itel A05s? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-interactions-friendlist-coverage/"><u>Invisible Interactions: Friendlist Coverage</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/profitable-tricks-for-monetizing-your-ig-and-fb-presence/"><u>Profitable Tricks for Monetizing Your IG & FB Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-and-update-child-details-on-messenger-kids-app/"><u>Secure & Update Child Details on Messenger Kids App</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-security-measures-the-case-of-the-expensive-tech-upgrade/"><u>Social Media Security Measures: The Case of the Expensive Tech Upgrade</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-success-equals-cash-income-for-digital-hubs/"><u>Social Success Equals Cash: Income for Digital Hubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/suing-for-privacy-whatsapp-vs-indian-government-regulations/"><u>Suing for Privacy: WhatsApp vs Indian Government Regulations</u></a></li>
+<li><a href="https://win11.techidaily.com/tackle-windows-geforce-scanning-problems-effectively/"><u>Tackle Windows GeForce Scanning Problems Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-secrets-how-to-use-friendly-feedback-tools/"><u>Unlocking Secrets: How to Use Friendly Feedback Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-unfollow-and-follow-on-facebook-and-when-to-use-it/"><u>What Is Unfollow and Follow on Facebook? (And When to Use It)</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Upcoming Guidance: Teenagers' Time Away From Instagram?"
-date: 2024-09-18T18:24:38.476Z
-updated: 2024-09-21T20:20:27.010Z
+date: 2024-10-02T03:04:05.394Z
+updated: 2024-10-08T22:09:16.167Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ This feature could possibly address those concerns.
 
  Related:[Is an Instagram for Kids a Good or Bad Idea? The Pros and Cons](https://www.makeuseof.com/instagram-for-kids-pros-and-cons/)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Nudging Teens Away From Potentially Harmful Content
 
  In addition to prompts to take a break, Facebook will nudge teens away from content that is potentially harmful. When Facebook's systems alert it that a young user is repeatedly viewing or engaging with content that is potentially harmful, Facebook will step in to "nudge" the teen away from that content and turn their attention towards other content.
@@ -49,6 +56,19 @@ Here's how Clegg explained it:
 > We're going to introduce something which I think will make a considerable difference, which is where our systems see that the teenager is looking at the same content over and over again and it's content which may not be conducive to their well-being, we will nudge them to look at other content.
 
  Related:[Why Instagram Is Forcing You to Add Your Birthday](https://www.makeuseof.com/instagram-forcing-you-add-birthday/)
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Is Facebook Introducing These Features?
 
@@ -61,10 +81,10 @@ Here's how Clegg explained it:
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
@@ -90,5 +110,19 @@ Here's how Clegg explained it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-pathways-to-acquiring-facebooks-distinguished-verification/"><u>[New] 2024 Approved Pathways to Acquiring Facebook's Distinguished Verification</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-addressing-disrupted-video-in-obs-studio/"><u>[New] Addressing Disrupted Video in OBS Studio</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-ultimate-film-previews-collection-for-2024/"><u>[New] Ultimate Film Previews Collection for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-make-a-cool-youtube-video-intro-in-imovie-step-by-step/"><u>[Updated] How to Make a Cool YouTube Video Intro in iMovie (Step-by-Step)</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-navigating-the-maze-of-multi-service-playlist-transfer/"><u>[Updated] Navigating the Maze of Multi-Service Playlist Transfer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtube-mastery-made-simple-the-top-20-must-know-strategies-for-2024/"><u>[Updated] YouTube Mastery Made Simple The Top 20 Must-Know Strategies for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/extension-for-whatsapp-to-implement-updated-privacy-policy/"><u>Extension for WhatsApp to Implement Updated Privacy Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-connectivity-a-comprehensive-pros-vs-cons-analysis/"><u>Leveraging Facebook Connectivity: A Comprehensive Pros vs Cons Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/stream-with-style-on-ig-less-is-more/"><u>Stream with Style on IG, Less Is More</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-price-9-perils-of-social-engagement/"><u>The Hidden Price: 9 Perils of Social Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-journey-mapping-facebook-explores-news-feed-dynamics/"><u>User Journey Mapping: Facebook Explores News Feed Dynamics</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/who-wins-in-speed-duel-gopro-hero4-or-drift-ghost-s/"><u>Who Wins in Speed Duel? GoPro Hero4 or Drift Ghost-S?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Get Notified About Hidden Screenshots, Messenger Style
-date: 2024-09-17T18:55:54.203Z
-updated: 2024-09-21T23:02:18.830Z
+date: 2024-10-06T06:18:28.968Z
+updated: 2024-10-08T18:49:03.586Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca4103
 
  Meta expects default encryption on Messenger to be[globally implemented by 2023](https://www.makeuseof.com/meta-delays-end-to-end-encryption-until-2023/) , when Instagram and Messenger are also likely to merge.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Activate Screenshot Notifications on Messenger
 
  Because Messenger's end-to-end encryption isn't turned on by default, you have to enable Secret Conversations with each Messenger contact. Both parties must have the latest version of the app. If one party doesn't, they'll have to update the app before this feature can work on their end.
@@ -52,13 +59,40 @@ thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca4103
 
 ![Starting a new conversation on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery-4-2.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Starting a secret conversation in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery5-2.jpeg)
+
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Messenger secret conversations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery6-2.jpeg)
 
 Close
 
  Once you do the above, if your chat partner takes a screenshot of your secret conversation before the message disappears, Messenger will immediately let you know.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Other Updates to Messenger
 
@@ -79,12 +113,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-panorama-pixels-cutting-edge-photo-assembler/"><u>[New] 2024 Approved Panorama Pixels Cutting-Edge Photo Assembler</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-green-grounds-a-selection-of-free-downloadable-videography-sets/"><u>[New] Green Grounds A Selection of Free, Downloadable Videography Sets</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-elite-choices-exceptional-webcam-stands/"><u>[Updated] 2024 Approved Elite Choices Exceptional Webcam Stands</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-optimal-iphone-image-management-ordered-album-setups-and-icloud-integration-for-2024/"><u>[Updated] Optimal iPhone Image Management Ordered Album Setups & iCloud Integration for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-million-from-facebook-strengthens-who-covid-19-fund/"><u>$5 Million From Facebook Strengthens WHO COVID-19 Fund</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-effective-cost-saving-methods-for-fb-post-timing-optimization/"><u>5 Effective, Cost-Saving Methods for FB Post Timing Optimization</u></a></li>
+<li><a href="https://video-capture.techidaily.com/best-practices-saving-whatsapp-conversations-audio-wise/"><u>Best Practices Saving WhatsApp Conversations Audio-Wise</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-barriers-sharing-content-seamlessly-on-fb-groups/"><u>Breaking Barriers: Sharing Content Seamlessly on FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-revolutionizes-oversight-capabilities-for-communities/"><u>Facebook Revolutionizes Oversight Capabilities for Communities</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/frozen-olympics-spectacular-2022-highlights/"><u>Frozen Olympics Spectacular 2022 Highlights</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/image-banking-securing-premium-stock-graphics-for-2024/"><u>Image Banking Securing Premium Stock Graphics for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-inheritance-a-modern-twist-on-a-classic-platform/"><u>Instagram's Inheritance: A Modern Twist on a Classic Platform</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-through-nvidias-revolutionary-rtx-ai-bot-install-and-utilize-on-desktop-computers/"><u>Navigating Through NVIDIA’s Revolutionary RTX AI Bot - Install and Utilize on Desktop Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149455836-top-social-network-cast-your-vote/"><u>Top Social Network: Cast Your Vote!</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-instagrams-conversational-space-is-disbanding/"><u>Why Instagram's Conversational Space Is Disbanding</u></a></li>
+</ul></div>
 

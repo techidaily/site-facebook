@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Undercover Messages: A Guide to FB Texts"
-date: 2024-09-15T17:50:11.753Z
-updated: 2024-09-21T22:44:45.831Z
+date: 2024-10-06T20:27:55.328Z
+updated: 2024-10-09T01:03:50.111Z
 tags:
   - facebook
 categories:
@@ -60,15 +60,22 @@ thumbnail: https://thmb.techidaily.com/a2ba2cec543d3cb7d73549581bf87f628b1caa22c
 
 ![Facebook Message Request Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Message-Request-Delivery.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  To see this on the mobile Messenger app, slide out the left menu, tap the**Settings** gear, and go to**Privacy & safety > Message delivery** .
 
  Note that in addition to the below controls, Facebook will move messages it detects as going against its Community Standards to Spam. In addition, people from Marketplace, Facebook Dating, or a Facebook job post can message you directly.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Potential Connections: Legitimate Requests
@@ -76,13 +83,6 @@ thumbnail: https://thmb.techidaily.com/a2ba2cec543d3cb7d73549581bf87f628b1caa22c
  In the**Potential Connections** section, you can choose how to handle message requests from**People with your phone number** and**Friends of friends on Facebook** . The former includes anyone who has your[number in their phone and has uploaded it to Facebook](https://www.makeuseof.com/tag/upload-delete-phone-contacts-facebook/) , even if they aren’t Facebook friends with you. This is relevant since you can[use Messenger without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
 
  For both of these, opt to have new messages go to**Chats** (your main inbox),**Message requests** , or**Don’t receive requests** to block them.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Other People: Probably Spam
 
@@ -94,7 +94,27 @@ thumbnail: https://thmb.techidaily.com/a2ba2cec543d3cb7d73549581bf87f628b1caa22c
 
 ![01b Messenger Privacy Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01b-Messenger-Privacy-Menu.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![01c Messenger Message Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01c-Messenger-Message-Delivery.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -110,13 +130,6 @@ Close
 
  This is useful for reducing clutter in your message list, without deleting the thread in case you need it later.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Block People on Facebook Messenger
 
  To complete our discussion on managing hidden and unread messages on Messenger, don’t forget you can[block people on Messenger](https://www.makeuseof.com/how-to-block-and-unblock-messenger/) to prevent them from contacting you. To access this page, click the same three-dot menu in Messenger and choose**Preferences > Manage blocking** . This brings you to the[Blocking tab](https://www.facebook.com/settings/?tab=blocking) of your Facebook settings.
@@ -126,10 +139,10 @@ Close
 ![Facebook Messenger Blocking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Messenger-Blocking.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Seek and Find Hidden Messages on Facebook Messenger
@@ -153,5 +166,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-experts-to-follow-on-igtv/"><u>[New] Experts to Follow on IGTV</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unveiling-the-full-potential-of-powerdirector-24/"><u>[New] Unveiling the Full Potential of PowerDirector '24</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-premium-selection-excellent-webcam-platforms/"><u>[Updated] Premium Selection Excellent Webcam Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-facebook-page-polling/"><u>A Step-by-Step Guide to Facebook Page Polling</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/apple-device-exclusive-reviews-top-voice-recorders-unveiled/"><u>Apple Device Exclusive Reviews Top Voice Recorders Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-engaging-translated-content-for-social-networking-sites/"><u>Creating Engaging Translated Content for Social Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-how-facebook-profits-from-musicians-tunes/"><u>Discovering How Facebook Profits From Musicians’ Tunes</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/flawless-free-android-snapmaker-for-2024/"><u>Flawless Free Android SnapMaker for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-couch-to-city-facebooks-mobile-portal/"><u>From Couch to City: Facebook's Mobile Portal</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/generate-laughter-giphys-art/"><u>Generate Laughter Giphy's Art</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-honor-magic-6-pro-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Honor Magic 6 Pro without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-unlock-apple-id-without-phone-number-from-iphone-se-2022-by-drfone-ios/"><u>In 2024, Unlock Apple ID without Phone Number From iPhone SE (2022)</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-of-metas-latest-privacy-statute/"><u>Navigating the Nuances of Meta's Latest Privacy Statute</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-for-good-top-7-positives-from-social-sites/"><u>Networking for Good: Top 7 Positives From Social Sites</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/nvidia-rtx-tiri-driver-for-widnows-10-8-and-7-get-your-free-download-here/"><u>NVIDIA RTX ˈtiːɡri Driver for Widnows 10, 8 & 7 - Get Your Free Download Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/stake-in-the-game-understanding-crypto-stablecoins/"><u>Stake in the Game: Understanding Crypto Stablecoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-fbcta-a-personal-perspective/"><u>The Impact of FBCTA: A Personal Perspective</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-marketplace-unveiled-facebooks-new-friday-venture/"><u>Virtual Marketplace Unveiled: Facebook's New Friday Venture</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/your-ultimate-guide-to-samsungs-best-gear-vr-games-for-2024/"><u>Your Ultimate Guide to Samsung's Best Gear VR Games for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Understanding FB Photo Access Restrictions
-date: 2024-09-14T20:55:46.139Z
-updated: 2024-09-21T16:32:49.958Z
+date: 2024-10-04T01:57:48.503Z
+updated: 2024-10-08T19:47:21.092Z
 tags:
   - facebook
 categories:
@@ -62,10 +62,16 @@ thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
@@ -79,10 +85,10 @@ thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
@@ -99,6 +105,13 @@ thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Photos You're Tagged In
 
  Great, so that covers everything you've uploaded yourself, but what about photos of you that other people have uploaded? How can you make those private?
@@ -111,16 +124,16 @@ thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b
 
  If you feel the image is abusive, you click on the**Report** link to let Facebook know. If the company agrees, it will remove the photo.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Tag Suggestions
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
@@ -143,5 +156,24 @@ thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-pursuing-perfection-in-lengthy-iphone-photography/"><u>[New] 2024 Approved Pursuing Perfection in Lengthy iPhone Photography</u></a></li>
+<li><a href="https://facebook.techidaily.com/connective-convergence-unveiling-the-top-20-social-network-sites/"><u>Connective Convergence: Unveiling the Top 20 Social Network Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-exchanges-a-comprehensive-guide-to-facebooks-latest-moderation-advancements/"><u>Elevating Exchanges: A Comprehensive Guide to Facebook's Latest Moderation Advancements</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-user-engagement-with-auto-generated-imagery-titles/"><u>Enhancing User Engagement with Auto-Generated Imagery Titles</u></a></li>
+<li><a href="https://article-tips.techidaily.com/essential-breakdown-for-wm6-setup/"><u>Essential Breakdown for WM6 Setup</u></a></li>
+<li><a href="https://techtrends.techidaily.com/featured-photographer-nicola-armondi-explore-captivating-images-with-movavi/"><u>Featured Photographer Nicola Armondi - Explore Captivating Images with Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-report-an-underage-facebook-account/"><u>How to Report an Underage Facebook Account</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-premier-pro-ultimate-2023-template-collection-free/"><u>In 2024, Premier Pro Ultimate 2023 Template Collection (FREE)</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-gif-magic-tips-and-tricks-for-creating-captivating-3d-image-rotations/"><u>Mastering GIF Magic: Tips and Tricks for Creating Captivating 3D Image Rotations</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-connection-problems-for-microsoft-wireless-display-on-win10-computers/"><u>Resolving Connection Problems for Microsoft Wireless Display on Win10 Computers</u></a></li>
+<li><a href="https://games-able.techidaily.com/unleash-the-power-of-game-launchers-on-your-steam-deck/"><u>Unleash the Power of Game Launchers on Your Steam Deck</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-iphone-se-2022-without-passcode-easily-by-drfone-ios/"><u>Unlock iPhone SE (2022) Without Passcode Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-major-technological-gaffes-of-22/"><u>Unraveling the Major Technological Gaffes of '22</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unveiling-the-future-of-immersion-sony-vr-gadget-details-and-anticipated-launch-info/"><u>Unveiling the Future of Immersion: Sony VR Gadget Details and Anticipated Launch Info</u></a></li>
+<li><a href="https://facebook.techidaily.com/viral-truth-social-platforms-halting-covid-19-fabrications/"><u>Viral Truth: Social Platforms Halting COVID-19 Fabrications</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-just-feed-mean-for-your-social-media-experience/"><u>What Does 'Just Feed' Mean for Your Social Media Experience?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-real-life-experiences-matter-more-than-virtual-friends-on-facebook/"><u>Why Real-Life Experiences Matter More Than Virtual Friends on Facebook</u></a></li>
+</ul></div>
 

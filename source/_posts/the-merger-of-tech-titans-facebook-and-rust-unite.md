@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2024-09-26T18:28:59.266Z
-updated: 2024-10-03T18:54:22.729Z
+date: 2024-10-06T17:21:50.205Z
+updated: 2024-10-08T21:57:17.592Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -60,20 +60,24 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-the-shadows-a-systematic-guide-to-hidden-youtube-content/"><u>[New] Unveiling the Shadows A Systematic Guide to Hidden YouTube Content</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-navigating-the-tiktok-facebook-content-exchange/"><u>[Updated] 2024 Approved Navigating the TikTok-Facebook Content Exchange</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-unleash-creativity-with-gopros-time-lapse-technology-for-2024/"><u>[Updated] Unleash Creativity with GoPro's Time-Lapse Technology for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/has-social-networking-changed-the-privacy-of-our-contacts/"><u>Has Social Networking Changed the Privacy of Our Contacts?</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-transform-images-into-textbooks-photo-text-editor-hacks/"><u>In 2024, Transform Images Into Textbooks Photo Text Editor Hacks</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-and-analysis-enhancing-your-driving-experience-with-the-lihan-lhfm1039-wireless-fm-transmitter/"><u>In-Depth Review and Analysis: Enhancing Your Driving Experience with the LIHAN LHFM1039 Wireless FM Transmitter</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-the-metaverse-a-new-threat-here-are-three-reasons-to-be-careful/"><u>Is the Metaverse a New Threat? Here Are Three Reasons to Be Careful</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/make-gif-on-iphone-top-10-gif-apps-for-iphone-x876/"><u>Make GIF on iPhone Top 10 GIF Apps for iPhone X/8/7/6</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/master-looped-video-techniques-for-instagram-top-4-strategies-for-2024/"><u>Master Looped Video Techniques for Instagram Top 4 Strategies for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/master-the-art-of-vocal-to-text-conversion-with-windows-whisper/"><u>Master the Art of Vocal to Text Conversion with Windows Whisper</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-unlocks-trumps-online-accounts/"><u>Meta Unlocks Trump's Online Accounts</u></a></li>
-<li><a href="https://program-issues.techidaily.com/overcoming-the-failed-to-load-steamuidll-problem-in-steam-game-launcher/"><u>Overcoming the 'Failed to Load steamui.dll' Problem in Steam Game Launcher</u></a></li>
-<li><a href="https://facebook.techidaily.com/severing-social-ties-removing-instagram-links-to-facebook/"><u>Severing Social Ties: Removing Instagram Links to Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-new-era-of-content-tiktok-eats-into-facebooks-pieces/"><u>The New Era of Content: TikTok Eats Into Facebook’s Pieces</u></a></li>
-<li><a href="https://facebook.techidaily.com/unearthing-prior-public-commentaries-on-fb/"><u>Unearthing Prior Public Commentaries on FB</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-mastering-17-techniques-to-log-digital-broadcasts/"><u>[Updated] 2024 Approved Mastering 17 Techniques to Log Digital Broadcasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mastering-tags-a-must-read-before-uploading/"><u>[Updated] Mastering Tags A Must-Read Before Uploading</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-nokia-g310-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-poco-c51-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Poco C51 is off? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/clarifying-what-counts-as-a-joke-on-fb/"><u>Clarifying What Counts as a Joke on FB</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-philips-hf3505-sunrise-simulation-wake-up-lamp/"><u>Comprehensive Review of the Philips HF3505 Sunrise Simulation Wake-Up Lamp</u></a></li>
+<li><a href="https://facebook.techidaily.com/debunking-myths-the-truth-about-facebook-user-counts/"><u>Debunking Myths: The Truth About Facebook User Counts</u></a></li>
+<li><a href="https://facebook.techidaily.com/explaining-photodnas-role-in-fighting-fraud/"><u>Explaining PhotoDNA's Role in Fighting Fraud</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-group-administrators-and-the-legal-storm-with-amazon/"><u>Facebook's Group Administrators and the Legal Storm with Amazon</u></a></li>
+<li><a href="https://facebook.techidaily.com/freelancers-ultimate-destination-list/"><u>Freelancer's Ultimate Destination List</u></a></li>
+<li><a href="https://facebook.techidaily.com/grasp-the-core-points-in-metas-revised-data-protection-plan/"><u>Grasp the Core Points in Meta's Revised Data Protection Plan</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-windows-10-installation-error-80240020-comprehensive-guide/"><u>How to Fix Windows 10 Installation Error 802^40020 - Comprehensive Guide</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/how-to-upgrade-intelligent-hd-graphics-support-in-windows/"><u>How to Upgrade Intelligent HD Graphics Support in Windows</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-gps-location-on-itel-p40plus-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Itel P40+ Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-your-impact-instagrams-latest-payment-avenues-explored/"><u>Maximize Your Impact: Instagram's Latest Payment Avenues Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-game-changer-could-facebook-ditch-giphys-services/"><u>Potential Game Changer: Could Facebook Ditch Giphy's Services?</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-connection-the-unveiling-of-facebooks-new-identity-meta/"><u>Rethinking Connection: The Unveiling of Facebook’s New Identity, Meta</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-sound-pop-issues-on-windows-step-by-step-troubleshooting-tips/"><u>Solving Sound Pop Issues on Windows: Step-by-Step Troubleshooting Tips</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/xsplit-collection-comprehensive-gaming-review/"><u>XSplit Collection Comprehensive Gaming Review</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Rumors of Social Media Giant Curtailing Transparent Advertising
-date: 2024-09-20T18:36:27.479Z
-updated: 2024-09-21T23:39:17.153Z
+date: 2024-10-05T22:42:37.286Z
+updated: 2024-10-08T22:20:21.101Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
  In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Responds to Signal's Move
 
 Facebook responded with the following statement to the media:
@@ -44,6 +51,13 @@ Facebook responded with the following statement to the media:
 
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Signal's Ads You’ll Never See on Instagram
 
  Signal created other ads to drive its message home, with one of the ads reading as follows:
@@ -53,10 +67,10 @@ Facebook responded with the following statement to the media:
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is This Nothing But a PR Stunt on Signal's Part?
@@ -82,5 +96,19 @@ Facebook responded with the following statement to the media:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-gratuitous-access-to-top-digital-editing-suites/"><u>[New] Gratuitous Access to Top Digital Editing Suites</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-beauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>[Updated] 2024 Approved Beauty Vlogs From Basics to Brilliance Launching a YouTube Channel</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-4-ways-to-record-powerpoint-presentation-with-webcam-2023/"><u>[Updated] 4 Ways to Record PowerPoint Presentation with Webcam 2023</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-vivo-y28-5g-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Vivo Y28 5G using Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-voice-in-unison-for-the-digital-stage/"><u>In 2024, Voice-in-Unison for the Digital Stage</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-local-spaces-the-future-on-facebooks-map/"><u>Interactive Local Spaces: The Future on Facebook’s Map</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-newsfeed-moderation-to-avoid-unfavorable-ads/"><u>Mastering Newsfeed Moderation to Avoid Unfavorable Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviving-old-connections-post-unfriending/"><u>Reviving Old Connections Post-Unfriending</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-messaging-on-the-rise-facebook-boosts-messenger-and-instagram-tools/"><u>Social Messaging on the Rise: Facebook Boosts Messenger & Instagram Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/summarizing-googles-landmark-events/"><u>Summarizing Google's Landmark Events</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/the-hottest-most-impactful-tiktok-developments/"><u>The Hottest, Most Impactful TikTok Developments</u></a></li>
+</ul></div>
 

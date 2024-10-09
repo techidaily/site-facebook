@@ -1,7 +1,7 @@
 ---
 title: Social Networking Meets Software Innovation via Facebook and Rust
-date: 2024-09-26T21:23:41.775Z
-updated: 2024-10-03T22:45:39.611Z
+date: 2024-10-02T22:39:25.135Z
+updated: 2024-10-08T19:38:16.780Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,16 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -60,17 +66,24 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-high-definition-playtime-best-hdmi-21-gaming-displays-ps5-compatible/"><u>[New] 2024 Approved High Definition Playtime Best HDMI 2.1 Gaming Displays [PS5 Compatible]</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-chuckles-and-cheers-top-tweets-saver-with-gif/"><u>[Updated] In 2024, Chuckles & Cheers Top Tweets Saver with GIF</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-designing-for-success-how-space-arrangement-boosts-work-performance/"><u>[Updated] In 2024, Designing for Success How Space Arrangement Boosts Work Performance</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-streamlining-youtube-content-onto-insta-feed-for-2024/"><u>[Updated] Streamlining YouTube Content Onto Insta Feed for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-maximizing-multi-display-with-ms-edges-pip/"><u>2024 Approved Maximizing Multi-Display with MS Edge's PIP</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-does-facebook-justify-permitting-duplicate-personal-profiles/"><u>How Does Facebook Justify Permitting Duplicate Personal Profiles?</u></a></li>
-<li><a href="https://facebook.techidaily.com/implementing-a-controlled-cycle-of-online-socializing/"><u>Implementing a Controlled Cycle of Online Socializing</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-troubleshooting-airdrop-issues-iphoneipadmac-solutions/"><u>In 2024, Troubleshooting Airdrop Issues IPhone/iPad/Mac Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/large-internet-companies-face-backlash-facebook-most-feared/"><u>Large Internet Companies Face Backlash, Facebook Most Feared</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-delayed-strategy-understanding-the-push-to-2023-for-encryption/"><u>Meta's Delayed Strategy: Understanding the Push to 2023 for Encryption</u></a></li>
-<li><a href="https://facebook.techidaily.com/trump-demands-unbiased-platforms-in-freedom-of-expression-case/"><u>Trump Demands Unbiased Platforms in Freedom of Expression Case</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/why-is-my-chatgpt-account-blocked-understanding-the-4-main-reasons-with-remedies/"><u>Why Is My ChatGPT Account Blocked? Understanding the 4 Main Reasons with Remedies</u></a></li>
+<li><a href="https://facebook.techidaily.com/hashed-hay-a-novel-animal-pet-naming-trend/"><u>'Hashed Hay': A Novel Animal Pet Naming Trend</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-vivo-y100t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-forward-in-securing-online-communications-newly-launched-end-to-end-encrypted-features-on-facebook-platforms/"><u>A Step Forward in Securing Online Communications: Newly Launched End-to-End Encrypted Features on Facebook Platforms</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/apple-m1-pro-vs-m1-max-the-difference-between-them/"><u>Apple M1 Pro Vs. M1 Max The Difference Between Them</u></a></li>
+<li><a href="https://extra-information.techidaily.com/breaking-down-complex-gif-concepts-for-beginners-for-2024/"><u>Breaking Down Complex GIF Concepts for Beginners for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/conquer-lunapic-elevate-your-photographic-skills-for-2024/"><u>Conquer Lunapic Elevate Your Photographic Skills for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-a-friendly-interface-revolutionize-your-neighborhoods-retail-scene/"><u>Could a Friendly Interface Revolutionize Your Neighborhood's Retail Scene?</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-clear-guidelines-for-your-facebook-community/"><u>Crafting Clear Guidelines for Your Facebook Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-currency-with-creativity-the-influence-of-reels-on-monetary-gain/"><u>Creating Currency with Creativity: The Influence of Reels on Monetary Gain</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discord-hitch-how-to-diagnose-whether-its-an-outage-or-personal-internet-issues/"><u>Discord Hitch? How to Diagnose Whether It’s an Outage or Personal Internet Issues.</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-self-expression-online-how-to-update-your-profile-handle/"><u>Elevating Self-Expression Online: How to Update Your Profile Handle</u></a></li>
+<li><a href="https://win11.techidaily.com/gaining-admin-access-in-command-prompt/"><u>Gaining Admin Access in Command Prompt</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-mastering-sound-a-comprehensive-guide-to-normalizing-audio-in-multimedia-content/"><u>New 2024 Approved Mastering Sound A Comprehensive Guide to Normalizing Audio in Multimedia Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-social-spaces-with-facebooks-audio-innovation/"><u>Reimagining Social Spaces with Facebook's Audio Innovation</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/simple-strategy-to-declutter-your-inbox-no-complicated-filters-required-techradar/"><u>Simple Strategy to Declutter Your Inbox: No Complicated Filters Required! | TechRadar</u></a></li>
+<li><a href="https://facebook.techidaily.com/smartwatch-pioneers-could-facebook-lead-with-two-detachable-cameras/"><u>Smartwatch Pioneers: Could Facebook Lead with Two Detachable Cameras?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-power-of-virality-on-instagram-revealed-10-essential-techniques/"><u>The Power of Virality on Instagram Revealed: 10 Essential Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-privacy-price-avoid-facebooks-web-logging-feature/"><u>The Privacy Price: Avoid Facebook’s Web Logging Feature</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-rated-free-dvd-player-software-compatible-with-windows-11-a-comprehensive-guide/"><u>Top-Rated Free DVD Player Software Compatible with Windows 11: A Comprehensive Guide</u></a></li>
 </ul></div>
 

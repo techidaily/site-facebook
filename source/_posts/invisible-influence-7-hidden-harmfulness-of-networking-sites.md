@@ -1,7 +1,7 @@
 ---
 title: "Invisible Influence: 7 Hidden Harmfulness of Networking Sites"
-date: 2024-09-28T17:57:04.956Z
-updated: 2024-10-03T16:40:13.439Z
+date: 2024-10-06T20:42:49.010Z
+updated: 2024-10-09T03:53:41.200Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Depression and Anxiety
@@ -61,6 +61,13 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. FOMO (Fear of Missing Out)
 
  Fear of Missing Out (FOMO) is a phenomenon that became prominent around the same time as the rise of social media. Unsurprisingly, it's one of the most widespread negative effects of social media on society.
@@ -73,19 +80,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
  As most people are probably aware, social media forms unrealistic expectations of life and friendships in our minds.
@@ -97,6 +91,13 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  One simple way out of this mess is for everyone to quit lying on social media. But in the era of Instagram influencers and[YouTubers who earn millions](https://www.makeuseof.com/how-much-money-youtubers-make/) from being inauthentic, that isn't going to happen anytime soon.
 
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Negative Body Image
 
@@ -120,22 +121,16 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7\. General Addiction
 
 ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
@@ -144,13 +139,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  At the end of the day, social media sites want to keep you scrolling for as long as possible so they can show you lots of ads and make more money. Because of[the attention economy](https://www.makeuseof.com/tag/what-is-attention-economy/) , these sites need your eyes on them for as long as possible. Apps like TikTok feed you a constant barrage of quick videos that destroy your attention span over time.
 
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our[guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Handle the Negative Effects of Social Media
 
@@ -173,22 +161,18 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-mastery-guide-securely-archiving-snapchat-media-on-devices/"><u>[Updated] In 2024, Mastery Guide Securely Archiving Snapchat Media on Devices</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-mastering-pc-tiktok-live-streams-a-step-by-step-guide-for-2024/"><u>[Updated] Mastering PC TikTok Live Streams A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-game-on-selecting-the-finest-displays-for-your-xbox-series-x-console/"><u>2024 Approved Game On Selecting the Finest Displays for Your Xbox Series X Console</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/adobes-flash-player-and-its-security-risks-insights-from-malwarefox/"><u>Adobe's Flash Player and Its Security Risks, Insights From MalwareFox</u></a></li>
-<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-samsung-galaxy-a34-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Samsung Galaxy A34 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-experience-via-shortcut-customization/"><u>Enhancing Your Facebook Experience via Shortcut Customization</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-big-secret-an-examination-of-its-files/"><u>Facebook's Big Secret: An Examination of Its Files</u></a></li>
-<li><a href="https://games-able.techidaily.com/game-on-a-guide-to-incorporating-launchers-on-dev-consoles/"><u>Game On: A Guide to Incorporating Launchers on Dev Consoles</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-change-your-name-on-facebook/"><u>How to Change Your Name on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-approach-extending-e2e-encryption-default-to-next-year-why/"><u>Meta's Approach: Extending E2E Encryption Default to Next Year, Why?</u></a></li>
-<li><a href="https://driver-install.techidaily.com/perfect-your-thinkpad-embrace-win11-driver-update/"><u>Perfect Your Thinkpad: Embrace Win11 Driver Update</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolving-windows-11-error-code-0xc19001e1-step-by-step-fix/"><u>Resolving Windows 11 Error Code 0xC19001E1 - Step by Step Fix</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/top-30-metaverse-meme-creation-tips-and-trends/"><u>Top 30 Metaverse Meme Creation Tips & Trends</u></a></li>
-<li><a href="https://facebook.techidaily.com/unity-and-progress-unveiling-7-social-benefits/"><u>Unity and Progress: Unveiling 7 Social Benefits</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-messengers-without-a-facebook-account/"><u>Unlocking Messengers Without a Facebook Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/winning-back-your-money-requesting-a-refund-on-facebook/"><u>Winning Back Your Money: Requesting a Refund on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/wnb-players-online-fb-twt-unite-for-broadcasts/"><u>WNB Players Online: FB, Twt Unite for Broadcasts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-non-retweeting-video-tweets-from-your-phone/"><u>[New] 2024 Approved Non-Retweeting Video Tweets From Your Phone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-postpresence-mastering-photo-and-video-sizing-on-instagram/"><u>[New] In 2024, PostPresence Mastering Photo and Video Sizing on Instagram</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unmasking-the-top-10-clandestine-story-gurus/"><u>[New] Unmasking the Top 10 Clandestine Story Gurus</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-oculus-illness-prevention-guide/"><u>[Updated] In 2024, Oculus Illness Prevention Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-beginners-guide-to-mesmerizing-bokeh-in-instagram-stories/"><u>[Updated] The Beginner’s Guide to Mesmerizing Bokeh in Instagram Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-swipe-to-the-future-understanding-facebooks-new-dating-landscape/"><u>A Swipe to the Future: Understanding Facebook's New Dating Landscape</u></a></li>
+<li><a href="https://win-answers.techidaily.com/banish-your-woes-in-star-wars-jedi-fallen-order-squadron-with-fixes-for-critical-errors/"><u>Banish Your Woes in Star Wars Jedi: Fallen Order Squadron with Fixes for Critical Errors!</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-sensational-stories-rethinking-social-media-scandals/"><u>Beyond the Sensational Stories: Rethinking Social Media Scandals</u></a></li>
+<li><a href="https://facebook.techidaily.com/breathe-life-back-into-vanished-facebook-interactions/"><u>Breathe Life Back Into Vanished Facebook Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/compiling-googles-landmark-news-moments-in-a-nutshell/"><u>Compiling Google's Landmark News Moments in a Nutshell</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-how-much-money-can-a-podcaster-make/"><u>In 2024, How Much Money Can a Podcaster Make?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-honor-play-8t-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Honor Play 8T Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144840090-should-you-harness-facebooks-power-for-your-events-heres-why-not/"><u>Should You Harness Facebook's Power for Your Events? Here's Why Not</u></a></li>
 </ul></div>
 

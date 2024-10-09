@@ -1,7 +1,7 @@
 ---
 title: Ten Steps to Dodge Suspicious Social Media Invites
-date: 2024-09-30T20:03:40.920Z
-updated: 2024-10-03T17:54:00.189Z
+date: 2024-10-03T01:45:29.362Z
+updated: 2024-10-08T21:35:36.974Z
 tags:
   - facebook
 categories:
@@ -34,18 +34,18 @@ thumbnail: https://thmb.techidaily.com/1a08c8dedd48664d90b507bda304483e40c9a1d2d
 
  Once a scammer gets some clues, they work quickly. Automatic software lets them check hundreds of passwords per minute until something works. To stay safe, you need to guard your information.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. Remove Personal Details From Your Facebook Profile
 
 ![A vulnerable Facebook profile, with the user's real name, photo, and personal information.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---main-page-1.jpg)
 
 ![A vulnerable Facebook profile showing all the places the user has lived and gone to school.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---school-and-hometown-history-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![A vulnerable Facebook profile detailing all the user's workplaces](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---work-history-1.jpg)
 
@@ -61,20 +61,13 @@ Close
 
 ![Secure Facebook Profile with Face and Details Hidden](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Secure-Facebook-Profile-with-Face-and-Details-Hidden.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![A blank Work Education and Places Lived page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-blank-Work-Education-and-Places-Lived-page-on-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Messenger blocking messages from a stranger on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Messenger-blocking-messages-from-a-stranger-on-Facebook.jpg)
@@ -90,10 +83,10 @@ Close
 ![Profile Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Profile-Privacy-Settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  If you've used Facebook for a while, you have a lot of information organized on your profile. You might not want to remove it, since it's a handy reference tool. If you want to keep this data on Facebook, make sure you're the only one who can see it.
@@ -102,48 +95,42 @@ Close
 
 It’s a good idea to do a privacy check on a regular basis.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Remove Access to Facebook From Suspicious Apps
 
 ![Authorized apps list on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Authorized-apps-list-on-Facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Apps often request access to your Facebook profile. In most cases, the access just enables the app's social media sharing options. But it’s still a good idea to check your Authorized Apps.
 
  You can see them under**Settings & Privacy** \>**Settings** \>**Apps and Websites** . Remove any apps you don’t recognize. Remember that apps where you**Log in with Facebook** will appear on this list, too.
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Don’t Click Strange URLs on Facebook
 
 ![Examining a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Examining-a-suspicious-link-on-FB-Messenger.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![A fake Facebook Login Page with scam signs highlighted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-fake-Facebook-Login-Page-with-scam-signs-highlighted.jpg)
 
 ![Receiving a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Receiving-a-suspicious-link-on-FB-Messenger.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -154,6 +141,13 @@ Close
  If you receive such a message, even from a friend, don’t follow the directions or open the link. Instead, reply and ask what's going on. Your friend can tell you what's going on, but a bot won’t reply.
 
  If you're still unsure, you can check a link’s destination using a web app that tests it for you. We’ve compiled a list of[reliable link-checking services](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) for you to pick from.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Know the Signs of a Facebook Scam
 
@@ -192,10 +186,10 @@ Close
  If you want to talk to a stranger, you don’t have to be Facebook friends. You can use Messenger. Go to**Settings & Privacy** \>**Settings** \>**Privacy** and enable**Message Requests** .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. Use a Strong Password for Your Facebook Account
@@ -227,24 +221,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-practical-ways-keeping-a-record-of-google-voice-interactions/"><u>[New] In 2024, Practical Ways Keeping a Record of Google Voice Interactions</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-unleash-creativity-the-newcomers-snapseed-tutorial/"><u>[Updated] 2024 Approved Unleash Creativity The Newcomer's Snapseed Tutorial</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-harmonizing-film-teasers-with-music-selections/"><u>[Updated] In 2024, Harmonizing Film Teasers with Music Selections</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/deciphering-trillers-unique-positioning-amidst-social-media-titles/"><u>Deciphering Triller's Unique Positioning Amidst Social Media Titles</u></a></li>
-<li><a href="https://facebook.techidaily.com/guardrails-for-gaining-safely-in-the-social-sphere/"><u>Guardrails for Gaining Safely in the Social Sphere</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-x-to-other-iphone-11-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone X to other iPhone 11 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-cutting-edge-5-home-movie-maker/"><u>In 2024, Cutting-Edge 5 Home Movie Maker</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-in-depth-analysis-of-slomo-video-capture-tool/"><u>In 2024, In-Depth Analysis of SloMo Video Capture Tool</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Infinix Note 30? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-facebooks-pitfalls-solutions-for-11-troublesome-mistakes/"><u>Mastering Facebook's Pitfalls: Solutions for 11 Troublesome Mistakes</u></a></li>
-<li><a href="https://facebook.techidaily.com/personalizing-your-whatsapp-dialogue-with-social-media-photos/"><u>Personalizing Your WhatsApp Dialogue With Social Media Photos</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722972263903-quick-download-arduino-mega-2560-drivers-get-set-up-fast/"><u>Quick Download: Arduino Mega 2560 Drivers - Get Set Up Fast!</u></a></li>
-<li><a href="https://facebook.techidaily.com/re-establishing-fb-passcode-for-increased-safety/"><u>Re-Establishing FB Passcode for Increased Safety</u></a></li>
-<li><a href="https://facebook.techidaily.com/supercharge-your-social-media-with-these-top-fb-app-configs/"><u>Supercharge Your Social Media with These Top FB App Configs</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ethics-behind-virtual-dissension-tools/"><u>The Ethics Behind Virtual Dissension Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-foundation-of-robust-online-communities-rules-and-modifications/"><u>The Foundation of Robust Online Communities: Rules & Modifications</u></a></li>
-<li><a href="https://facebook.techidaily.com/toggle-facebooks-nighttime-display-setting/"><u>Toggle Facebook's Nighttime Display Setting</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-you-need-to-know-about-facebooks-user-interface-makeover/"><u>What You Need to Know About Facebook's User Interface Makeover</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-comedy-crusade-youtubes-hottest-laughter-leaders-for-2024/"><u>[Updated] Comedy Crusade YouTube's Hottest Laughter Leaders for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-video-platform-review-is-vimeo-best-over-youtubes-and-dailymotions/"><u>2024 Approved Video Platform Review Is Vimeo Best Over YouTubes and DailyMotions?</u></a></li>
+<li><a href="https://facebook.techidaily.com/breach-resetting-oculus-q2-sales-soar-amongst-facebookers/"><u>Breach Resetting - Oculus Q2 Sales Soar Amongst Facebookers</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-tactics-for-retrieving-a-hidden-facebook-account/"><u>Comprehensive Tactics for Retrieving a Hidden Facebook Account</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/comprendre-le-format-de-fichier-ogg-guide-complet-pour-lire-et-utiliser-les-fichiers-au-format-ogg/"><u>Comprendre Le Format De Fichier OGG : Guide Complet Pour Lire Et Utiliser Les Fichiers Au Format OGG</u></a></li>
+<li><a href="https://games-able.techidaily.com/deciphering-ai-driven-nvidias-dlss-35-features/"><u>Deciphering AI-Driven Nvidia's DLSS 3.5 Features</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/enhancing-power-preservation-in-gopro-cameras/"><u>Enhancing Power Preservation in GoPro Cameras</u></a></li>
+<li><a href="https://driver-install.techidaily.com/expedite-windows-drivers-with-winos/"><u>Expedite Windows Drivers with WinOS</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fixing-the-absent-physxloaderdll-file-quick-solutions-and-tips/"><u>Fixing the Absent PhysXLoader.dll File - Quick Solutions and Tips</u></a></li>
+<li><a href="https://games-able.techidaily.com/gamers-delight-keychron-meets-lemokey-l3/"><u>Gamer's Delight: Keychron Meets Lemokey L3</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-your-digital-world-identifying-fb-breaches/"><u>Guard Your Digital World: Identifying FB Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonizing-your-hands-on-gaming-and-online-connectivity-on-xbox/"><u>Harmonizing Your Hands-On Gaming and Online Connectivity on Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-facebooks-transparency-center-to-understand-the-social-network-better/"><u>How to Use Facebook's Transparency Center to Understand the Social Network Better</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-on-detaching-spotify-accounts-from-facebook-sites/"><u>Instructions on Detaching Spotify Accounts From Facebook Sites</u></a></li>
+<li><a href="https://games-able.techidaily.com/perfect-pad-selection-guide-for-players/"><u>Perfect Pad Selection Guide for Players</u></a></li>
+<li><a href="https://facebook.techidaily.com/quieten-facebook-eyes-off-facebook-hub-knowledge/"><u>Quieten Facebook Eyes - Off-Facebook Hub Knowledge</u></a></li>
+<li><a href="https://video-capture.techidaily.com/record-ruckus-samsung-phone-gaming-chronicles-for-2024/"><u>Record Ruckus Samsung Phone Gaming Chronicles for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-made-easier-intelligent-photo-captioning-systems/"><u>Social Media Made Easier: Intelligent Photo Captioning Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/transition-your-online-footprint-update-your-date-of-birth-fb/"><u>Transition Your Online Footprint: Update Your Date of Birth (FB)</u></a></li>
 </ul></div>
 

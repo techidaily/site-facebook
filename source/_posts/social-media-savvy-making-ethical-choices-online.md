@@ -1,7 +1,7 @@
 ---
 title: "Social Media Savvy: Making Ethical Choices Online"
-date: 2024-09-30T18:57:20.663Z
-updated: 2024-10-03T19:58:41.599Z
+date: 2024-10-01T20:25:41.980Z
+updated: 2024-10-08T20:38:46.078Z
 tags:
   - facebook
 categories:
@@ -38,13 +38,6 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 
 ![A collage of images](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/collage-images.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Images are a serious tool for getting things done in the Facebook marketing world. In fact, you could consider them to be a bit like billboards on your news feed. However, Facebook has a few guidelines for certain images that businesses post—else, they can get in a bit of trouble.
 
  For instance, cover photos on pages can't feature price or discount information, a call to action, or a request for users to Like and Share (which inherently is a call to action). In other areas, it's not much of an issue. However, do you really want an advertisement on your news feed when there are already enough on your sidebar?
@@ -57,28 +50,34 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 
 ![A megaphone with a blue sky background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/megaphone-blue-sky.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Whenever you look at Facebook business pages, you'll see loads of "Like or share" posts. This is known as a "call to action" (CTA) because it requests that users do something. CTAs are not just featured on[different types of landing pages](https://www.makeuseof.com/10-types-of-landing-pages-and-when-to-use-them/) , but right on social media in many little ways.
 
  Typically speaking, traditional calls to action are something along the lines of "Call for more information" or "Shoot us an email" so they can make a connection with you. In this case, the company is connecting with you and using you as a means of free advertising.
 
  Sometimes, as with the case of the images, there may be no call to action. The company may simply share an inspiring status update or a hilarious image, knowing that for some reason some users will feel the need to like or share it. You see, Facebook has already established the call to action for them. It's right there under every post: Share or Like.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Event RSVPs
 
 ![An image of an email with a Tick and Cross either side](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/rsvp-invite.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Signing up to events on RSVPs typically displays on your profile. This can give marketers information on what type of events you go to and in turn what topics you might be into, until the result is a fairly accurate picture of what type of marketing might work on you.
@@ -89,6 +88,13 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 
 ![The Facebook icon and a vector of a group of people](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-groups.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Facebook Groups is one of the last strong areas of the Facebook platform, with millions of users still engaging daily on them and talking about common interests. Keep in mind that the[useful ways to discover new Facebook Groups](https://www.makeuseof.com/tag/5-awesome-ways-discover-new-facebook-groups/) work for you as they do for marketers, who will absolutely research a niche's group list and join up.
 
  Marketers learned a while ago that Facebook Groups are a great resource for market research, speaking directly to potential customers, and learning about what you like and don't in order to learn how to target you (and others like you). It can come across a bit Facebook stalker-esque, but in reality marketers are just trying to find the best ways to communicate with you for your benefit as well as theirs.
@@ -98,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
  Joining private groups on Facebook can be a good way of ensuring some safety from marketers, depending on how strict the group is in terms of new membership signups.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Be Conscious of the Information You Provide
@@ -125,22 +131,17 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-create-compelling-animation-subscribe-bars-for-your-youtube-channel-filmora/"><u>[New] Create Compelling Animation Subscribe Bars for Your YouTube Channel (Filmora)</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/kyrocketing-numbers-a-guide-to-youtube-viewership-increase/"><u>[New] Skyrocketing Numbers A Guide to YouTube Viewership Increase</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-tips-for-amplifying-minecraft-performance-via-ram-increase/"><u>[Updated] 2024 Approved Tips for Amplifying Minecraft Performance via RAM Increase</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/camera-clash-which-wins-obs-or-twitch-studio/"><u>Camera Clash - Which Wins? OBS or Twitch Studio</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-sharing-experience-move-fb-content-to-top-3-apps-with-ease/"><u>Enhancing Sharing Experience: Move Fb Content to Top 3 Apps with Ease</u></a></li>
-<li><a href="https://extra-information.techidaily.com/1722986899268-fortnite-login-woes-bypass-the-frustration-with-our-quick-fix-tips/"><u>Fortnite Login Woes? Bypass the Frustration with Our Quick Fix Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/guardians-against-gimmicks-recognizing-counterfeit-profiles/"><u>Guardians Against Gimmicks: Recognizing Counterfeit Profiles</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/hidden-perspectives-what-youre-ignoring-as-a-stories-viewer-for-2024/"><u>Hidden Perspectives What You're Ignoring as a Stories Viewer for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/how-i-successfully-silenced-unwanted-white-hissing-sound-from-my-audio-system/"><u>How I Successfully Silenced Unwanted White Hissing Sound From My Audio System</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-detect-pcemail-over-intrusion/"><u>How to Detect PC/Email Over-Intrusion?</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-fb-losing-its-grip-on-giphy/"><u>Is FB Losing Its Grip on Giphy?</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/movavi-wmam4v/"><u>Movavi - WMAからM4Vに自由に変換:無料のオンラインサービス</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-virtual-markets-with-confidence-and-caution/"><u>Navigating Virtual Markets with Confidence and Caution</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/popular-photographs-their-narratives-unveiled/"><u>Popular Photographs Their Narratives Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/proper-method-to-disconnect-spotify-on-facebook/"><u>Proper Method to Disconnect Spotify on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/separating-fact-from-fiction-on-facebook-platforms/"><u>Separating Fact From Fiction on Facebook Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/silent-applause-keeping-your-social-engagements-private/"><u>Silent Applause: Keeping Your Social Engagements Private</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-zooming-into-success-video-converter-trio-techniques/"><u>[Updated] 2024 Approved Zooming Into Success Video Converter Trio Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-in-promoting-vacancies-through-fb/"><u>Best Practices in Promoting Vacancies Through FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-spots-to-traverse-for-freelance-employment/"><u>Best Spots to Traverse for Freelance Employment</u></a></li>
+<li><a href="https://facebook.techidaily.com/capture-your-life-stories-mastering-facebook-on-this-day/"><u>Capture Your Life Stories: Mastering Facebook On This Day</u></a></li>
+<li><a href="https://facebook.techidaily.com/career-enhancement-through-effective-social-media-use/"><u>Career Enhancement Through Effective Social Media Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-off-mobile-browsing-feature-facebook/"><u>Cutting Off Mobile Browsing Feature: Facebook</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/epic-evolutions-digitizing-decades-of-documentary-photographs-for-2024/"><u>Epic Evolutions Digitizing Decades of Documentary Photographs for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/how-to-fix-common-instagram-video-errors-for-2024/"><u>How to Fix Common Instagram Video Errors for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-honor-80-pro-straight-screen-edition-drfone-by-drfone-android/"><u>How to Screen Mirroring Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-defy-2-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Defy 2</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-from-novice-to-master-the-best-animation-makers-for-every-level/"><u>Updated From Novice to Master The Best Animation Makers for Every Level</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-syncing-sound-with-sight-a-comprehensive-walkthrough-to-enhance-video-content-for-2024/"><u>Updated Syncing Sound with Sight A Comprehensive Walkthrough to Enhance Video Content for 2024</u></a></li>
 </ul></div>
 

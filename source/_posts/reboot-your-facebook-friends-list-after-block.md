@@ -1,7 +1,7 @@
 ---
 title: Reboot Your Facebook Friends List After Block
-date: 2024-10-01T16:48:32.075Z
-updated: 2024-10-03T16:12:42.645Z
+date: 2024-10-02T16:53:44.564Z
+updated: 2024-10-08T22:23:01.990Z
 tags:
   - facebook
 categories:
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
  Use the right option for the situation and you shouldn't have to worry about unblocking and refriending people in the future. Follow our[guide to Facebook blocking](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) for more help.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Refriend Someone on Facebook After Unblocking Them
@@ -58,16 +58,10 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 ![Facebook Send Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/Facebook-Send-Friend-Request.png)
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Click that to send them a new friend request; if they accept, you'll be friends again. However, keep in mind that if you've had a bad interaction with this person, they may delete your request. If they do, Facebook provides the**Mark as Spam** option to them, which prevents you from sending more friend requests.
@@ -81,10 +75,10 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
  Finally, there's also a chance that your former friend deactivated their Facebook account while you had them blocked. To find out if this is the case, try asking a mutual friend if they're still friends with the person you had blocked. If they aren't using Facebook anymore, you'll have to connect with them elsewhere.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Refriending on Facebook Is Possible, Even After Blocking
@@ -108,15 +102,24 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-exploring-alternatives-the-10-best-non-vimeo-video-tools/"><u>[New] In 2024, Exploring Alternatives The 10 Best Non-Vimeo Video Tools</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-exploring-the-best-phone-apps-to-modify-voice-quality/"><u>[Updated] In 2024, Exploring the Best Phone Apps to Modify Voice Quality</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-visibility-on-social-platforms/"><u>Enhancing Visibility on Social Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-understanding-of-social-media-emojis-and-their-implications/"><u>Essential Understanding of Social Media Emojis & Their Implications</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-poco-x5-pro-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Poco X5 Pro Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/is-your-conversation-safe-with-chatgpt-exploring-privacy-concerns/"><u>Is Your Conversation Safe with ChatGPT: Exploring Privacy Concerns</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-sphere-success-a-step-by-step-guide/"><u>Social Sphere Success: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/the-comprehensive-walkthrough-for-seamless-downloads-expert-strategies-and-insider-knowledge-to-get-content-from-mixdrop-instantly/"><u>The Comprehensive Walkthrough for Seamless Downloads - Expert Strategies and Insider Knowledge to Get Content From MixDrop Instantly</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-elite-list-of-driverless-automobile-makers/"><u>The Elite List of Driverless Automobile Makers</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-12-promoters-of-covid-19-untruths/"><u>Top 12 Promoters of Covid-19 Untruths</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-chart-topping-storytellers-to-follow-on-youtube-this-year/"><u>[New] Chart-Topping Storytellers to Follow on YouTube This Year</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/st-kickstart-videos-on-youtube-for-visibility-boost/"><u>16 Best Kickstart Videos on YouTube for Visibility Boost</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-apex-broadcast-tools-and-platforms/"><u>2024 Approved Apex Broadcast Tools & Platforms</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-huntings-top-5-best-video-recorders/"><u>2024 Approved Hunting's Top 5 Best Video Recorders</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ways-to-make-life-better-without-your-phone/"><u>5 Ways to Make Life Better Without Your Phone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-samsung-galaxy-s24-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Samsung Galaxy S24 Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/anticipate-new-era-of-customizable-gpu-thermal-solutions/"><u>Anticipate New Era of Customizable GPU Thermal Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/changing-passwords-a-comprehensive-guide-to-facebook/"><u>Changing Passwords: A Comprehensive Guide to Facebook</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-vivo-s18e-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Vivo S18e Phone Screen?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-many-users-are-fleeing-facebook/"><u>How Many Users Are Fleeing Facebook?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-amplify-your-brand-a-guide-to-better-facebook-page-scores/"><u>In 2024, Amplify Your Brand A Guide to Better Facebook Page Scores</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exhaustive-breakdown-of-vsco-photography-tool/"><u>In 2024, Exhaustive Breakdown of VSCO Photography Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovation-in-oversight-a-look-at-facebooks-advanced-moderation-tools/"><u>Innovation in Oversight: A Look at Facebook's Advanced Moderation Tools</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-meizu-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Meizu Phone FRP Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-the-world-of-3d-photo-sharing-on-facebook/"><u>Navigate the World of 3D Photo-Sharing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-online-connectivity-understanding-facebooks-metaverse-blueprint/"><u>Redefining Online Connectivity: Understanding Facebook's Metaverse Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/reels-vs-tiktok-can-facebook-strike-back/"><u>Reels vs TikTok: Can Facebook Strike Back?</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-space-on-facebook-understanding-the-protect-mechanism/"><u>Secure Your Space on Facebook: Understanding the Protect Mechanism</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-app-outage-enigma/"><u>Unraveling the App Outage Enigma</u></a></li>
 </ul></div>
 

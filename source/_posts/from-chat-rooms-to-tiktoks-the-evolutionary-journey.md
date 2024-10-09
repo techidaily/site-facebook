@@ -1,7 +1,7 @@
 ---
 title: "From Chat Rooms to TikToks: The Evolutionary Journey"
-date: 2024-10-02T18:55:43.318Z
-updated: 2024-10-03T21:42:33.821Z
+date: 2024-10-06T22:05:53.805Z
+updated: 2024-10-08T21:37:14.656Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,16 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
  While you may be happy with the familiarity that comes from forums, a lot of people expect much more innovation than these platforms typically get. Even if social media platforms are sometimes slow to implement changes that their user base wants, you're probably less likely to stick around for changes to happen on a forum that already falls short of many features that social media offers.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Social Media Is Designed to be Attention-Grabbing
@@ -42,16 +48,10 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
 ![A class of students paying attention to a lecture.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/students-attention.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Social media, by design, knows how to grab your attention and then hold it. You likely find yourself scrolling for a while on Twitter, Facebook, or some other social media before realizing you've lost track of time. While you could have the same experience on a forum, social media platforms are more adept at maintaining users' attention. This is because they run on an[attention economy model](https://www.makeuseof.com/tag/what-is-attention-economy/) , as your sustained usage makes these platforms money.
@@ -64,24 +64,18 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
 
  This is because young internet users will learn from people around them that are older about social media, and the less they see forums, the less chance they'll think to sign up for one. As time goes on, forums will likely become more obscure and more outdated—leading to fewer signups.
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Forums Tend to Be Dedicated Around One Subject
 
  This isn't a hard-and-fast rule, of course, but forums typically are dedicated to one subject—even if the actual boards have sections for many topics. Examples include mothers for MumsNet, gamers for IGN boards, and so on.
 
  Forums commonly have a subsection where you can talk about everyday life stuff, films, TV shows, games, anything that isn't related to the primary subject it was created for. However, because of this dedication to a single subject, it can lead to you thinking that they're very niche. This may not be favorable compared to Twitter, Facebook, or Instagram, all of which cover pretty much anything—and connect you to people based on a comprehensive algorithm or your manual searches.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Apps Are More User-Friendly
 
@@ -92,10 +86,10 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
  This is a big reason social media killed online forums because they typically can be used on a mobile app as well as a browser, whereas forums can only be used on browsers. While you can access most forums via your mobile browser, it'll be clunky and less responsive than an app—and almost definitely less friendly to navigate. The accessibility that apps provide makes people more likely to stick to them rather than go out of their way to use a forum on a browser to connect with people.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. The Rise of Facebook Groups
@@ -125,18 +119,22 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-how-to-create-a-lifestyle-video-to-inspire-your-audience/"><u>[New] 2024 Approved How to Create a Lifestyle Video to Inspire Your Audience</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-optimizing-podcasts-on-googles-platform/"><u>2024 Approved Optimizing Podcasts on Google's Platform</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-ultimate-morphvox-alteration-guidebook/"><u>2024 Approved Ultimate MorphVOX Alteration Guidebook</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-vivo-v29e-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Vivo V29e without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/breaking-down-the-free-fcp-puzzle/"><u>Breaking Down The Free FCP Puzzle</u></a></li>
-<li><a href="https://facebook.techidaily.com/embracing-auditory-content-facebooks-innovative-hub/"><u>Embracing Auditory Content: Facebook's Innovative Hub</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Motorola Edge 40 Neo | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-samsung-galaxy-s24plus-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Samsung Galaxy S24+ Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-impact-on-social-networks/"><u>Maximizing Impact on Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/premier-league-withdrawal-from-social-networking-against-hate-speech/"><u>Premier League Withdrawal From Social Networking Against Hate Speech</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/prime-tips-for-soundless-videography/"><u>Prime Tips for Soundless Videography</u></a></li>
-<li><a href="https://facebook.techidaily.com/sustaining-connections-beyond-fb-interactions/"><u>Sustaining Connections Beyond FB Interactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/triggering-resurrection-of-trumps-twitter-handle/"><u>Triggering Resurrection of Trump's Twitter Handle</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-achieving-professional-grade-motion-blur-using-photoshop-tools/"><u>[New] Achieving Professional-Grade Motion Blur Using Photoshop Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-from-shared-laughter-to-your-storage-twitters-gif-guide-for-2024/"><u>[New] From Shared Laughter to Your Storage Twitter's GIF Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-tackling-youtubes-dark-view-troubleshooting-steps/"><u>[New] In 2024, Tackling YouTube's Dark View Troubleshooting Steps</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-live-media-masters-choice-vmix-vs-wirecast-for-professionals/"><u>[New] Live Media Masters Choice VMix Vs. Wirecast for Professionals</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-stream-and-record-gamers-ultimate-guide/"><u>[Updated] 2024 Approved Stream and Record Gamers' Ultimate Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-ultimate-ios-simulators-for-virtual-playstation-experience/"><u>2024 Approved Ultimate iOS Simulators for Virtual PlayStation Experience</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/5pya5paw44gu5yuv55s757iu5bcp44k944ov44oi44km44kn44ki77ya44ot44od44kw44k144kk44k644ot44oh44kq44ks5yq5546h6imv44gp56plusa57se44gx44ki44gg/"><u>最新の動画縮小ソフトウェア：ビッグサイズビデオを効率良く節約しよう</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-photodna-an-overview-of-its-functioning/"><u>Deciphering PhotoDNA: An Overview of Its Functioning</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-leaks-decoded-the-implications-explored/"><u>Facebook Leaks Decoded: The Implications Explored</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-11-pro-max-without-losing-any-content-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 11 Pro Max without Losing Any Content? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-honor-90-gt-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Honor 90 GT without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-may-let-you-receive-2fa-codes-via-whatsapp/"><u>Instagram May Let You Receive 2FA Codes via WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-fb-messenger-a-fortress-of-privacy/"><u>Is FB Messenger a Fortress of Privacy?</u></a></li>
+<li><a href="https://facebook.techidaily.com/majority-opinion-digital-life-negates-benefits/"><u>Majority Opinion: Digital Life Negates Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolving-lands-marketplace-facebook-edition/"><u>The Evolving Lands Marketplace: Facebook Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-how-to-utilize-fb-help-center-services/"><u>Understanding How to Utilize FB Help Center Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-can-users-have-several-identities-in-a-singular-facebook-identity/"><u>Why Can Users Have Several Identities in a Singular Facebook Identity?</u></a></li>
 </ul></div>
 

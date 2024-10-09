@@ -1,7 +1,7 @@
 ---
 title: English Sports Teams Begin Their Boycott of Social Media
-date: 2024-10-01T20:17:24.892Z
-updated: 2024-10-03T21:25:33.655Z
+date: 2024-10-06T22:40:38.742Z
+updated: 2024-10-08T21:09:45.854Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Will the Social Media Blackout Involve?
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Are Sports Teams Boycotting Social Media?
@@ -61,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Taking a Stand Against Racism
@@ -86,21 +86,18 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-essential-tactics-for-elevating-your-facebook-profile-ranks/"><u>2024 Approved Essential Tactics for Elevating Your Facebook Profile Ranks</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-secrets-unlocked-10-online-retailers-specializing-in-puzzle-boxes/"><u>2024 Approved Secrets Unlocked 10 Online Retailers Specializing in Puzzle Boxes</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-turning-youtube-music-into-mp3-files-with-macos/"><u>2024 Approved Turning YouTube Music Into MP3 Files with MacOS</u></a></li>
-<li><a href="https://fox-access.techidaily.com/a-lifetime-love-affair-with-top-15-classic-stop-motion-movies/"><u>A Lifetime Love Affair with Top 15 Classic Stop-Motion Movies</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/1722092192707-avoid-artificer-assistance-for-windows-11-activation-explore-safer-options/"><u>Avoid Artificer Assistance for Windows 11 Activation - Explore Safer Options!</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/excellence-in-4k-leading-blu-ray-players-compared-for-2024/"><u>Excellence in 4K Leading Blu-Ray Players Compared for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortify-your-fb-shielding-against-prying-onlookers/"><u>Fortify Your Fb Shielding Against Prying Onlookers</u></a></li>
-<li><a href="https://facebook.techidaily.com/hack-prevention-tactic-300-price-tag-on-quest-headsets/"><u>Hack Prevention Tactic: 300 Price Tag on Quest Headsets</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-enable-anonymous-posting-in-a-facebook-group/"><u>How to Enable Anonymous Posting in a Facebook Group</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Poco M6 5G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/latest-guide-on-ipad-23-and-apple-iphone-15-plus-icloud-activation-lock-bypass-by-drfone-ios/"><u>Latest Guide on iPad 2/3 and Apple iPhone 15 Plus iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-top-8-masterful-audio-designs-in-film/"><u>New Top 8 Masterful Audio Designs in Film</u></a></li>
-<li><a href="https://facebook.techidaily.com/redefine-your-online-presence-why-its-time-to-say-no-to-facebook/"><u>Redefine Your Online Presence: Why It's Time to Say No to Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/undercover-data-collection-on-pinterest-and-tumblr-to-maintain-free-status/"><u>Undercover Data Collection on Pinterest & Tumblr to Maintain Free Status</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-algorithm-behind-my-fb-promotions/"><u>Unveiling the Algorithm Behind My Fb Promotions</u></a></li>
-<li><a href="https://facebook.techidaily.com/us-antitrust-regulations-impacting-silicon-valley-giants/"><u>US Antitrust Regulations: Impacting Silicon Valley Giants</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-newbies-guide-to-understanding-core-filming-techniques/"><u>[New] 2024 Approved The Newbie's Guide to Understanding Core Filming Techniques</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-ideal-recording-software-to-enrich-your-online-collaboration-for-2024/"><u>[New] Ideal Recording Software to Enrich Your Online Collaboration for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-ingenious-approaches-to-facebook-video-ad-crafting/"><u>[New] In 2024, Ingenious Approaches to Facebook Video Ad Crafting</u></a></li>
+<li><a href="https://facebook.techidaily.com/2022s-best-listened-to-podcasts-explored-here/"><u>2022'S Best Listened-To Podcasts Explored Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-unsolicited-friend-invites-with-tactics/"><u>Avoid Unsolicited Friend Invites with Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149053972-boosting-your-message-privacy-facebooks-latest-features-enable-secure-chat-and-call-communications/"><u>Boosting Your Message Privacy: Facebook's Latest Features Enable Secure Chat and Call Communications</u></a></li>
+<li><a href="https://facebook.techidaily.com/broadcasting-ig-live-silent-mute-is-fine/"><u>Broadcasting IG Live: Silent, Mute Is Fine</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-blocks-of-connection-facebooks-neighborhood-revamp/"><u>Building Blocks of Connection: Facebook's Neighborhood Revamp</u></a></li>
+<li><a href="https://facebook.techidaily.com/chill-hangouts-positive-interaction-tips-for-fb-friends/"><u>Chill Hangouts: Positive Interaction Tips for FB Friends</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/examining-the-elegant-yet-imperfect-asus-bw-16d1x-u-blu-ray-writer-a-thorough-review/"><u>Examining the Elegant Yet Imperfect Asus BW-16D1X-U Blu-Ray Writer: A Thorough Review</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-essential-youtube-end-screen-templates-for-content-makers/"><u>In 2024, Essential YouTube End Screen Templates for Content Makers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-navigating-the-complexities-of-facebook-slideshow-tools/"><u>In 2024, Navigating the Complexities of Facebook Slideshow Tools</u></a></li>
+<li><a href="https://driver-install.techidaily.com/stop-elite-dangerous-from-freezing-ultimate-pc-troubleshooting-guide/"><u>Stop Elite Dangerous From Freezing: Ultimate PC Troubleshooting Guide</u></a></li>
 </ul></div>
 

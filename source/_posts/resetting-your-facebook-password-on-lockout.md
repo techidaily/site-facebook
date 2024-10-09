@@ -1,7 +1,7 @@
 ---
 title: Resetting Your Facebook Password on Lockout
-date: 2024-09-18T21:03:00.020Z
-updated: 2024-09-21T19:00:19.821Z
+date: 2024-10-07T21:45:05.206Z
+updated: 2024-10-08T19:42:57.146Z
 tags:
   - facebook
 categories:
@@ -55,11 +55,38 @@ To change your password:
 
 ![Facebook Recover This Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-recover-this-account.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Facebook will log you out of the account you're using, to start the account recovery. This method will lead you to the same**Reset Your Password** window described under**Option 2** . The recovery is based on the contact data you added to your account.
 
 ![Facebook Reset Your Password menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Reset-Your-Password.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you need more help with the recovery steps, follow the instructions from the second screenshot below.
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Option 2: Find and Recover Your Account With Contact Details
 
@@ -68,6 +95,13 @@ To change your password:
  Enter an email address or mobile number you previously added to your Facebook account. When you search for a phone number, try it with or without your country code, e.g., 1, +1, or 001 for the US—all three versions should work. Even if it doesn't say so, you can also use your Facebook username.
 
 ![Facebook Find Your Account menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Find-Your-Account.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Once you have successfully managed to identify your account, you will see a summary of your profile. Before you proceed, carefully check if this really is your account and if you still have access to the email address or phone number listed. You may be able to choose between email or phone recovery.
 
@@ -84,13 +118,6 @@ To change your password:
  If you still can't receive the code, click**Didn't get a code?** in the bottom-left corner of the**Enter Security Code** window, which will take you back to the previous screen.
 
  You can try again, or maybe you'll realize that you don't have access to the account after all.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Log Back Into Your Facebook Account
 
@@ -110,31 +137,31 @@ To change your password:
 
 ![Get Back on Facebook Not Recognized](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-not-recognized.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If Facebook recognizes your device, you will go through a similar process as described above, but this time you'll see an additional option in the bottom left.
 
 ![No longer have access to Facebook password reset options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Reset-Your-Password-Menu.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Click the**No longer have access to these?** link to start a new recovery process.
 
 ![Facebook Lost Access Recovery Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-lost-access-recovery-menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  When you click on**Start** , Facebook will ask for a new login email and send you a code to that email address. Enter your email address and click**Get code** .
 
 ![Get Back on Facebook-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Immediately check your email, including the spam folder or any filters, for the code sent from <security@facebookmail.com>. Enter the code to confirm the email address, and click**Confirm** . If the code didn't come through, you can either click**Resend code** or go back and enter a different email address.
 
@@ -150,13 +177,6 @@ To change your password:
 
 ![Log into your account with a current or old password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Login-With-Old-Password.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  This is useful in case a hacker changed your password, but it may also come in handy if you forget your new password. You can find more security-related tips on the[Account Security](https://www.facebook.com/help/285695718429403/?helpref=hc%5Ffnav) page in the Facebook Help Center.
 
 ## 5\. Confirm Your Identity With Facebook
@@ -167,18 +187,18 @@ To change your password:
 
 ![Submit an ID to confirm your identity and recover your Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Confirm-Your-Identity-With-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you no longer have access to any of the email addresses or phone numbers associated with your account, enter one you have access to now. Then email**<security@facebookmail.com>** to explain your situation.
 
  Mention that you already submitted your ID to prove your identity. Do not attach your ID to your email, as email isn't a secure form of communication.
 
  Either way, hearing back from Facebook can take several weeks, so you'll need to be patient. If you didn't use your real name on Facebook, your hopes for recovering your account this way are close to zero.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## If All Else Fails, Create a New Facebook Profile
 
@@ -199,5 +219,17 @@ To change your password:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-building-striking-podcast-branding-logo-design-guide/"><u>[New] Building Striking Podcast Branding Logo Design Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-the-next-generation-of-mac-video-capture-software-not-bandicam/"><u>[Updated] 2024 Approved The Next Generation of Mac Video Capture Software (Not Bandicam)</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/mac-mp4-macx/"><u>免費 Mac 向け MP4 動画編輯器 - MacX無料 音頻/視頻格式相容性優良</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-innovative-portable-battery-boosters-for-your-laptop-2024-edition/"><u>Best Innovative Portable Battery Boosters for Your Laptop - 2024 Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-power-play-in-your-fb-friends-list-management/"><u>Discover the Power Play in Your FB Friends List Management</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-oneplus-nord-n30-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change OnePlus Nord N30 5G Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/make-your-favorite-tiktok-sound-a-phones-custom-ringtone/"><u>Make Your Favorite TikTok Sound a Phone's Custom Ringtone</u></a></li>
+<li><a href="https://facebook.techidaily.com/share-the-load-collective-effort-in-an-online-community/"><u>Share the Load: Collective Effort in an Online Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pioneering-project-how-spotify-and-facebook-are-building-boombox/"><u>The Pioneering Project: How Spotify and Facebook Are Building Boombox</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-facebook-followers-into-lifelong-profitable-clients/"><u>Transforming Facebook Followers Into Lifelong Profitable Clients</u></a></li>
+</ul></div>
 

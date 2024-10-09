@@ -1,7 +1,7 @@
 ---
 title: Giphy Under Threat? Possible Facebook Divestment Unpacked
-date: 2024-09-27T16:27:50.405Z
-updated: 2024-10-03T21:33:33.668Z
+date: 2024-10-07T16:02:51.649Z
+updated: 2024-10-08T16:34:38.364Z
 tags:
   - facebook
 categories:
@@ -41,16 +41,10 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Meta's Appeal to Keep Giphy
@@ -58,10 +52,10 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
@@ -77,10 +71,10 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
@@ -106,18 +100,24 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-small-companys-guide-to-the-safest-online-chat-services-for-2024/"><u>[New] Small Company's Guide to the Safest Online Chat Services for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-beginning-zoom-video-calls-on-android-devices/"><u>[Updated] Beginning Zoom Video Calls on Android Devices</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/becoming-a-youtube-pro-the-ultimate-picture-post-guide-for-2024/"><u>Becoming a YouTube Pro The Ultimate Picture Post Guide for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-finest-freebie-html-programs-elite-picks-for-windows-users/"><u>Discover the Finest Freebie HTML Programs: Elite Picks for Windows Users</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-top-3-cheap-fast-internet-plans-for-gamers/"><u>In 2024, Top 3 Cheap, Fast Internet Plans for Gamers</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-live-silent-mode-unlocked/"><u>Instagram Live Silent Mode Unlocked</u></a></li>
-<li><a href="https://facebook.techidaily.com/simplifying-personal-details-change-age-and-date-of-birth-on-facebook/"><u>Simplifying Personal Details: Change Age & Date of Birth on Facebook</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/smooth-shots-stronger-impressions-fixing-iphone-video-instability-for-2024/"><u>Smooth Shots, Stronger Impressions Fixing iPhone Video Instability for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/tailoring-trailers-to-amplify-your-youtube-channels-earnings-for-2024/"><u>Tailoring Trailers to Amplify Your YouTube Channel's Earnings for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-pathway-to-professionalism-elevating-your-social-media-impact-on-fb/"><u>The Pathway to Professionalism: Elevating Your Social Media Impact on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-scale-analyzing-facebooks-influence-on-expat-groups/"><u>The Social Scale: Analyzing Facebook's Influence on Expat Groups</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-ultimate-viewing-guide-watching-the-matrix-trilogy-sequentially/"><u>The Ultimate Viewing Guide: Watching The Matrix Trilogy Sequentially</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/ultimate-app-review-with-az-screenshotter-for-2024/"><u>Ultimate App Review with AZ Screenshotter for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-elite-monitors-elevate-photo-editing-find-the-best/"><u>[New] Elite Monitors Elevate Photo Editing - Find the Best</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-high-quality-hd-downloads-5-best-facebook-extensions-for-2024/"><u>[New] High-Quality HD Downloads 5 Best Facebook Extensions for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-upload-tiktok-videos-on-chrome-android-and-iphone-a-step-by-step-guide/"><u>[New] In 2024, Upload TikTok Videos on Chrome, Android & iPhone - A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-picture-perfection-apply-filters-to-your-videos-for-2024/"><u>[Updated] Picture Perfection Apply Filters to Your Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/advanced-strategies-for-elevating-your-email-security-via-2fa/"><u>Advanced Strategies for Elevating Your Email Security via 2FA</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-deep-into-digital-profits-unveiling-5-social-media-earning-methods/"><u>Dive Deep Into Digital Profits: Unveiling 5 Social Media Earning Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-making-your-mark-with-facebook-events/"><u>How-To: Making Your Mark with Facebook Events</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-final-cut-pro-x-basics-how-to-resize-and-crop-images/"><u>In 2024, Final Cut Pro X Basics How to Resize and Crop Images</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-from-raw-footage-to-final-cut-youtube-edition/"><u>In 2024, From Raw Footage to Final Cut YouTube Edition</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-tweaked-sound-from-video-to-mp3aac/"><u>In 2024, Tweaked Sound From Video to MP3/AAC</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-social-giant-reaching-its-limits/"><u>Is the Social Giant Reaching Its Limits?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-the-art-of-spoofing-disguise-your-phones-real-location/"><u>Mastering the Art of Spoofing: Disguise Your Phone's Real Location</u></a></li>
+<li><a href="https://facebook.techidaily.com/resolving-non-loading-fb-messages-and-posts/"><u>Resolving Non-Loading FB Messages & Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-on-this-day-fb-memories-cleanup-guide/"><u>Securing Your On This Day: FB Memories Cleanup Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-platforms-demanded-for-enhanced-anti-scam-measures/"><u>Social Media Platforms Demanded for Enhanced Anti-Scam Measures</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/solving-your-call-issues-on-android-phones-troubleshooting-guide/"><u>Solving Your Call Issues on Android Phones - Troubleshooting Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-assembling-people-through-fb-groups/"><u>The Art of Assembling People Through FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-renaming-the-social-media-news-feed-as-just-feed/"><u>The Impact of Renaming the Social Media News Feed as Just 'Feed'</u></a></li>
 </ul></div>
 

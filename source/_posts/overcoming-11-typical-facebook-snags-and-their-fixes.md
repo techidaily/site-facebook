@@ -1,7 +1,7 @@
 ---
 title: Overcoming 11 Typical Facebook Snags and Their Fixes
-date: 2024-09-27T17:47:21.727Z
-updated: 2024-10-03T22:13:11.167Z
+date: 2024-10-02T23:09:39.926Z
+updated: 2024-10-08T19:18:42.054Z
 tags:
   - facebook
 categories:
@@ -41,16 +41,10 @@ thumbnail: https://thmb.techidaily.com/66485902527c2f60d68ff1756c39d95b2b9ff2d6a
  If it seems like Facebook tagging isn't working, meaning that typing @ followed by someone's name doesn't function, the reason is likely that your friend disabled this option on their account. Try tagging someone else and see if that works. If you still have problems, refer to sections #10 and #11 below for tips on troubleshooting deeper Facebook errors.
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Mute Excessive Posters on Facebook
@@ -67,6 +61,13 @@ We all know someone who posts all the time on Facebook:
  To[unfollow someone on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) , visit their profile page. On the right side below their cover photo, you should see a box that says**Friends** . Click that, then select**Unfollow** .
 
 ![Facebook Unfollow 2021](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-2021.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Now, you won't have to suffer from that person's posts anymore. You'll still be friends, so you can visit their timeline when you want to check out what they're up to. And if you change your mind, just click the**Follow** button to start seeing their posts in your feed again.
 
@@ -86,13 +87,6 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Manage Favorites](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Manage-Favorites.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Opt Out of Targeted Ads on Facebook
 
  Facebook makes most of its money from advertising. Thus, the platform spends a lot of time trying to serve you the most relevant ads in the hopes you'll interact with them. By default,[Facebook tracks you everywhere you go](https://www.makeuseof.com/tag/facebook-tracking-stop/) and uses your browsing habits to influence what ads you see. You can opt out of these personalized ads and see more general ones based on your public characteristics.
@@ -100,6 +94,13 @@ We all know someone who posts all the time on Facebook:
  To do so, click your profile photo at the top-right of Facebook's interface and select**Settings & privacy > Settings** . On the left sidebar, click the**See more in Accounts Center** link, as this setting is now applied to all your Meta accounts. Once on this new page, click**Ad preferences > Ad settings** .
 
 ![Meta Account Ad Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/meta-account-ad-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Here, you'll see a few categories. Choose**No** under**Activity information from ad partners** and Facebook won't use your activity on other sites to show ads on Facebook.
 
@@ -114,10 +115,10 @@ We all know someone who posts all the time on Facebook:
  Finally, if you disable the slider in**Ads shown off of Meta** , websites that use Meta's ad services can't use your profile to affect the ads you see outside of Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Stop Sharing Posts With Everyone
@@ -132,13 +133,6 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Change Audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Change-Audience.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  To keep someone from seeing your posts all the time, you can[add them to your**Restricted** list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) . People on this list won't see anything you post unless it's set to**Public** or you tag them in it. To add someone to this list, visit their page, select the**Friends** button, and then click**Edit Friend List** . Scroll down and click the**Restricted** list.
 
  In this panel, you can also add that person to the**Close Friends** group. This list also provides an easy way to share posts exclusively with your most trusted friends, and is an option in the audience selector.
@@ -146,10 +140,10 @@ We all know someone who posts all the time on Facebook:
 ![Facebook Restricted List Friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Restricted-List-Friends.png)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Block Annoying Auto-Playing Videos
@@ -160,13 +154,6 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Disable Video Autoplay](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Disable-Video-Autoplay.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7\. Block Annoying App Invites
 
  Facebook features hundreds of games, nearly all of them designed to waste your time and//or take your money. If you're sick of friends pleading for extra lives in Facebook games, you can[block all Facebook invites and requests](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) by game or by person.
@@ -176,13 +163,6 @@ We all know someone who posts all the time on Facebook:
  If you'd like, you can also enter an app's name in the**Block apps** field. This will prevent it from contacting you and using your non-public Facebook information. If desired, use the other fields here to granularly[block people on Facebook](https://www.makeuseof.com/how-to-block-facebook/) through various channels.
 
 ![Facebook Blocking Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-blocking-menu.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 8\. Change the Facebook Interface to Your Liking
 
@@ -195,16 +175,10 @@ We all know someone who posts all the time on Facebook:
 ![Social Fixer Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Social-Fixer-Menu.png)
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Social Fixer offers too many options to cover here, but the highlights include:
@@ -217,6 +191,13 @@ We all know someone who posts all the time on Facebook:
 * Check**Display Tweaks** to hide some annoying interface elements.
 
  Dig into the Social Fixer options and you'll find many more ways to change the most annoying parts of Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Solutions for Common Facebook Errors
 
@@ -246,6 +227,13 @@ We all know someone who posts all the time on Facebook:
 
  When you get messages like this, make sure you've done basic Facebook troubleshooting too. Refresh the page, try logging out and back in, and make sure you don't have a network issue, as described above. If you're comfortable with it, try asking a mutual friend if they have the same problem. This can confirm your suspicions that you've been blocked or otherwise restricted.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Fix Facebook Problems Easily
 
  We've shared fixes for some of the most common Facebook problems and errors. By flipping the right settings or using powerful extensions, you can make Facebook a more pleasant experience for yourself.
@@ -267,24 +255,21 @@ We all know someone who posts all the time on Facebook:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-which-is-superior-for-editing-bandicam-or-camtasia-in-2024/"><u>[New] Which Is Superior for Editing Bandicam or Camtasia, In 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-depth-investigation-are-you-best-off-with-inshot-app/"><u>[Updated] In-Depth Investigation Are You Best Off with InShot App?</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-optimizing-speed-on-vimeo-content/"><u>[Updated] Optimizing Speed on Vimeo Content</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-prime-selections-the-best-free-screencasting-apps/"><u>[Updated] Prime Selections The Best Free Screencasting Apps</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-from-apple-iphone-se-2020-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out From Apple iPhone SE (2020) How to Bypass?</u></a></li>
-<li><a href="https://fox-that.techidaily.com/consumer-perception-management/"><u>Consumer Perception Management</u></a></li>
-<li><a href="https://blog-min.techidaily.com/explore-the-ultimate-list-of-speaker-recorder-software-spotlight-on-movavis-picks/"><u>Explore the Ultimate List of Speaker Recorder Software: Spotlight on Movavi's Picks</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-ceo-welcomes-new-ad-chief-post-everson/"><u>Facebook CEO Welcomes New Ad Chief Post-Everson</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/gratis-conversie-van-images-bestaan-u-want-een-jpg-om-te-behandelen-hoe-je-ze-kan-omgezet-worden/"><u>Gratis Conversie Van Images - Bestaan U Want Een JPG Om Te Behandelen? Hoe Je Ze Kan Omgezet Worden!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-launching-a-lucrative-channel-youtubes-most-accessible-biz-setups/"><u>In 2024, Launching a Lucrative Channel YouTube's Most Accessible Biz Setups</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-verified-content-a-worthwhile-investment/"><u>Meta's Verified Content: A Worthwhile Investment?</u></a></li>
-<li><a href="https://facebook.techidaily.com/network-crash-fb-whatsapp-and-insta-blacked-out/"><u>Network Crash: FB, WhatsApp & Insta Blacked Out</u></a></li>
-<li><a href="https://facebook.techidaily.com/phony-facebook-hidden-alter-ego-threat/"><u>Phony Facebook: Hidden Alter Ego Threat</u></a></li>
-<li><a href="https://facebook.techidaily.com/revisiting-key-news-events-that-defined-google/"><u>Revisiting Key News Events That Defined Google</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-cross-network-uploads-instagram-reels-for-facebook/"><u>Streamlining Cross-Network Uploads: Instagram Reels for Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-deceptive-tricks-in-facebook-trade-and-safeguarding-strategies/"><u>Top 5 Deceptive Tricks in Facebook Trade & Safeguarding Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-boundaries-in-digital-conversations/"><u>Understanding Boundaries in Digital Conversations</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/winxvideo-ai-comment-capturer-a-la-perfection-ecran-camera-web-et-son/"><u>WinXvideo AI: Comment Capturer À La Perfection Écran, Caméra Web Et Son</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-blueprint-to-social-media-romance-with-facebook-dating/"><u>Your Blueprint to Social Media Romance with Facebook Dating</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ilmmakers-lounge-app/"><u>[New] Filmmaker's Lounge App</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-effortlessly-enhanced-images-learn-the-insider-snapchat-tactics/"><u>[New] In 2024, Effortlessly Enhanced Images Learn the Insider Snapchat Tactics</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-top-ranked-techniques-for-polished-obs-productions/"><u>[New] In 2024, Top-Ranked Techniques for Polished OBS Productions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/adding-videos-to-written-work-a-budget-friendly-way-for-2024/"><u>Adding Videos to Written Work A Budget-Friendly Way for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-unwanted-statuses-8-top-removal-techniques/"><u>Banishing Unwanted Statuses: 8 Top Removal Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-cloak-of-secrecy-for-your-photos/"><u>Crafting a Cloak of Secrecy for Your Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dialogue-management-leveraging-facebooks-latest-enhancements-for-groups/"><u>Digital Dialogue Management: Leveraging Facebook's Latest Enhancements for Groups</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/elite-videotelephony-for-effective-online-meetings/"><u>Elite Videotelephony for Effective Online Meetings</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-honor-70-lite-5g-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Honor 70 Lite 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/improving-loading-performance-of-facebook-alertsposts/"><u>Improving Loading Performance of Facebook Alerts/Posts</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-vivo-v29e-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Vivo V29e Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-chats-end-in-december-what-to-expect/"><u>Instagram Chats End in December: What to Expect</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategies-to-recover-non-identified-wireless-networks-in-win11/"><u>Strategies to Recover Non-Identified Wireless Networks in Win11</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-revenue-shift-how-tiktok-is-redrawing-social-landscapes/"><u>The Revenue Shift: How TikTok Is Redrawing Social Landscapes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/verstandnis-und-umgehen-von-urheberrechten-beim-kopieren-von-geschutzten-dvds-erkunden-sie-7-praktische-methoden/"><u>Verständnis Und Umgehen Von Urheberrechten Beim Kopieren Von Geschützten DVDs: Erkunden Sie 7 Praktische Methoden</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-apple-chooses-different-trajectory-than-facebooks-metaverse/"><u>Why Apple Chooses Different Trajectory Than Facebook's Metaverse</u></a></li>
 </ul></div>
 

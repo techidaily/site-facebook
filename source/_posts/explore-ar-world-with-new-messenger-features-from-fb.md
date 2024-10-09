@@ -1,7 +1,7 @@
 ---
 title: Explore AR World with New Messenger Features From FB
-date: 2024-09-30T16:18:26.144Z
-updated: 2024-10-03T20:23:31.150Z
+date: 2024-10-05T22:45:11.955Z
+updated: 2024-10-09T03:32:34.707Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ So, what are Group Effects all about? Keep reading to find out.
  Related:[Facebook Messenger Icons and Symbols: What Do They Mean?](https://www.makeuseof.com/tag/what-do-the-different-facebook-messenger-circles-mean-and-more/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Facebook Messenger’s Group Effects Work
@@ -48,10 +48,10 @@ So, what are Group Effects all about? Keep reading to find out.
 ![Screenshot of messenger group effects effects on facebook blog](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Screenshot-of-messenger-AR-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  A huge shift from the platform's one-participant-at-a-time AR feature, the Group Effects feature allows you to play multiplayer games with your friends during a video call, so you can do more than just catch up.
@@ -63,10 +63,10 @@ So, what are Group Effects all about? Keep reading to find out.
  To start using Group Effects, open the Messenger app and**start a video call** or**create a room** . Tap the**smiley face icon** , and then select**Group Effects** . Now choose from the range of effects to start playing.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is Adding Dimension to Messenger Video Calls
@@ -92,22 +92,18 @@ So, what are Group Effects all about? Keep reading to find out.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-all-you-need-to-know-about-instagram-video-limits-for-2024/"><u>[New] All You Need to Know About Instagram Video Limits for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-block-youtube-previews-embrace-full-length-videos/"><u>[New] Block YouTube Previews, Embrace Full-Length Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-essential-guide-to-sharing-art-on-public-platforms-responsibly-for-2024/"><u>[Updated] The Essential Guide to Sharing Art on Public Platforms Responsibly for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-innovative-ways-to-record-and-tweak-videos-using-the-adobe-connect-platform/"><u>2024 Approved Innovative Ways to Record & Tweak Videos Using the Adobe Connect Platform</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-mastering-youtube-subscriber-milestones/"><u>2024 Approved Mastering YouTube Subscriber Milestones</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-supports-rusts-developer-journey/"><u>Facebook Supports Rust's Developer Journey</u></a></li>
-<li><a href="https://win11.techidaily.com/instructions-to-launch-google-play-on-w11/"><u>Instructions to Launch Google Play on W11</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-the-triple-threat-to-competition/"><u>Meta: The Triple Threat to Competition</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-precursor-to-a-radical-redesign-for-european-market/"><u>Meta's Precursor to a Radical Redesign for European Market</u></a></li>
-<li><a href="https://facebook.techidaily.com/reports-fb-restrictions-on-truthful-promos/"><u>Reports: FB Restrictions on Truthful Promos</u></a></li>
-<li><a href="https://facebook.techidaily.com/seeing-through-the-hype-a-fresh-perspective-on-fb-documents/"><u>Seeing Through the Hype: A Fresh Perspective on FB Documents</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-efficiency-guide-upload-instagram-reels-post-on-fb/"><u>Social Media Efficiency Guide: Upload Instagram Reels, Post on FB</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solution-guide-why-is-my-corsair-headset-failing-to-work/"><u>Solution Guide: Why Is My Corsair Headset Failing to Work?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-currency-of-content-how-meta-fosters-monetary-gains-via-video-reels/"><u>The Currency of Content: How Meta Fosters Monetary Gains via Video Reels</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Infinix Smart 8 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-infinix-zero-30-5g-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Infinix Zero 30 5G Screen | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-and-utilizing-sleep-mode-in-messenger-kids-app/"><u>Understanding and Utilizing Sleep Mode in Messenger Kids App</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-integrating-obs-recording-capabilities-into-zoom-sessions/"><u>[New] 2024 Approved Integrating OBS Recording Capabilities Into Zoom Sessions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-promotional-planning-perfection/"><u>[New] In 2024, Promotional Planning Perfection</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-screenshots-made-simple-free-for-2024/"><u>[New] Screenshots Made Simple - Free for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unlocking-yesteryears-visions-with-reverse-scans-in-social-media-world-facebook-for-2024/"><u>[Updated] Unlocking Yesteryear's Visions with Reverse Scans in Social Media World (Facebook) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-tips-to-make-a-great-profile-picture-for-more-likes-and-followers/"><u>6 Tips to Make a Great Profile Picture for More Likes and Followers</u></a></li>
+<li><a href="https://change-location.techidaily.com/additional-tips-about-sinnoh-stone-for-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/artistry-meets-economics-instagrams-enhanced-monetization-strategies/"><u>Artistry Meets Economics: Instagram's Enhanced Monetization Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-facebook-unveiling-the-visionary-identity-of-meta/"><u>Beyond 'Facebook': Unveiling the Visionary Identity of Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/breathe-life-into-your-stopped-facebook-activity/"><u>Breathe Life Into Your Stopped Facebook Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-virtual-deletions-ever-fully-erase-traces/"><u>Can Virtual Deletions Ever Fully Erase Traces?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-vlogventures-in-cosmetics-how-to-create-your-fashion-forward-channel/"><u>In 2024, Vlogventures in Cosmetics How to Create Your Fashion-Forward Channel</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-apple-iphone-12-mini-fixed-drfone-by-drfone-virtual-ios/"><u>iSpoofer is not working On Apple iPhone 12 mini? Fixed | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/1723808151422-your-sd-card-not-detected-heres-the-fix/"><u>Your SD Card Not Detected? Here's the Fix</u></a></li>
 </ul></div>
 

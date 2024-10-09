@@ -1,7 +1,7 @@
 ---
 title: Sailing Societies Turn Off Digital Masts
-date: 2024-09-20T23:29:18.266Z
-updated: 2024-09-21T17:14:34.918Z
+date: 2024-10-04T23:37:29.694Z
+updated: 2024-10-09T02:40:31.901Z
 tags:
   - facebook
 categories:
@@ -30,11 +30,25 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
 
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Will the Social Media Blackout Involve?
 
  As with any blackout, it involves sports players and teams steering clear of social media. So there will be no posts about football, cricket, or rugby, from the teams and players involved in each respective sport. That is because they have boycotted all the platforms mentioned above.
 
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Are Sports Teams Boycotting Social Media?
 
@@ -47,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Taking a Stand Against Racism
@@ -70,5 +84,19 @@ thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-perfecting-visual-output-incorporating-luts-into-your-ae-projects/"><u>[New] In 2024, Perfecting Visual Output Incorporating LUTs Into Your AE Projects</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-leap-into-efficiency-with-quick-srt-to-txt-2023-guide/"><u>[New] Leap Into Efficiency with Quick SRT to TXT 2023 Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-ultimate-list-of-7-exceptional-vids-on-mac/"><u>[New] Ultimate List of 7 Exceptional Vids on Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-practices-to-prevent-unauthorized-fb-access/"><u>Essential Practices to Prevent Unauthorized FB Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-principles-for-neutral-social-media-pages/"><u>Guiding Principles for Neutral Social Media Pages</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-asus-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Asus IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-guide-to-altering-facebook-pics/"><u>The Essential Guide to Altering Facebook Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-psychological-upsides-of-a-temporary-online-hiatus/"><u>The Psychological Upsides of a Temporary Online Hiatus</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-essential-tips-for-shooting-talking-head-videos/"><u>Updated In 2024, Essential Tips for Shooting Talking Head Videos</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722996130690-valorant-graphics-driver-crashed-error-quick-fix/"><u>Valorant ‘Graphics Driver Crashed’ Error [Quick Fix]</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-stick-to-original-policies-for-uninterrupted-functionality/"><u>WhatsApp Users Stick to Original Policies for Uninterrupted Functionality</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Tap Into Newly Viewed Vids on Social Network
-date: 2024-09-28T16:41:18.194Z
-updated: 2024-10-03T21:15:48.473Z
+date: 2024-10-01T22:09:59.089Z
+updated: 2024-10-08T19:09:35.144Z
 tags:
   - facebook
 categories:
@@ -45,13 +45,6 @@ That's it. Here you will find all the recently watched videos.
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Filter Facebook Watched Videos by Date on the Web
 
  If you want to view videos watched in a particular month and year, you can do that too. Here's how:
@@ -60,23 +53,24 @@ That's it. Here you will find all the recently watched videos.
 2. Click the**Date** option in the left sidebar.  
 ![Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date-option.jpg)
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to View Recently Watched Facebook Videos on Android and iOS
 
@@ -85,6 +79,13 @@ That's it. Here you will find all the recently watched videos.
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
@@ -106,10 +107,10 @@ Close
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
@@ -140,22 +141,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-step-by-step-apple-techniques-for-high-quality-interviews-on-air/"><u>[New] Step-by-Step Apple Techniques for High-Quality Interviews on Air</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-elite-12-action-recording-devices-with-built-in-gps-systems/"><u>2024 Approved Elite 12 Action Recording Devices with Built-In GPS Systems</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-vivo-s18e-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Vivo S18e Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-success-the-top-online-stock-portals-for-2024/"><u>Chart Success The Top Online Stock Portals for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/diy-installation-process-for-llama-2-locally-in-simple-steps/"><u>DIY Installation Process for Llama 2 Locally in Simple Steps</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/1725285187991-dvd-flick/"><u>DVD Flick変換失敗時に遭遇する一般的なエラーと解決策</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-standard-to-spectaculous-posting-3d-images-on-social-media/"><u>From Standard to Spectaculous: Posting 3D Images on Social Media</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-depth-exploration-of-ps-3d-luts-for-exceptional-image-grading-for-2024/"><u>In-Depth Exploration of PS 3D LUTs for Exceptional Image Grading for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-interlude-the-benefits-of-a-digital-dip-in-your-routine/"><u>Instagram Interlude: The Benefits of a Digital Dip in Your Routine</u></a></li>
-<li><a href="https://facebook.techidaily.com/messaging-majesty-standout-snippets-via-formatting/"><u>Messaging Majesty: Standout Snippets via Formatting</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-change-in-whatsapp-capabilities-with-privacy-term-rejection/"><u>No Change in WhatsApp Capabilities with Privacy Term Rejection</u></a></li>
-<li><a href="https://extra-support.techidaily.com/renowned-20-free-public-domain-pubg-sets-for-2024/"><u>Renowned 20 Free, Public Domain PUBG Sets for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolving-the-unexpected-error-how-to-get-baldurs-gate-3-running-smoothly/"><u>Resolving the Unexpected Error - How to Get Baldur's Gate 3 Running Smoothly</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionary-access-how-facebooks-decision-impacts-oculus-go-users/"><u>Revolutionary Access: How Facebook's Decision Impacts Oculus Go Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/shift-the-look-of-your-facebook-profile-with-a-new-theme/"><u>Shift the Look of Your Facebook Profile with a New Theme</u></a></li>
-<li><a href="https://facebook.techidaily.com/significance-of-missing-messenger-availability/"><u>Significance of Missing Messenger Availability</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-pioneers-top-20-internet-gatherings-for-todays-users/"><u>Social Pioneers: Top 20 Internet Gatherings for Today's Users</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-achieve-crystal-clear-slack-discussions-with-these-10-tools/"><u>[New] 2024 Approved Achieve Crystal Clear Slack Discussions with These 10 Tools</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-skip-past-fb-video-ads-effectively/"><u>[New] 2024 Approved Skip Past FB Video Ads Effectively</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-branding-breakthrough-constructing-logos-for-podcasts-for-2024/"><u>[New] Branding Breakthrough Constructing Logos for Podcasts for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/arryminati-financial-triumphs-with-ajey-nagar-for-2024/"><u>[New] CarryMinati Financial Triumphs with Ajey Nagar for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pioneering-in-play-a-step-by-step-to-thriving-gaming-channels/"><u>[Updated] Pioneering in Play A Step-by-Step to Thriving Gaming Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-social-networks-into-our-daily-shopping-experience/"><u>Bringing Social Networks Into Our Daily Shopping Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-your-brand-publicizing-positions-via-fb/"><u>Building Your Brand: Publicizing Positions via FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-policy-insight-hub-a-step-towards-greater-clarity/"><u>Facebook's Policy Insight Hub: A Step Towards Greater Clarity</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-tips-on-sharing-colossal-video-content-ios-to-mac-connection/"><u>In 2024, Expert Tips on Sharing Colossal Video Content IOS to Mac Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-public-trust-by-stopping-online-misleading-facts/"><u>Maintaining Public Trust by Stopping Online Misleading Facts</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/master-the-fix-for-ntfs-file-system-errors-overcoming-nt00000035-device-managers-code-41-challenges/"><u>Master the Fix for NTFS File System Errors - Overcoming nT!00000035 (Device Manager's Code 41) Challenges</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-glitch-repeat-revolutionize-top-video-editing-apps-for-ios-and-android/"><u>New Glitch, Repeat, Revolutionize Top Video Editing Apps for iOS and Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/postponement-of-whatsapps-new-privacy-agreement-deadline/"><u>Postponement of WhatsApp's New Privacy Agreement Deadline</u></a></li>
+<li><a href="https://games-able.techidaily.com/realigning-your-xbox-controllers-mechanical-drift/"><u>Realigning Your Xbox Controller's Mechanical Drift</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-tension-with-social-media-networks/"><u>Unraveling the Tension with Social Media Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154532783-zuckerberg-discloses-pet-goats-name-is-blockchain/"><u>Zuckerberg Discloses: Pet Goat's Name Is 'Blockchain'.</u></a></li>
 </ul></div>
 

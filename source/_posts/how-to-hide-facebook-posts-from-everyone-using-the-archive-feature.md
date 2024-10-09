@@ -1,7 +1,7 @@
 ---
 title: How to Hide Facebook Posts From Everyone Using the Archive Feature
-date: 2024-09-16T22:29:43.869Z
-updated: 2024-09-21T23:45:57.448Z
+date: 2024-10-08T05:45:07.839Z
+updated: 2024-10-09T04:49:57.791Z
 tags:
   - facebook
 categories:
@@ -42,11 +42,25 @@ thumbnail: https://thmb.techidaily.com/d73b1ab39f29e2cca73b5589c07d89e3cba6a2b83
 
 This guide will show you how to do both.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Archive a Single Facebook Post
 
 Follow the steps below to archive a post on Facebook.
 
 ![screen showing facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile-page.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![screen showing move to archive on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-move-to-archive-on-facebook.jpg)
 
@@ -58,19 +72,6 @@ Close
 4. Select**Move to archive** .
 
  This will immediately remove the post from your timeline, and you can only access it through the archive folder.
-
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Archive Facebook Posts in Bulk
 
@@ -84,6 +85,19 @@ Here's how you can archive multiple posts at once:
 
 ![screen showing how to bulk-archive facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-how-to-bulk-archive-facebook-post.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
 1. Navigate to your profile.
@@ -95,10 +109,10 @@ Close
 This will immediately move the posts to your archive.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Restore Archived Posts on Facebook
@@ -107,23 +121,16 @@ Here's how to restore archived posts on Facebook:
 
 ![screen showing facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![screen showing navigation to archive page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-navigation-to-archive-page-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![screen showing how to restore archived post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-how-to-restore-archived-post-on-Facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -154,5 +161,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/eamlessly-download-youtube-thumbnails-online/"><u>[New] Seamlessly Download YouTube Thumbnails Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-captivate-crowds-mastering-hashtag-use-in-high-traffic-short-videos/"><u>[Updated] In 2024, Captivate Crowds Mastering Hashtag Use in High-Traffic Short Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-speed-up-snap-retrieval-methods/"><u>2024 Approved Speed Up Snap Retrieval Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-for-a-share-of-the-facebook-settlement/"><u>A Step-by-Step Approach for a Share of the Facebook Settlement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/breaking-down-the-benefits-of-the-samsung-galaxy-note20-ultra-groovy-a-detailed-user-experience-review/"><u>Breaking Down the Benefits of the Samsung Galaxy Note20 Ultra Groovy - A Detailed User Experience Review</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/te-video-popularity-with-strategic-hashtags/"><u>Elevate Video Popularity with Strategic #Hashtags</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-evolution-understanding-the-role-of-news-on-facebook/"><u>Engaging Evolution: Understanding the Role of News on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/high-tech-hustlers-defending-your-digital-self/"><u>High-Tech Hustlers: Defending Your Digital Self</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-comments-on-your-facebook-posts/"><u>How to Delete Comments on Your Facebook Posts</u></a></li>
+<li><a href="https://driver-error.techidaily.com/how-to-permanently-shut-down-bluetooth-on-pc/"><u>How to Permanently Shut Down Bluetooth on PC</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-a-look-at-amazon-primes-biggest-tweeters-and-favorites-in-23/"><u>In 2024, A Look at Amazon Prime’s Biggest Tweeters and Favorites in '23</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-spruce-up-your-stories-with-effortless-animated-text-techniques/"><u>In 2024, Spruce Up Your Stories With Effortless Animated Text Techniques</u></a></li>
+<li><a href="https://win-forum.techidaily.com/launch-of-revo-uninstaller-pro-version-5-enhanced-system-cleanup/"><u>Launch of Revo Uninstaller Pro Version 5: Enhanced System Cleanup</u></a></li>
+<li><a href="https://facebook.techidaily.com/merging-social-media-and-chat-apps-the-whatsapp-facebook-nexus/"><u>Merging Social Media & Chat Apps: The WhatsApp-Facebook Nexus</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-tech-future-with-facebook-and-rust-fusion/"><u>Pioneering Tech Future with Facebook and Rust Fusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/reasons-behind-decs-instagram-conversations-ending/"><u>Reasons Behind Dec’s Instagram Conversations Ending</u></a></li>
+<li><a href="https://techidaily.com/some-mp4-won-t-play-on-my-huawei-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Some MP4 won't play on my Huawei </u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-content-how-to-disable-auto-feed-suggestions/"><u>Unseen Content: How to Disable Auto-Feed Suggestions</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vigilance-in-verification-leveraging-facebooks-advanced-moderation-mechanisms/"><u>Virtual Vigilance in Verification: Leveraging Facebook's Advanced Moderation Mechanisms</u></a></li>
+</ul></div>
 

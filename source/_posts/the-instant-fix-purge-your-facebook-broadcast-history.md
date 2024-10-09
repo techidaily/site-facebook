@@ -1,7 +1,7 @@
 ---
 title: "The Instant Fix: Purge Your Facebook Broadcast History"
-date: 2024-09-28T21:01:48.853Z
-updated: 2024-10-03T19:53:39.224Z
+date: 2024-10-08T03:46:16.113Z
+updated: 2024-10-08T16:59:30.244Z
 tags:
   - facebook
 categories:
@@ -28,29 +28,35 @@ thumbnail: https://thmb.techidaily.com/d54fa6180dfbcf214df4f9458a0e28f5138815530
 
  Facebook allows you to delete your story on its app and web versions. This guide will cover both versions so that you can delete your story regardless of how you are accessing Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Get Rid of a Story on the Facebook Android App
 
 To delete your story on the mobile version of Facebook:
 
 ![screenshot showing facebook story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-showing-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![screenshot showing facebook story with options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-showing-facebook-story-with-options.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![screenshot showing how to delete facebook story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-showing-how-to-delete-facebook-story.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -60,34 +66,34 @@ Close
 4. Select**Delete video** or**Delete photo** , as the case may apply.
 5. Tap**Delete** on the confirmation prompt.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Clear a Story on Facebook Web
 
  Deleting your story on the web version of Facebook is similar to the process on the app.
 
 ![screenshot of Facebook story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-of-Facebook-story.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Log in to[Facebook](https://www.facebook.com/) on the web, navigate to the story you want to delete, click on the**vertical ellipsis** , and select**Delete video** .
 * Click**Delete** on the confirmation prompt and your story will be deleted.
 
 And there you have it.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Can You Recover a Deleted Story on Facebook?
 
  Unlike what happens when you[delete a Facebook post](https://www.makeuseof.com/how-to-delete-facebook-posts/) , you cannot recover a deleted story. So, if you delete your story by mistake, you will have to re-upload it as Facebook does not give users the ability to recover deleted stories.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Removing Your Facebook Story Is Easy
 
@@ -108,19 +114,14 @@ And there you have it.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-capturing-gameplay-moments-flawlessly/"><u>[New] In 2024, Capturing Gameplay Moments Flawlessly</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-comparing-iphones-best-video-editors-cameo-and-filmorago/"><u>[Updated] 2024 Approved Comparing iPhone's Best Video Editors Cameo & FilmoraGo</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-lightninglash-delaytape-playback/"><u>[Updated] In 2024, LightningLash DelayTape Playback</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-unveiling-the-secrets-to-superior-gaming-recordings/"><u>[Updated] In 2024, Unveiling the Secrets to Superior Gaming Recordings</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-path-to-youtube-prosperity-unlocking-monetization-with-500plus-views/"><u>[Updated] Path to YouTube Prosperity Unlocking Monetization with 500+ Views</u></a></li>
-<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-nokia-c12-plus-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Nokia C12 Plus Location Settings | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-your-brands-voice-smm-through-ripl/"><u>Elevating Your Brand’s Voice: SMM Through Ripl</u></a></li>
-<li><a href="https://facebook.techidaily.com/eliminate-fb-tracking-with-off-facebook-activity-controls/"><u>Eliminate FB Tracking with Off-Facebook Activity Controls</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-poco-x6-pro-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Poco X6 Pro in Minutes | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/identifying-and-rectifying-self-starting-behavior-on-your-windows-10-device/"><u>Identifying & Rectifying Self-Starting Behavior on Your Windows 10 Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/large-digital-entities-face-distrust-but-facebook-leads/"><u>Large Digital Entities Face Distrust, But Facebook Leads</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-2023-release-news-for-upcoming-oculus-quest-model/"><u>No 2023 Release News for Upcoming Oculus Quest Model</u></a></li>
-<li><a href="https://facebook.techidaily.com/silent-tech-rise-probing-facebooks-clandestine-wrist-device/"><u>Silent Tech Rise: Probing Facebook's Clandestine Wrist Device</u></a></li>
-<li><a href="https://techtrends.techidaily.com/understanding-and-managing-your-internet-data-consumption-effectively/"><u>Understanding and Managing Your Internet Data Consumption Effectively</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-metaverse-explorers-best-virtual-reality-list/"><u>[New] Metaverse Explorers Best Virtual Reality List</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-lock-your-oppo-k11x-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Oppo K11x Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/reality-to-rhetoric-ai-transforms-words-in-pictures/"><u>Reality to Rhetoric: AI Transforms Words in Pictures</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncover-new-tunes-with-a-mini-player-spotify-in-the-facebook-app/"><u>Uncover New Tunes with a Mini Player – Spotify in the Facebook App</u></a></li>
+<li><a href="https://os-tips.techidaily.com/understanding-your-fitness-tracking-exploring-the-body-temperature-function-on-apple-watch/"><u>Understanding Your Fitness Tracking: Exploring the Body Temperature Function on Apple Watch</u></a></li>
+<li><a href="https://facebook.techidaily.com/unintended-exposure-have-my-personal-and-phone-numbers-been-shared-on-facebook/"><u>Unintended Exposure: Have My Personal and Phone Numbers Been Shared on Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-members-efficiently-through-group-channels/"><u>Uniting Members Efficiently Through Group Channels</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlock-professional-video-quality-with-top-youtube-to-webm-tools/"><u>Unlock Professional Video Quality with Top YouTube-to-WebM Tools</u></a></li>
 </ul></div>
 

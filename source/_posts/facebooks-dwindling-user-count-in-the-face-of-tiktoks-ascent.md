@@ -1,7 +1,7 @@
 ---
 title: Facebook’s Dwindling User Count in the Face of TikTok’s Ascent
-date: 2024-09-17T23:24:08.658Z
-updated: 2024-09-21T22:08:20.576Z
+date: 2024-10-08T00:41:43.662Z
+updated: 2024-10-08T22:49:02.460Z
 tags:
   - facebook
 categories:
@@ -34,11 +34,25 @@ thumbnail: https://thmb.techidaily.com/5d77ad3cc3ffb76dec378c0365a6d9c3d6e615b3b
 
  While Apple's privacy changes (as reported by[Business Insider](https://www.businessinsider.com/how-apple-att-privacy-plan-derailed-facebook-2022-7) ) could have contributed to upsetting Facebook’s advertising business, it is unlikely to be the primary cause for the dent.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## TikTok Is the Major Cause of Facebook’s Decline
 
  The picture is quite the opposite for TikTok in the quarters before Q2, 2022\. According to[Bloomberg](https://www.bloomberg.com/news/features/2022-06-23/tiktok-becomes-cash-machine-with-revenue-tripling-to-12-billion) , TikTok's annual revenues were $4.6 billion in 2021, and they're expected to reach $12 billion by the end of 2022\. The Chinese-owned social video app also has a rapidly growing user count, as noted by[Insider Intelligence](https://www.insiderintelligence.com/charts/global-tiktok-user-stats/) .
 
 ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  These statistics have led many to speculate that TikTok is the major reason for Facebook’s decline both in terms of revenue and user growth. And while correlation doesn't equal causation, the relative success and failure of both companies does appear to be connected.
 
@@ -54,7 +68,21 @@ thumbnail: https://thmb.techidaily.com/5d77ad3cc3ffb76dec378c0365a6d9c3d6e615b3b
 
 ![TikTok Videos of Khaby Lame](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/TikTok-Videos-of-Khaby-Lame.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [TikTok has been criticized for many reasons](https://www.makeuseof.com/is-tiktok-bad/) . However, there are[many positive aspects to TikTok](https://www.makeuseof.com/reasons-why-tiktok-is-actually-good/) , and all of these factors have played a significant part in its growth, leading users to switch from Facebook. While Facebook is trying to recover, at the moment, the stats are very much in TikTok’s favor.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can Facebook Fight Back Against TikTok?
 
@@ -75,12 +103,20 @@ thumbnail: https://thmb.techidaily.com/5d77ad3cc3ffb76dec378c0365a6d9c3d6e615b3b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-mastering-the-art-of-play-navigating-switch-pro-and-steam-games/"><u>[Updated] 2024 Approved Mastering the Art of Play Navigating Switch Pro and Steam Games</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-instant-facebook-beat-loader/"><u>2024 Approved Instant Facebook Beat Loader</u></a></li>
+<li><a href="https://windows11.techidaily.com/breaking-the-cycle-of-unresponsive-photoshop-on-windows/"><u>Breaking the Cycle of Unresponsive Photoshop on Windows</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elite-workstations-cutting-edge-desktops-unleashed/"><u>Elite Workstations Cutting-Edge Desktops Unleashed</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-10-top-free-screen-recorder-mac/"><u>In 2024, 10 Top Free Screen Recorder Mac</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-bridging-the-gap-an-introduction-to-av1/"><u>In 2024, Bridging the Gap An Introduction to AV1</u></a></li>
+<li><a href="https://facebook.techidaily.com/principles-of-producing-potent-online-partnerships-fb/"><u>Principles of Producing Potent Online Partnerships (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamp-your-social-media-identity-with-a-new-birthday-fb/"><u>Revamp Your Social Media Identity with a New Birthday (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-shenanigans-detection-of-fraudulent-entities/"><u>Social Media Shenanigans: Detection of Fraudulent Entities</u></a></li>
+<li><a href="https://facebook.techidaily.com/stall-on-trump-suspension-by-facebook-oversight-entity/"><u>Stall on Trump Suspension by Facebook Oversight Entity</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-targets-social-media-giants-in-free-speech-lawsuit/"><u>Trump Targets Social Media Giants in Free Speech Lawsuit</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-htc-u23-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends HTC U23 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlocking-apple-iphone-6s-passcode-without-a-computer-drfone-by-drfone-ios/"><u>Unlocking Apple iPhone 6s Passcode without a Computer | Dr.fone</u></a></li>
+</ul></div>
 

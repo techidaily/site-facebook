@@ -1,7 +1,7 @@
 ---
 title: "The Social Media Metamorphosis: From Facebook to Meta"
-date: 2024-09-17T16:42:45.191Z
-updated: 2024-09-21T19:49:14.414Z
+date: 2024-10-04T18:05:10.672Z
+updated: 2024-10-09T06:16:47.636Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
 
  In February 2008, the Facebook-Winklevoss lawsuit settled with Zuckerberg paying the twins a settlement of $65 million in cash and Facebook stock. Later, in July, the platform released its mobile app on iOS.
@@ -56,13 +63,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2013–2015: Facebook Enters New Territories
 
 ![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
@@ -75,9 +75,29 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know[how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2016–2018: Controversies and Scandals
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
@@ -103,22 +123,15 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2022 and Beyond: Layoffs, Chaos, and Recovery
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
@@ -128,6 +141,13 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 What comes next? Massive layoffs.
 
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Meta Is in a Rough Place, But When Is It Not?
 
@@ -148,5 +168,20 @@ What comes next? Massive layoffs.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-vimeo-tribute-spotlight/"><u>[Updated] 2024 Approved Vimeo Tribute Spotlight</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-small-scale-success-with-the-safest-online-meeting-tools/"><u>[Updated] Small-Scale Success with the Safest Online Meeting Tools</u></a></li>
+<li><a href="https://network-issues.techidaily.com/banish-flickering-on-monitors-a-diy-guide/"><u>Banish Flickering on Monitors: A DIY Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-power-of-facebooks-latest-document-leak/"><u>Dissecting the Power of Facebook's Latest Document Leak</u></a></li>
+<li><a href="https://techtrends.techidaily.com/educational-concessions-on-the-microsoft-store-tips-for-enrollment/"><u>Educational Concessions on the Microsoft Store: Tips for Enrollment</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enhancing-work-processes-through-strategic-use-of-chatgpt/"><u>Enhancing Work Processes Through Strategic Use of ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-direct-messages-show-your-spot-to-friends/"><u>FB Direct Messages: Show Your Spot to Friends</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/our-digital-dough-worthy-with-these-50-no-cost-youtube-promo-tools/"><u>Get Your Digital Dough Worthy With These 50 No-Cost YouTube Promo Tools</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-15-best-rock-songs-that-you-should-know/"><u>In 2024, 15 Best Rock Songs That You Should Know</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-your-vivo-t2x-5g-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Vivo T2x 5G Lock Screen Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamp-your-fb-id-with-new-numbers/"><u>Revamp Your FB ID with New Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-steps-for-sharing-spot-with-fb-chat/"><u>The Essential Steps for Sharing Spot with FB Chat</u></a></li>
+</ul></div>
 

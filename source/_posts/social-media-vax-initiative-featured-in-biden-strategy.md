@@ -1,7 +1,7 @@
 ---
 title: Social Media Vax Initiative Featured in Biden Strategy
-date: 2024-09-19T16:53:25.264Z
-updated: 2024-09-21T18:37:50.675Z
+date: 2024-10-03T06:02:41.660Z
+updated: 2024-10-09T00:05:58.223Z
 tags:
   - facebook
 categories:
@@ -42,11 +42,25 @@ thumbnail: https://thmb.techidaily.com/c9af2386c6798b3575f6d66e9544981a45984b6b6
 
  Biden will film a direct-to-camera public service announcement that'll be spread across digital platforms, while vice president Kamala Harris will take part in social media publicity—which includes an interview with weekly newspaper[Carolina Peacemaker](http://www.peacemakeronline.com/) .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Social Media Against COVID-19
 
  Recently,[Facebook made it easier to find yourself a COVID-19 vaccine](https://www.makeuseof.com/facebook-makes-easier-find-covid-19-vaccine/) if you live in the US. Before that, the platform[launched new profile frames](https://www.makeuseof.com/facebooks-latest-profile-frames-encourage-friends-get-covid-19-vaccines/) in support of the vaccines, and even[froze the page of the Venezuelan president](https://www.makeuseof.com/facebook-freezes-president-maduro-page-fake-covid-cure/) because he promoted a false "miracle cure."
 
 ![Facebook Twitter Russian Trolls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/09/facebook-twitter-russian-trolls.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: Pixabay/Pexels
 
@@ -67,12 +81,17 @@ thumbnail: https://thmb.techidaily.com/c9af2386c6798b3575f6d66e9544981a45984b6b6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/decreasing-bitrate-in-high-quality-obs/"><u>Decreasing Bitrate in High-Quality OBS</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-iphone-7-after-ios-update-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Lost Data from iPhone 7 After iOS Update? | Stellar</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-activation-lock-and-icloud-account-on-apple-iphone-13-by-drfone-ios/"><u>In 2024, How to Unlock iCloud Activation Lock and iCloud Account On Apple iPhone 13?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/luminary-lessons-teaching-the-power-of-proper-lighting/"><u>Luminary Lessons Teaching the Power of Proper Lighting</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-pacific-drive-not-working-effective-tips-and-tricks/"><u>Overcoming Pacific Drive Not Working: Effective Tips & Tricks</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/screenscape-innovations-an-unbiased-look-at-apeaksoft-2023-edition-for-2024/"><u>Screenscape Innovations An Unbiased Look at Apeaksoft, 2023 Edition for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-fact-check-busting-top-10-facebook-myths/"><u>Social Network Fact Check: Busting Top 10 Facebook Myths</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-guide-to-sever-ties-in-fb-group/"><u>Stepwise Guide to Sever Ties in FB Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-content-streaming-through-page-management/"><u>Tailored Content Streaming Through Page Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-strategy-for-securing-your-fb-images/"><u>The Complete Strategy for Securing Your FB Images</u></a></li>
+</ul></div>
 

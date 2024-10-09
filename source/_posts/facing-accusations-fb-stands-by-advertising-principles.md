@@ -1,7 +1,7 @@
 ---
 title: Facing Accusations, FB Stands by Advertising Principles
-date: 2024-10-02T16:42:25.636Z
-updated: 2024-10-03T21:03:21.049Z
+date: 2024-10-02T18:15:17.210Z
+updated: 2024-10-09T06:12:10.788Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,16 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
  In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Responds to Signal's Move
@@ -52,10 +58,10 @@ Facebook responded with the following statement to the media:
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Signal's Ads You’ll Never See on Instagram
@@ -67,10 +73,10 @@ Facebook responded with the following statement to the media:
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is This Nothing But a PR Stunt on Signal's Part?
@@ -98,17 +104,20 @@ Facebook responded with the following statement to the media:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-economical-entrance-to-youtube-ecosystem-affiliate-assistance-for-small-sets/"><u>[New] In 2024, Economical Entrance to YouTube Ecosystem Affiliate Assistance for Small Sets</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-11-best-free-youtube-name-generators-you-should-try/"><u>[Updated] In 2024, 11 Best Free YouTube Name Generators You Should Try</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-unlocking-youtube-potential-editing-after-the-upload-process/"><u>2024 Approved Unlocking YouTube Potential Editing After the Upload Process</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-vivo-y27-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Vivo Y27 5G FRP</u></a></li>
-<li><a href="https://facebook.techidaily.com/end-to-end-encryption-on-the-horizon-for-meta-set-for-23-implementation/"><u>End-to-End Encryption on the Horizon for Meta, Set for '23 Implementation</u></a></li>
-<li><a href="https://facebook.techidaily.com/four-major-shifts-in-user-behavior-leading-to-decline-on-facebook/"><u>Four Major Shifts in User Behavior Leading to Decline on Facebook</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/learn-the-insider-tricks-of-screening-instagram-stories-for-2024/"><u>Learn the Insider Tricks of Screening Instagram Stories for 2024</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/mastering-the-art-of-configuring-your-hp-printer-on-pcs/"><u>Mastering the Art of Configuring Your HP Printer on PCs</u></a></li>
-<li><a href="https://facebook.techidaily.com/scheduling-for-maximum-fb-traffic/"><u>Scheduling for Maximum Fb Traffic</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Vivo G2? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/unearthing-did-my-phone-number-surface-due-to-facebook-glitches/"><u>Unearthing: Did My Phone Number Surface Due to Facebook Glitches?</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-of-viral-posts-via-ripl/"><u>Unlocking the Secrets of Viral Posts via Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-examination-the-implications-of-changes-to-facebooks-page-titles/"><u>A Closer Examination: The Implications of Changes to Facebook's Page Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-newsfeed-10-valid-reasons-to-leave-facebook-behind/"><u>Beyond the Newsfeed: 10 Valid Reasons to Leave Facebook Behind</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-instagrams-influence/"><u>Breaking Free From Instagram's Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-through-facebooks-lockout-barrier/"><u>Breaking Through Facebook's Lockout Barrier</u></a></li>
+<li><a href="https://facebook.techidaily.com/content-distribution-prowess-sharing-instagram-reels-to-facebook-stories/"><u>Content Distribution Prowess: Sharing Instagram Reels to Facebook Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-cyber-circulation-of-confidential-visuals/"><u>Controlling Cyber Circulation of Confidential Visuals</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultural-catalysts-social-medias-four-transformative-influences/"><u>Cultural Catalysts: Social Media's Four Transformative Influences</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/icloud-unlocker-download-unlock-icloud-lock-for-your-iphone-xr-by-drfone-ios/"><u>iCloud Unlocker Download Unlock iCloud Lock for your iPhone XR</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-link-up-movies-to-your-youtube-compendium/"><u>In 2024, Link Up Movies to Your YouTube Compendium</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/newest-update-alert-emeditor-professional-v13-beta-goes-live-ultimate-text-manipulation-tools-unleashed/"><u>Newest Update Alert: EmEditor Professional v13 Beta Goes Live - Ultimate Text Manipulation Tools Unleashed!</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/peering-through-the-printer-one-persons-3dr-story/"><u>Peering Through the Printer One Person’s '3DR' Story</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/reviving-nonfunctional-movie-files-in-quality-time-player/"><u>Reviving Nonfunctional Movie Files in Quality Time Player</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-tutorial-on-linking-chromecast-with-amazon-fire-tv/"><u>Step-by-Step Tutorial on Linking Chromecast with Amazon Fire TV</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/tutoriel-rapide-creer-un-photomontage-sur-mesure-en-quelques-clics-chez-movavi/"><u>Tutoriel Rapide: Créer Un Photomontage Sur Mesure en Quelques Clics Chez Movavi</u></a></li>
+<li><a href="https://fox-access.techidaily.com/visuals-meet-melodies-audio-visual-magic/"><u>Visuals Meet Melodies Audio-Visual Magic</u></a></li>
 </ul></div>
 

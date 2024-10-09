@@ -1,7 +1,7 @@
 ---
 title: "Mastering Teen FB Privacy Safeguards: A Step-by-Step Guide"
-date: 2024-09-27T17:53:05.269Z
-updated: 2024-10-03T22:56:15.136Z
+date: 2024-10-07T06:05:35.706Z
+updated: 2024-10-08T16:58:23.001Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,16 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
@@ -52,10 +58,10 @@ Close
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Privacy Setting Basics
@@ -84,6 +90,13 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Check Ad Settings
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
@@ -91,10 +104,10 @@ Close
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -104,13 +117,6 @@ Close
  To check the kinds of ads your teen can see on their news feed, you will need to go back to**Settings** . Scroll down to**Ads** and click on**Ad preferences** .
 
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Why Online Safety Is More Important Than Ever
 
@@ -133,15 +139,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-top-tricks-making-powerful-yt-thumbnails/"><u>[New] 2024 Approved Top Tricks Making Powerful YT Thumbnails</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-crafting-engaging-sims-4-gameplay-videos/"><u>2024 Approved Crafting Engaging Sims 4 Gameplay Videos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/advanced-photo-editing-how-to-clean-up-unwanted-space/"><u>Advanced Photo Editing How to Clean Up Unwanted Space</u></a></li>
-<li><a href="https://fox-http.techidaily.com/exploring-new-dimensions-q500-typhoon-adventure/"><u>Exploring New Dimensions Q500 Typhoon Adventure</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-fix-the-smbus-touchscreen-driver-error-on-windows-11-devices/"><u>How to Fix the SMBus Touchscreen Driver Error on Windows 11 Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-technology-for-automatic-image-captions-on-fb/"><u>Leveraging Technology for Automatic Image Captions on FB</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-the-samsung-galaxy-tab-s7plus-an-in-depth-look-at-a-premier-android-marvel/"><u>Mastering the Samsung Galaxy Tab S7+: An In-Depth Look at a Premier Android Marvel</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximize-social-media-impact-with-these-5-cost-effective-fb-strategies/"><u>Maximize Social Media Impact with These 5 Cost-Effective FB Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguard-your-digital-footprint-in-the-age-of-fb/"><u>Safeguard Your Digital Footprint in the Age of FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/stimulate-online-discourse-strategic-pages-surveys/"><u>Stimulate Online Discourse: Strategic Pages Surveys</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-masterpieces-in-3d-graphics-and-golden-displaytexts-online/"><u>[New] 2024 Approved Masterpieces in 3D Graphics and Golden DisplayTexts Online</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-fixing-inability-of-messenger-apps-to-dispatch-videos-correctly-for-2024/"><u>[New] Fixing Inability of Messenger Apps to Dispatch Videos Correctly for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-voice-recorder-mac-5-best-voice-recorders-for-mac-devices/"><u>[New] Voice Recorder Mac - 5 Best Voice Recorders for Mac Devices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-ultimate-playbook-top-20-best-practices-for-maximizing-facebook-video-success/"><u>[Updated] 2024 Approved The Ultimate Playbook Top 20 Best Practices for Maximizing Facebook Video Success</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/a-step-by-step-guide-to-professionalizing-your-personal-brand-on-fb-stories-for-2024/"><u>A Step-by-Step Guide to Professionalizing Your Personal Brand on FB Stories for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/are-user-dialogues-pivotal-for-the-progress-of-chatgpts-knowledge/"><u>Are User Dialogues Pivotal for the Progress of ChatGPT's Knowledge?</u></a></li>
+<li><a href="https://facebook.techidaily.com/brands-get-a-voice-on-instagram-reels-and-fb-stickers/"><u>Brands Get a Voice on Instagram Reels and FB Stickers</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaching-privacy-boundaries-safely/"><u>Breaching Privacy Boundaries Safely</u></a></li>
+<li><a href="https://facebook.techidaily.com/disengage-from-discussions-apolitical-facebook-life/"><u>Disengage From Discussions: Apolitical Facebook Life</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hp-laserjet-printer-drivers-free-download-for-windows-7/"><u>HP Laserjet Printer Drivers Free Download for Windows 7</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-for-successful-industry-connections-via-facebook/"><u>Navigating Social Media for Successful Industry Connections via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-solitude-6-reasons-to-abandon-facebook/"><u>The Power of Solitude - 6 Reasons to Abandon Facebook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-best-online-print-providers/"><u>Unveiling the Best Online Print Providers</u></a></li>
 </ul></div>
 

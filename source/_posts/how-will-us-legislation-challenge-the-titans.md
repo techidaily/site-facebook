@@ -1,7 +1,7 @@
 ---
 title: How Will U.S. Legislation Challenge the Titans?
-date: 2024-09-27T20:11:09.547Z
-updated: 2024-10-03T21:17:38.781Z
+date: 2024-10-06T04:36:44.074Z
+updated: 2024-10-08T16:25:35.614Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
@@ -41,13 +48,6 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -73,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -84,10 +91,10 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 In essence: leave the selling to the sellers.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
@@ -100,23 +107,9 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -129,6 +122,13 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -151,22 +151,24 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-capture-chronicles-reviewing-the-best-screencasters/"><u>[New] 2024 Approved Capture Chronicles Reviewing the Best Screencasters</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-soil-spinners-finding-the-next-stardew-title/"><u>[New] 2024 Approved Soil Spinners Finding the Next Stardew Title</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-massive-viewership-triumphs-youtubes-greatest-hits/"><u>[Updated] 2024 Approved Massive Viewership Triumphs YouTube's Greatest Hits</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-transformative-youtube-title-genesis-tools/"><u>[Updated] In 2024, Transformative YouTube Title Genesis Tools</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-virtual-room-recordings-desktop-and-mobile-tips/"><u>2024 Approved Virtual Room Recordings Desktop & Mobile Tips</u></a></li>
-<li><a href="https://program-issues.techidaily.com/advanced-protection-measures-against-the-notorious-202n4-exception-access-violation-in-computer-systems/"><u>Advanced Protection Measures Against the Notorious 202N4 Exception Access Violation in Computer Systems</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/bypassing-obstacles-effective-methods-for-mov-file-compatibility-with-sony-vegas-pro-software/"><u>Bypassing Obstacles: Effective Methods for MOV File Compatibility with Sony Vegas Pro Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-connection-the-perks-of-social-groupings-online/"><u>Enhancing Connection: The Perks of Social Groupings Online</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-measure-and-optimize-output-impedance-in-your-systems/"><u>How to Measure and Optimize Output Impedance in Your Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-will-social-media-giants-influence-local-retail-spaces/"><u>How Will Social Media Giants Influence Local Retail Spaces?</u></a></li>
-<li><a href="https://facebook.techidaily.com/oculus-pioneers-next-level-personalized-simulations/"><u>Oculus Pioneers Next Level Personalized Simulations</u></a></li>
-<li><a href="https://facebook.techidaily.com/rescheduling-of-whatsapps-may-15-policy-deadline/"><u>Rescheduling of WhatsApp's May 15 Policy Deadline</u></a></li>
-<li><a href="https://facebook.techidaily.com/restoring-social-media-passes-regaining-fb-account-access/"><u>Restoring Social Media Passes: Regaining FB Account Access</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/spark-interest-engage-followers-maximizing-tiktok-unboxer-appeal-for-2024/"><u>Spark Interest, Engage Followers Maximizing TikTok Unboxer Appeal for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-whos-on-my-facebook-block/"><u>Step-by-Step: Who's on My Facebook Block?</u></a></li>
-<li><a href="https://facebook.techidaily.com/taking-control-of-your-online-sessions-via-facebook-alerts/"><u>Taking Control of Your Online Sessions via Facebook Alerts</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-media-savvy-how-to-reset-facebook-conversations/"><u>The Social Media Savvy: How to Reset Facebook Conversations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-breakdown-of-how-youtube-ad-revenue-works-cpm-for-2024/"><u>[New] Breakdown of How YouTube Ad Revenue Works (CPM) for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pro-hdr-image-processing-a-lightroom-approach/"><u>[New] Pro HDR Image Processing A Lightroom Approach</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-immediate-screenshot-recorder-chrome/"><u>[Updated] 2024 Approved Immediate Screenshot Recorder (Chrome)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-unlocking-ez-grabber-a-quick-guide-to-downloading-setting-up/"><u>[Updated] In 2024, Unlocking EZ Grabber - A Quick Guide to Downloading, Setting Up</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-laptoppc-video-editing-tools-apart-from-inshot-for-2024/"><u>[Updated] Laptop/PC Video Editing Tools Apart From Inshot for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplify-your-brands-reach-unveiling-eight-key-differences-between-profiles-and-pages/"><u>Amplify Your Brand's Reach: Unveiling Eight Key Differences Between Profiles & Pages</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/apples-m1-pro-versus-the-powerhouse-m1-max-what-to-note/"><u>Apple's M1 Pro Versus the Powerhouse M1 Max - What to Note?</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-digital-memories-linger-forever/"><u>Do Digital Memories Linger Forever?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-policy-nuances-at-facebooks-launched-transparency-center/"><u>Exploring Policy Nuances at Facebook’s Launched Transparency Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153081491-facebook-founder-names-goat-as-crypto-pet/"><u>Facebook Founder Names Goat as 'Crypto' Pet</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-access-the-meta-accounts-center-for-facebook-and-instagram/"><u>How to Access the Meta Accounts Center for Facebook and Instagram</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-passcode-from-iphone-15-complete-guide-drfone-by-drfone-ios/"><u>How To Remove Passcode From iPhone 15? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-uncovering-the-dynamics-of-youtubes-post-upload-system/"><u>In 2024, Uncovering the Dynamics of YouTube's Post-Upload System</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-5-best-social-media-platforms-for-seniors/"><u>The 5 Best Social Media Platforms for Seniors</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-importance-of-purging-your-facebook-watch-logs/"><u>The Importance of Purging Your Facebook Watch Logs</u></a></li>
+<li><a href="https://facebook.techidaily.com/thriving-in-the-virtual-world-12-secrets-for-boosting-fb-engagement/"><u>Thriving in the Virtual World: 12 Secrets for Boosting FB Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/timely-strategies-for-updating-fb-image/"><u>Timely Strategies for Updating FB Image</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-realme-12plus-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Realme 12+ 5G Location | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-and-repairing-inpage-kernel-failures/"><u>Troubleshooting and Repairing InPage Kernel Failures</u></a></li>
 </ul></div>
 

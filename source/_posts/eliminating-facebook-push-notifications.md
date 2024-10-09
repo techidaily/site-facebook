@@ -1,7 +1,7 @@
 ---
 title: Eliminating Facebook Push Notifications
-date: 2024-09-27T17:04:03.644Z
-updated: 2024-10-03T20:43:38.753Z
+date: 2024-10-07T22:40:30.663Z
+updated: 2024-10-08T22:52:37.378Z
 tags:
   - facebook
 categories:
@@ -50,25 +50,19 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
 
 ![facebook notification mark read](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-mark-read.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  To mark all of your Facebook notifications as read, follow the guide below:
 
 1. Head to**Facebook.com** and log into your account.
 2. Click on the**Notifications** icon in the upper right-hand corner.
 3. Click on the three horizontal dots.
 4. Select**Mark all as read** .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Turn Off Facebook Notifications
 
@@ -96,13 +90,6 @@ Follow the steps below to learn about the process on the web app:
 
 ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
  You can also use the menu to re-enable a notification that you'd previously disabled using the first method we discussed.
@@ -118,24 +105,37 @@ Follow the steps below to learn about the process on the web app:
 
  It's also worth scrolling to the very bottom of the list to the**How you receive notifications** section. In it, you can select which browser and email notifications you receive. You can choose to receive Facebook's suggested notifications if can't be bothered to customize everything—but it will probably still result in you getting too much spam.
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Stop Facebook Notifications Altogether
 
  You can't disable all types of Facebook notifications in the web app, but you can stop Facebook notifications entirely on Android and iOS.
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Stop Facebook Notifications on Android
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -158,16 +158,10 @@ Close
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## More Ways to Make Facebook Work for You
@@ -193,19 +187,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-mastering-the-basics-a-thorough-guide-to-using-mobizen-recorders/"><u>[New] In 2024, Mastering the Basics A Thorough Guide to Using Mobizen Recorders</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-understanding-igs-evolution-reels-and-stories/"><u>[Updated] 2024 Approved Understanding IG's Evolution Reels and Stories</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/10-best-yoga-youtube-channels-to-follow-keep-fit-for-2024/"><u>10 Best Yoga YouTube Channels to Follow - Keep Fit for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-how-to-smoothly-integrate-linktree-into-your-tiktok-bio-space/"><u>2024 Approved How to Smoothly Integrate Linktree Into Your TikTok Bio Space</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensuring-accurate-health-info-in-the-age-of-viral-data/"><u>Ensuring Accurate Health Info in the Age of Viral Data</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/full-guide-to-iphone-12-mini-icloud-bypass-by-drfone-ios/"><u>Full guide to iPhone 12 mini iCloud Bypass</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/future-of-flexible-phones-what-to-expect-from-the-new-google-pixel-fold-price-guess-release-window-hardware-info-and-buzzed-theories/"><u>Future of Flexible Phones: What to Expect From the New Google Pixel Fold - Price Guess, Release Window, Hardware Info, and Buzzed Theories</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/gpu-nostalgia-update-for-2024/"><u>GPU Nostalgia Update for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-google-pixel-fold-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Google Pixel Fold without App | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/posting-perfection-a-complete-list-of-the-top-30-abbreviations-in-social-media/"><u>Posting Perfection: A Complete List of the Top 30 Abbreviations in Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/pro-palestinian-activists-tank-facebooks-app-store-rating-with-1-star-reviews/"><u>Pro-Palestinian Activists Tank Facebook's App Store Rating With 1-Star Reviews</u></a></li>
-<li><a href="https://facebook.techidaily.com/re-linking-solutions-for-recovering-from-social-media-blackouts/"><u>Re-Linking: Solutions for Recovering From Social Media Blackouts</u></a></li>
-<li><a href="https://facebook.techidaily.com/rugby-unions-declare-media-blackout-protest/"><u>Rugby Unions Declare Media Blackout Protest</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-chats-beyond-facebook/"><u>Secure Chats Beyond Facebook</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-strategies-for-overcoming-black-screen-errors-during-youtube-viewing/"><u>[New] In 2024, Strategies for Overcoming Black Screen Errors During YouTube Viewing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-zero-downloads-the-ultimate-list-of-seamless-gif-to-video-tools/"><u>[New] Zero Downloads The Ultimate List of Seamless GIF to Video Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-harnessing-the-power-of-mov-recording-in-windows-10/"><u>2024 Approved Harnessing the Power of MOV Recording in Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-convenience-vs-security-with-facebook-as-a-login-option/"><u>Balancing Convenience vs Security with Facebook as a Login Option</u></a></li>
+<li><a href="https://change-location.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-facebooks-business-model-change-with-giphy-exit/"><u>Could Facebook's Business Model Change with Giphy Exit?</u></a></li>
+<li><a href="https://os-tips.techidaily.com/effective-strategies-how-to-wipe-out-all-message-data-from-your-iphone-once-and-forall/"><u>Effective Strategies: How to Wipe Out All Message Data From Your iPhone Once and ForAll</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-guide-to-downloading-wi-fi-drivers-for-windows-7-operating-system/"><u>Effortless Guide to Downloading Wi-Fi Drivers for Windows 7 Operating System</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-4-trends-impacting-facebook-users/"><u>Examining 4 Trends Impacting Facebook Users</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-poco-c65-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Poco C65</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-your-time-on-social-media-fbs-reels/"><u>Limiting Your Time on Social Media - FB's Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/photo-uploads-digital-ownership-questions/"><u>Photo Uploads: Digital Ownership Questions</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/stop-nvidia-rtx-freeze-events/"><u>Stop NVIDIA RTX Freeze Events</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-ranked-text-enhancers-for-after-effects/"><u>Top-Ranked Text Enhancers for After Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/total-quietude-in-the-face-of-facebook-alerts/"><u>Total Quietude in the Face of Facebook Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-this-person-is-unavailable-on-messenger-mean/"><u>What Does “This Person Is Unavailable on Messenger” Mean?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-some-people-want-to-make-instagram-instagram-again/"><u>Why Some People Want to Make Instagram Instagram Again</u></a></li>
 </ul></div>
 

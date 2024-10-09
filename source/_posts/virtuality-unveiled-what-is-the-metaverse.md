@@ -1,7 +1,7 @@
 ---
 title: "Virtuality Unveiled: What Is the Metaverse?"
-date: 2024-09-17T16:53:40.263Z
-updated: 2024-09-22T00:53:19.554Z
+date: 2024-10-01T17:08:46.456Z
+updated: 2024-10-09T04:57:13.529Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ So, what is the metaverse?
 
 ![Girl wearing glasses lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Girl-wearing-glasses-neon-lights.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Stephenson, on his part, describes his metaverse in Snow Crash, instead of as a hallucination, but as “graphic representations—the user interfaces—of a myriad different pieces of software that have been engineered by major corporations” and as “made available to the public over the worldwide fiber-optics network.” This is science fiction talking, of course. The metaverse doesn’t really exist.
 
 Yet.
@@ -70,6 +77,13 @@ Yet.
 
  The metaverse is a collection of information and software linked together and made available to the public through a worldwide network, either as 3D shared persistent virtual spaces or in the form of 2D images.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Far Off Are We From the Metaverse?
 
 ![Guy wearing AR glasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-AR-glasses.jpg)
@@ -82,13 +96,6 @@ Yet.
 
 ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
 
 * **Active Worlds (1995)** : This online virtual world was developed by ActiveWorlds Inc. Active Worlds allowed users to log in, assign themselves a name, and explore 3D virtual worlds created by others, as well as to create worlds of their own.
@@ -98,15 +105,28 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Metaverse Is the Future of the Internet
 
 ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
@@ -128,5 +148,23 @@ Yet.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-address-and-overcome-a-youtube-content-id-issue/"><u>[New] 2024 Approved How to Address and Overcome a YouTube Content ID Issue</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-turn-up-the-volume-with-instagram-reels-copycat-tiktok-style/"><u>[Updated] In 2024, Turn Up the Volume with Instagram Reels, Copycat TikTok Style</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-best-time-to-post-on-ig-for-maximum-reach-for-2024/"><u>[Updated] The Best Time to Post on IG for Maximum Reach for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1723808062249-advanced-techniques-to-strengthen-bluetooth-signals-on-your-windows-laptop-or-pc/"><u>Advanced Techniques to Strengthen Bluetooth Signals on Your Windows Laptop or PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-networking-diving-into-facebooks-metaverse-concept/"><u>Beyond Social Networking: Diving Into Facebook's Metaverse Concept</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/comprehensive-guide-to-overcoming-pnp-detected-fatal-error-on-windows-11-machines/"><u>Comprehensive Guide to Overcoming PNP Detected Fatal Error on Windows 11 Machines</u></a></li>
+<li><a href="https://facebook.techidaily.com/e2ee-for-fb-chatters-schedule-revealed-soon/"><u>E2EE for FB Chatters: Schedule Revealed Soon?</u></a></li>
+<li><a href="https://facebook.techidaily.com/enabling-location-sharing-with-facebook-peers/"><u>Enabling Location Sharing with Facebook Peers</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-realme-narzo-60-pro-5g-by-drfone-android/"><u>How to Bypass FRP on Realme Narzo 60 Pro 5G?</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-download-the-best-video-editor-for-mac-splice-video-editor/"><u>New 2024 Approved Download the Best Video Editor for Mac Splice Video Editor</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-unlocking-mp3-from-aiff-step-by-step-processes-revealed/"><u>New Unlocking MP3 From AIFF Step-by-Step Processes Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/steer-clear-of-others-in-fb-on-this-day-feature/"><u>Steer Clear of Others in FB On This Day Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-playbook-for-dodging-online-charlatans/"><u>The Essential Playbook for Dodging Online Charlatans</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-shutdown-saga-how-meta-ended-facial-id-on-facebook/"><u>The Shutdown Saga: How Meta Ended Facial ID on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-identity-transformation-protocol/"><u>Understanding Facebook's Identity Transformation Protocol</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/wireless-vr-gaming-how-to-setup-and-sync-psvr-with-your-pc/"><u>Wireless VR Gaming: How to Setup and Sync PSVR With Your PC</u></a></li>
+</ul></div>
 

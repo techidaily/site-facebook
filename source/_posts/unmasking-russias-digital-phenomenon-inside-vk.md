@@ -1,7 +1,7 @@
 ---
 title: "Unmasking Russia's Digital Phenomenon: Inside VK"
-date: 2024-09-15T18:10:12.091Z
-updated: 2024-09-21T19:33:46.372Z
+date: 2024-10-07T01:22:26.900Z
+updated: 2024-10-08T16:25:53.801Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ Some potential explanations for this difference include:
 * The site's tendency to encourage users to expand their social circles, as opposed to remaining only in the ones that they are already a part of.
 * The popularity of the social media site Odnoklassniki with older Russian adults.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. VK Offers a Lot In Terms of Profile Creation
 
  Facebook as a company tends to encourage users to populate their timelines with the latest on their lives, as opposed to creating an extremely specific profile of general information about themselves.
@@ -55,6 +62,13 @@ Some potential explanations for this difference include:
  This is not the case on VK—in fact, the site's profile-creation aspect is honestly more granular than anything we've ever seen on any social media site, period.
 
 ![Creating a profile on VK.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk-social-media.png)
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To name one example, the sign-up process asks that you add your education to your profile. I expected to drop my university's name in and move on.
 
@@ -69,13 +83,6 @@ Some potential explanations for this difference include:
  Many activist groups at odds with the Russian establishment used the platform frequently, both as ordinary users and as a means to advance their causes. When asked to permanently ban these groups and individuals, Durov refused.
 
  Needless to say, things got complicated. Durov was eventually coerced into forfeiting his stake in the company in 2014\. Everything went to Alisher Usmanov, the richest man in Russia at the time.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Russian Users Believe VK is Better than Facebook
 
@@ -92,10 +99,10 @@ Some potential explanations for this difference include:
  Included in the spoils: names, email addresses, passwords, and other sensitive contact information, all found being sold on the dark web shortly after. VK isn't the first, nor the last. Still, it makes you think. We should always be careful about what we share online, even on a website as huge as this one.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7\. The Most Common Password on VK is "123456"
@@ -111,16 +118,10 @@ Some potential explanations for this difference include:
 ![The VK sign-up page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vkontakte.png)
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  In fact, based on VK's current website design, you might assume you were on Facebook a few years ago.
@@ -152,5 +153,23 @@ Some potential explanations for this difference include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-easily-access-igtv-content-download-guide-for-pcmac-users-for-2024/"><u>[New] Easily Access IGTV Content Download Guide for PC/Mac Users for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-cutting-edge-8-innovative-open-source-video-meeting-systems-for-2024/"><u>[New] The Cutting Edge 8 Innovative Open Source Video Meeting Systems for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-5-dreamy-winter-scenes-as-youtube-backdrops/"><u>[Updated] 5 Dreamy Winter Scenes as YouTube Backdrops</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-rising-trend-quest-2-sales-surge-among-hack-victims/"><u>Cybersecurity Rising Trend - Quest 2 Sales Surge Among Hack Victims</u></a></li>
+<li><a href="https://facebook.techidaily.com/defeating-fb-pursuit-through-off-facebook-settings/"><u>Defeating FB Pursuit Through Off-Facebook Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-strangers-from-seeing-your-facebook-4-settings-to-tweak/"><u>How to Stop Strangers From Seeing Your Facebook: 4 Settings to Tweak</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencers-alphabet-decoding-the-power-of-30-abbreviations/"><u>Influencer's Alphabet: Decoding the Power of 30 Abbreviations</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-online-discussions-with-fb-page-polls/"><u>Optimizing Online Discussions with FB Page Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-breakup-on-the-horizon-fb-and-giphys-future/"><u>Potential Breakup on the Horizon: FB & Giphy's Future?</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-time-and-privacy-why-ditch-facebook-now/"><u>Reclaiming Time and Privacy: Why Ditch Facebook Now</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/segreti-e-strategie-per-aumentare-la-conversione-dei-tuoi-contenuti-in-formato-4khd/"><u>Segreti E Strategie per Aumentare La Conversione Dei Tuoi Contenuti in Formato 4K/HD</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-convert-mts-for-redmi-note-12-pro-4g-by-aiseesoft-video-converter-play-mts-on-android/"><u>The way to convert MTS for Redmi Note 12 Pro 4G</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-6-appsservices-to-trace-any-apple-iphone-se-2022-location-by-mobile-number-drfone-by-drfone-virtual-ios/"><u>Top 6 Apps/Services to Trace Any Apple iPhone SE (2022) Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-exploring-vn-video-editor-on-pc-a-brief-look-for-2024/"><u>Updated Exploring VN Video Editor on PC A Brief Look for 2024</u></a></li>
+<li><a href="https://techidaily.com/xiaomi-tutorial-bypass-lock-screensecurity-password-pinfingerprintpattern-by-drfone-android-unlock-android-unlock/"><u>Xiaomi Tutorial - Bypass Lock Screen,Security Password Pin,Fingerprint,Pattern</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Inside Info: Facebook's Potential Wrist Tech Endeavor"
-date: 2024-09-30T21:29:11.843Z
-updated: 2024-10-03T19:03:32.242Z
+date: 2024-10-05T02:26:58.881Z
+updated: 2024-10-09T01:23:35.564Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/a68c5c5018f608284d7af133f2911830741f89825
  Though Facebook is yet to announce the features of its smartwatch,[news reports](https://www.theverge.com/2021/6/9/22526266/facebook-smartwatch-two-cameras-heart-rate-monitor) have already suggested how it could look. The smartwatch will have a steel frame and be powered by the open-source Android operating system. The smartwatch will be available in black, white, and gold colors.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### A Dual-Camera System
@@ -48,10 +48,16 @@ thumbnail: https://thmb.techidaily.com/a68c5c5018f608284d7af133f2911830741f89825
  Since it's intended as a communication device, you'll also be able to apps like Messenger and WhatsApp.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### LTE Connectivity
@@ -62,16 +68,16 @@ thumbnail: https://thmb.techidaily.com/a68c5c5018f608284d7af133f2911830741f89825
 
 ![smartwatch-fitness-tracking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-fitness-tracking.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Facebook aims to add fitness tracking features](https://www.theinformation.com/articles/facebook-plans-smartwatch-with-focus-on-messaging-health) to its watch in a bid to attract fitness enthusiasts. This means that it’ll have a heart rate monitor and other health features.
 
  Rumors also suggest that the watch allows integration with apps and devices from fitness companies like Peloton. As the device will have LTE connectivity, you would be able to leave your phone behind when working out or jogging.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Price, Launch Date, and News
 
@@ -87,18 +93,18 @@ thumbnail: https://thmb.techidaily.com/a68c5c5018f608284d7af133f2911830741f89825
 
 ![apple-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/apple-watch.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  With Apple having[sold more than 34 million smartwatches](https://www.statista.com/chart/15035/worldwide-smartwatch-shipments/) last year (more than the Swiss watch industry), it’s easy to understand why Facebook is striving to get its product into the market. Apple and Samsung have already taken the control of the smartwatch market, and Facebook will have to face tough competition.
 
  One of the key reasons Apple watches have done so well is their privacy protection policies. Wearables collect and store your personal and health information, and this is where privacy greatly matters. Considering Facebook's record of user data handling, it’s interesting to see if Facebook can convince people to buy its new smartwatch.
 
  Related:[Should You Trust Facebook With Oculus Quest 2 Privacy?](https://www.makeuseof.com/should-you-trust-facebook-with-oculus-quest-2-privacy/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Facebook Is Getting More Into the Hardware Race
 
@@ -121,21 +127,22 @@ thumbnail: https://thmb.techidaily.com/a68c5c5018f608284d7af133f2911830741f89825
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-fullview-pacts-the-art-of-media-company-selection/"><u>[New] FullView Pacts The Art of Media Company Selection</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-from-social-media-to-monetary-success-the-roadmap-for-instagram-sponsorship/"><u>[New] In 2024, From Social Media to Monetary Success The Roadmap for Instagram Sponsorship</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-navigating-through-best-6-free-online-converters-tiktok-to-mp3/"><u>2024 Approved Navigating Through Best 6 Free Online Converters TikTok to MP3</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1726226866367-webm-to-mp4/"><u>完全無料のオンラインビデオファイル変換 - WEBM to MP4</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/construct-powerpoint-into-digital-film-for-2024/"><u>Construct PowerPoint Into Digital Film for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-online-security-by-editing-phone-and-email/"><u>Enhance Online Security by Editing Phone & Email</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-surpasses-apple-via-tailored-subscriptions-unveiled-operations/"><u>Facebook Surpasses Apple via Tailored Subscriptions: Unveiled Operations</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-next-move-integrating-reels-and-rooms-into-stories/"><u>Facebook's Next Move: Integrating Reels & Rooms Into Stories</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-latest-update-of-realtek-bluetooth-drivers-for-optimal-performance-on-windows-11-10/"><u>Get the Latest Update of Realtek Bluetooth Drivers for Optimal Performance on Windows 11, 10</u></a></li>
-<li><a href="https://facebook.techidaily.com/hidden-horizon-decoding-the-future-of-facebooks-smart-device/"><u>Hidden Horizon: Decoding the Future of Facebook’s Smart Device</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-infinix-note-30-vip-by-drfone-android/"><u>How to Show Wi-Fi Password on Infinix Note 30 VIP</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-look-at-what-fb-omits-from-your-timeline/"><u>Inside Look at What Fb Omits From Your Timeline</u></a></li>
-<li><a href="https://some-skills.techidaily.com/prime-picks-top-10-unrivaled-digital-backdrop-switchers-for-2024/"><u>Prime Picks Top 10 Unrivaled Digital Backdrop Switchers for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/profit-driven-plans-top-5-social-media-monetization-ideas/"><u>Profit-Driven Plans: Top 5 Social Media Monetization Ideas</u></a></li>
-<li><a href="https://facebook.techidaily.com/stay-alert-expose-these-14-ubiquitous-facebook-scams/"><u>Stay Alert! Expose These 14 Ubiquitous Facebook Scams</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722977511262-the-technology-poses-challenges-like-carbon-build-up-on-intake-valves-which-engineers-address-with-dual-injectors-or-redesigned-valve-trains/"><u>The Technology Poses Challenges Like Carbon Build-Up on Intake Valves, Which Engineers Address with Dual Injectors or Redesigned Valve Trains.</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-avoiding-common-mistakes-in-screencasting-for-2024/"><u>[New] Avoiding Common Mistakes in Screencasting for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-best-webcams-for-podcast-for-2024/"><u>[New] Best Webcams for Podcast for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-a-step-by-step-guide-to-edit-youtube-videos-in-finalcut-for-2024/"><u>[Updated] A Step-by-Step Guide to Edit YouTube Videos in FinalCut for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-channels-templates-at-no-charge-for-2024/"><u>[Updated] Elevate Your Channels - Templates at No Charge for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-reasons-social-media-killed-online-forums/"><u>6 Reasons Social Media Killed Online Forums</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-fostering-unseen-dialogue-in-social-networks/"><u>A Step-by-Step Guide to Fostering Unseen Dialogue in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/banish-fb-push-notifications-and-messages-easily/"><u>Banish FB Push Notifications and Messages Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/blending-beats-with-networking-what-could-this-mean-for-fb-and-spotify/"><u>Blending Beats with Networking: What Could This Mean for FB & SPOTIFY?</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-life-to-chats-with-augmented-reality-updates-from-fb/"><u>Bringing Life to Chats with Augmented Reality Updates From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/chats-on-fb-and-ig-remain-unencrypted-wait-until-2022/"><u>Chats on FB & IG Remain Unencrypted - Wait Until 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/checking-the-legitimacy-of-fbs-safety-mail-address-securityfbcom/"><u>Checking the Legitimacy of FB's Safety Mail Address: security@fb.com</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/comprehensive-tutorial-on-implementing-and-operating-chatgpt-addons/"><u>Comprehensive Tutorial on Implementing and Operating ChatGPT Addons</u></a></li>
+<li><a href="https://fox-that.techidaily.com/dealing-with-a-delayed-iphone-screen-shutdown-here-are-some-expert-tips/"><u>Dealing with a Delayed iPhone Screen Shutdown? Here Are Some Expert Tips</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-touch-screen-on-oneplus-nord-ce-3-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-save-time-save-stress-a-step-by-step-guide-to-saving-fcp-projects-for-2024/"><u>New Save Time, Save Stress A Step-by-Step Guide to Saving FCP Projects for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154597437-secure-digital-dialogues-facebook-implements-comprehensively-end-to-end-encryption-for-direct-messaging-and-calls/"><u>Secure Digital Dialogues: Facebook Implements Comprehensively End-to-End Encryption for Direct Messaging and Calls</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-your-disabled-apple-iphone-13-pro-max-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>Unlock Your Disabled Apple iPhone 13 Pro Max Without iTunes in 5 Ways | Dr.fone</u></a></li>
 </ul></div>
 

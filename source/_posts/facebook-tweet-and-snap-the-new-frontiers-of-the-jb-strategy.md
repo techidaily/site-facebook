@@ -1,7 +1,7 @@
 ---
 title: "Facebook, Tweet, and Snap: The New Frontiers of the JB Strategy"
-date: 2024-10-02T16:21:26.728Z
-updated: 2024-10-03T22:52:05.103Z
+date: 2024-10-07T16:32:52.840Z
+updated: 2024-10-08T22:14:58.465Z
 tags:
   - facebook
 categories:
@@ -43,10 +43,16 @@ thumbnail: https://thmb.techidaily.com/2d6e3d004fe41d35820dae54c2391ec61920df6e0
  Biden will film a direct-to-camera public service announcement that'll be spread across digital platforms, while vice president Kamala Harris will take part in social media publicity—which includes an interview with weekly newspaper[Carolina Peacemaker](http://www.peacemakeronline.com/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Social Media Against COVID-19
@@ -56,10 +62,10 @@ thumbnail: https://thmb.techidaily.com/2d6e3d004fe41d35820dae54c2391ec61920df6e0
 ![Facebook Twitter Russian Trolls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/09/facebook-twitter-russian-trolls.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: Pixabay/Pexels
@@ -83,18 +89,24 @@ thumbnail: https://thmb.techidaily.com/2d6e3d004fe41d35820dae54c2391ec61920df6e0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-screencasting-simplified-adopting-the-ezvide-method/"><u>[New] In 2024, Screencasting Simplified Adopting the EZvide Method</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-how-to-shoot-slow-motion-video-on-iphone/"><u>2024 Approved How to Shoot Slow Motion Video on iPhone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-quick-resize-youtube-to-fit-mac-display-ratio/"><u>2024 Approved Quick Resize YouTube to Fit Mac Display Ratio</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/amd-rx-driver-fix-for-windows-11-10-8-and-7/"><u>AMD RX Driver Fix for Windows 11, 10, 8 and 7</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/bites-outside-the-box-new-film-favorites-for-2024/"><u>Best Bites Outside the Box New Film Favorites for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/close-monitoring-for-signs-of-sepsis-and-early-initiation-of-supportive-care-measures-including-fluid-resuscitation-vasopressors-if-indicated-and-organ-supp314/"><u>Close Monitoring for Signs of Sepsis and Early Initiation of Supportive Care Measures Including Fluid Resuscitation, Vasopressors if Indicated, and Organ Support as Necessary.</u></a></li>
-<li><a href="https://facebook.techidaily.com/fbs-green-horizon-shift-to-100-clean-energy/"><u>FB's Green Horizon: Shift to 100% Clean Energy</u></a></li>
-<li><a href="https://facebook.techidaily.com/framework-to-address-child-profile-creation-on-social-networks/"><u>Framework to Address Child Profile Creation on Social Networks</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-your-behringer-usb-sound-card-driver-instantly-click-here-for-free/"><u>Get Your Behringer USB Sound Card Driver Instantly - Click Here for Free</u></a></li>
-<li><a href="https://facebook.techidaily.com/redesigning-instagram-blending-old-and-new-elements/"><u>Redesigning Instagram: Blending Old and New Elements</u></a></li>
-<li><a href="https://techtrends.techidaily.com/scarica-free-mp3-music-per-mac-effettuare-download-rapido-e-semplice/"><u>Scarica Free MP3 Music per Mac - Effettuare Download Rapido E Semplice</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/take-your-mobile-games-to-the-next-level-with-nextorages-new-pcie-40-ssd-2230-form-factor-at-7400-mbs/"><u>Take Your Mobile Games to the Next Level With Nextorage's New PCIe 4.0 SSD - 2230 Form Factor at 7,400 MB/S</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-symphony-how-spotify-and-facebook-are-converging-on-project-boombox/"><u>The Future Symphony: How Spotify & Facebook Are Converging on Project Boombox</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-discover-the-depth-of-4k-with-the-nikon-d500-camera/"><u>2024 Approved Discover the Depth of 4K with the Nikon D500 Camera</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-flipping-the-script-on-memes-with-kinemaster/"><u>2024 Approved Flipping the Script on Memes with KineMaster</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-things-to-know-about-metas-new-privacy-policy/"><u>4 Things to Know About Meta's New Privacy Policy</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-vivo-y100a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-augmented-reality-the-true-metaverse-story/"><u>Beyond Augmented Reality: The True Metaverse Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-media-decoding-the-future-impact-of-facebooks-metaverse/"><u>Beyond Social Media: Decoding the Future Impact of Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/blending-beats-with-likes-whats-spinning-in-boombox/"><u>Blending Beats with Likes: What's Spinning in Boombox?</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-process-of-checking-blocked-users/"><u>Breaking Down the Process of Checking Blocked Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/chronicling-your-digital-dialogue-a-methodical-approach-to-fb-data-collection/"><u>Chronicling Your Digital Dialogue: A Methodical Approach to FB Data Collection</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-unforgettable-fb-life-story/"><u>Crafting Unforgettable FB Life Story</u></a></li>
+<li><a href="https://fox-search.techidaily.com/customize-virtual-machine-settings-for-optimized-performance/"><u>Customize Virtual Machine Settings for Optimized Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-the-past-clutter-deleting-facebook-watch-data/"><u>Cut the Past Clutter: Deleting Facebook Watch Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-privacy-triumph-germany-stops-facebooks-whatsapp-collection-campaign/"><u>Data Privacy Triumph: Germany Stops Facebook's WhatsApp Collection Campaign</u></a></li>
+<li><a href="https://program-issues.techidaily.com/expert-advice-eliminating-game-instability-and-crashes-in-pcs-halo-infinite/"><u>Expert Advice: Eliminating Game Instability and Crashes in PC's Halo Infinite</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Samsung Galaxy S24 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagram-photo-perfection-applying-stylish-borders/"><u>In 2024, Instagram Photo Perfection Applying Stylish Borders</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Google Pixel 8? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mastering-instagram-aesthetics-creating-charming-collages/"><u>Mastering Instagram Aesthetics Creating Charming Collages</u></a></li>
+<li><a href="https://fox-access.techidaily.com/turning-xmlssattml-files-into-srt-formats-strategies-and-techniques/"><u>Turning XML/SSA/TTML Files Into SRT Formats Strategies and Techniques</u></a></li>
 </ul></div>
 

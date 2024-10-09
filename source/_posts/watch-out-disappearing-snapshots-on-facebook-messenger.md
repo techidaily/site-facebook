@@ -1,7 +1,7 @@
 ---
 title: "Watch Out: Disappearing Snapshots on Facebook Messenger"
-date: 2024-09-26T18:47:46.937Z
-updated: 2024-10-03T20:17:46.346Z
+date: 2024-10-04T19:57:42.792Z
+updated: 2024-10-09T04:04:47.386Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5
 
  Meta expects default encryption on Messenger to be[globally implemented by 2023](https://www.makeuseof.com/meta-delays-end-to-end-encryption-until-2023/) , when Instagram and Messenger are also likely to merge.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Activate Screenshot Notifications on Messenger
 
  Because Messenger's end-to-end encryption isn't turned on by default, you have to enable Secret Conversations with each Messenger contact. Both parties must have the latest version of the app. If one party doesn't, they'll have to update the app before this feature can work on their end.
@@ -53,28 +60,27 @@ thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5
 ![Starting a new conversation on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery-4-2.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Starting a secret conversation in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery5-2.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Messenger secret conversations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery6-2.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -82,10 +88,10 @@ Close
  Once you do the above, if your chat partner takes a screenshot of your secret conversation before the message disappears, Messenger will immediately let you know.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Other Updates to Messenger
@@ -109,14 +115,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-the-best-ten-spotify-equipment-for-high-quality-recording-for-2024/"><u>[New] The Best Ten Spotify Equipment for High-Quality Recording for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/1726030041225-handbrake/"><u>「ビデオファイルを自由に使えるように: HandBrakeコピーガード対策手法」</u></a></li>
-<li><a href="https://article-helps.techidaily.com/best-three-tactics-for-maximizing-zoom-transcoding/"><u>Best Three Tactics for Maximizing Zoom Transcoding</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/gifs-automatici-dal-vero-fatto-scorri-il-passaggio-alla-conversione-video-su-pcbrowser-con-metodo-di-movavi/"><u>GIFs Automatici Dal Vero Fatto: Scorri Il Passaggio Alla Conversione Video Su PC/Browser Con Metodo Di Movavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/gymnastics-groups-reject-social-networking/"><u>Gymnastics Groups Reject Social Networking</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-enables-2fa-via-whatsapp-for-secure-access/"><u>Instagram Enables 2FA via WhatsApp for Secure Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/iphones-escape-from-app-surveillance-prowess/"><u>IPhones Escape From App Surveillance Prowess</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-details-for-your-youngsters-facebook-messenger/"><u>Streamlining Details for Your Youngster’s Facebook Messenger</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/youtube-free-conversion-hack-turn-hd-fb-videos-into-high-res-mp4-for-free/"><u>YouTube-Free Conversion Hack Turn HD FB Videos Into High-Res MP4 For Free</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-essential-8-free-tools-enhancing-business-video-conferencing-efficiency-for-2024/"><u>[New] Essential 8 Free Tools Enhancing Business Video Conferencing Efficiency for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-metaverse-meets-the-multiverse-a-detailed-comparison-for-2024/"><u>[New] Metaverse Meets the Multiverse A Detailed Comparison for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-market-dominance-challenged-by-facebooks-personalized-link-service/"><u>Apple's Market Dominance Challenged by Facebook’s Personalized Link Service</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/bypassing-facebook-for-access-to-messenger-a-comprehensive-guide/"><u>Bypassing Facebook for Access to Messenger: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/chamber-charm-for-communication-beginners/"><u>Chamber Charm for Communication Beginners</u></a></li>
+<li><a href="https://article-posts.techidaily.com/choosing-the-clearer-display-ultrawide-vs-uhd-4k-explored-for-2024/"><u>Choosing the Clearer Display UltraWide vs UHD 4K Explored for 2024</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/conversion-gratuite-raw-vers-jpeg-en-ligne-utilisation-facile-avec-movavi/"><u>Conversion Gratuite RAW Vers JPEG en Ligne - Utilisation Facile Avec Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolutionary-path-of-internet-privacy-technologies/"><u>Evolutionary Path of Internet Privacy Technologies</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-from-political-interruptions-on-facebook/"><u>Freedom From Political Interruptions on Facebook</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-vivo-v29e-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Vivo V29e Phone? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/step-by-step-guide-setting-up-the-sporthd-extension-in-kodi-versions-20-and-19/"><u>Step-by-Step Guide: Setting Up the SportHD Extension in Kodi (Versions 20 and 19)</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/synthesizing-the-future-using-chatgpt-in-digital-music-production/"><u>Synthesizing the Future: Using ChatGPT in Digital Music Production</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-friendship-to-the-next-level-fb-avatars-and-whatsapp-dialogue/"><u>Taking Friendship to the Next Level: FB Avatars & WhatsApp Dialogue</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-photodna-and-its-forensic-capabilities/"><u>Understanding PhotoDNA and Its Forensic Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-guide-to-the-most-engaging-podcasts-in-22/"><u>Your Guide to the Most Engaging Podcasts in '22</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "'Just Chill': Decoding Instagram’s Encouragement to Reduce Tech Time"
-date: 2024-09-17T18:14:40.240Z
-updated: 2024-09-21T21:58:50.800Z
+date: 2024-10-02T00:36:54.751Z
+updated: 2024-10-09T00:49:57.532Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/d35c94f12f755c322517a2947b55e4796f16febf7
 
  Mosseri says the Take a Break feature will be tested with a handful of users, with plans to roll it out in December 2021.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Instagram Wants You to "Take a Break"
 
  Meta has been facing increasing pressure from lawmakers to make its apps safer for users' mental health.
@@ -53,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/d35c94f12f755c322517a2947b55e4796f16febf7
  Haugen's claims added weight to those claims as she worked for the company and witnessed what she did firsthand.
 
  Meta’s Global Head of Security Antigone Davis also mentioned Instagram’s Take a Break feature in a Senate hearing over teen mental health back in September. At the hearing, Davis said the company aims to improve younger users' experience on the app by encouraging them to stop browsing after they'd been browsing too long.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Will Instagram's Opt-In Feature Be Effective?
 
@@ -75,12 +89,18 @@ thumbnail: https://thmb.techidaily.com/d35c94f12f755c322517a2947b55e4796f16febf7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/updated-a-flash-of-stardom-video-examination-for-2024/"><u>[Updated] A Flash of Stardom - Video Examination for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-high-definition-selecting-prime-lenses-for-professional-video/"><u>2024 Approved Mastering High Definition Selecting Prime Lenses for Professional Video</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-social-video-marketing-insights-for-small-business-infographic/"><u>2024 Approved Social Video Marketing Insights for Small Business [Infographic]</u></a></li>
+<li><a href="https://facebook.techidaily.com/generating-engagement-with-new-group-creation-on-fb/"><u>Generating Engagement with New Group Creation on FB</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-nokia-c02-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Nokia C02 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-interruption-the-science-behind-a-break-from-online-life/"><u>Instagram Interruption: The Science Behind a Break From Online Life</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-corsair-k55-keyboard-software-free-download-and-latest-updates/"><u>Latest Corsair K55 Keyboard Software: Free Download & Latest Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/likes-and-dislikes-analyzing-the-negative-side-effects/"><u>Likes and Dislikes: Analyzing the Negative Side Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-absence-on-social-media-messengers/"><u>Navigating Absence on Social Media Messengers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/screen-capture-showdown-bandicam-vs-camtasia-battle-for-2024/"><u>Screen Capture Showdown Bandicam Vs Camtasia Battle for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/trendsetters-tactics-push-the-popularity-of-your-fb-clan/"><u>Trendsetters Tactics: Push the Popularity of Your FB Clan</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mastering Messenger Kids' Sleep Mode: A Step-by-Step Guide"
-date: 2024-09-30T19:23:31.360Z
-updated: 2024-10-03T19:34:49.603Z
+date: 2024-10-05T20:14:54.316Z
+updated: 2024-10-08T16:57:40.500Z
 tags:
   - facebook
 categories:
@@ -40,13 +40,6 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
  For example, you can set the app's sleep time to start at 8pm on weekdays and 9pm on weekends.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Setting Up Sleep Mode on the Web App
 
  Follow these steps to enable Sleep Mode on using the browser version of the app:
@@ -60,16 +53,23 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 ![Click on Messenger Kids controls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids-controls.jpg)
 5. Click on**Sleep Mode** to open a customizable calendar. You have an option to alter the weekday and weekend use. For instance, most parents prefer handing out gadgets for screen time longer on weekends compared to weekdays.  
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Adjust the time on Sleep Mode](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Adjust-the-time-of-Sleep-Mode.jpg)
 6. Adjust the time to your requirements and click**Save** .
 
  You can follow the same process if you are logged in from a Chromebook. Similarly, it doesn't matter whether you're using a Linux, Windows, or Mac computer. The steps are similar once you are logged in to Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Setting Up Sleep Mode on Mobile
@@ -85,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 ![Parental Controls on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Parental-Controls-on-Messenger-Kids.jpg)
 
 ![Sleep Mode on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Sleep-Mode-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -104,13 +111,6 @@ Close
 
 There are several perks of using Messenger Kids Sleep Mode.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Better Focus on Other Activities
 
 ![Children performing various activities](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Children-performing-various-activities.jpg)
@@ -120,10 +120,10 @@ There are several perks of using Messenger Kids Sleep Mode.
  When you enable Sleep Mode in Messenger Kids, the app automatically stops working, leaving your kid with no option but to put the device aside and think about other things. This increased focus allows kids to perform better at school and put their minds to other things.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Less Stress
@@ -131,10 +131,10 @@ There are several perks of using Messenger Kids Sleep Mode.
 ![Child-stressed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Child-stressed.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Stress and anxiety are common problems among people with excessive screen time. It is evident that as you grow, modern requirements keep you glued in front of the screen.
@@ -152,10 +152,10 @@ There are several perks of using Messenger Kids Sleep Mode.
  A timetable focused on eating, sleeping, homework, school, and gadget-time can be a useful tool for kids who need more structure during their day. By enabling the Sleep Mode, you can make sure your children complete other tasks as well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Create Healthy Limits With the Messenger Kids Sleep Mode
@@ -177,18 +177,22 @@ There are several perks of using Messenger Kids Sleep Mode.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-your-content-with-these-10-reaction-wonders/"><u>[New] 2024 Approved Elevate Your Content with These 10 Reaction Wonders</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-efficient-techniques-to-record-and-edit-videos-using-adobe-connect-for-2024/"><u>[Updated] Efficient Techniques to Record & Edit Videos Using Adobe Connect for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-crafting-perfect-squares-imovie-guide-for-instagram-videos/"><u>[Updated] In 2024, Crafting Perfect Squares IMovie Guide for Instagram Videos</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-maccam-essentials-tips-and-tricks-recording/"><u>[Updated] In 2024, MacCam Essentials Tips and Tricks Recording</u></a></li>
-<li><a href="https://facebook.techidaily.com/event-execution-insight-pros-and-cons-of-utilizing-facebook/"><u>Event Execution Insight: Pros & Cons of Utilizing Facebook</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/improve-your-health-with-these-9-chatgpt-tips-and-techniques/"><u>Improve Your Health with These 9 ChatGPT Tips and Techniques</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-deciphering-the-latest-instagram-posting-rules/"><u>In 2024, Deciphering the Latest Instagram Posting Rules</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-realme-11-proplus-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Realme 11 Pro+ to Another | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-monitor-magic-top-choices-to-transform-your-xbox-series-x-playtime/"><u>In 2024, Monitor Magic Top Choices to Transform Your Xbox Series X Playtime</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-xiaomi-redmi-note-12-proplus-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Xiaomi Redmi Note 12 Pro+ 5G IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-assurance-delete-your-fb-browsing-data/"><u>Privacy Assurance: Delete Your FB Browsing Data</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-fbcta-its-impact-on-us/"><u>Understanding the FBCTA: Its Impact on Us</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-zuckerberg-stops-what-about-your-info/"><u>When Zuckerberg Stops, What About Your Info?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-from-mere-color-to-spectacle-hdr-vs-sdr-in-editing-for-2024/"><u>[New] From Mere Color to Spectacle HDR vs SDR in Editing for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-vcr-video-vault-extensive-reviews-and-summary-for-2024/"><u>[New] VCR Video Vault Extensive Reviews & Summary for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-the-art-of-gesture-tracking/"><u>2024 Approved Mastering the Art of Gesture Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/agile-operations-top-lite-android-workhorses/"><u>Agile Operations: Top Lite Android Workhorses</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazons-legal-action-against-10k-facebook-groups-administration/"><u>Amazon's Legal Action Against 10K Facebook Groups Administration</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/chromecast-or-roku-a-definitive-guide-to-picking-the-best-media-stick/"><u>Chromecast or Roku? A Definitive Guide to Picking the Best Media Stick</u></a></li>
+<li><a href="https://media-tips.techidaily.com/discover-excellent-no-cost-online-radio-software-top-picks-and-downloads/"><u>Discover Excellent No-Cost Online Radio Software – Top Picks and Downloads</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/enhancing-your-pc-aesthetics-modify-fonts-for-a-fresh-look-in-windows-11/"><u>Enhancing Your PC Aesthetics: Modify Fonts for a Fresh Look in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-data-collection-hurdles-with-ios-145/"><u>Facebook Faces Data Collection Hurdles with iOS 14.5</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-flawless-playlist-integration-techniques-in-web-development/"><u>In 2024, Flawless Playlist Integration Techniques in Web Development</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-vivo-v30-pro-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Vivo V30 Pro Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-tech-for-discovering-the-latest-online-circles/"><u>Leveraging Tech for Discovering the Latest Online Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-your-network-5-ways-to-use-social-media-careers/"><u>Maximize Your Network: 5 Ways to Use Social Media Careers</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-fixes-for-when-user32dll-is-not-found-on-your-computer/"><u>Step-by-Step Fixes for When User32.dll Is Not Found on Your Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-social-vanishing-utilizing-archive-feature-wisely/"><u>Strategic Social Vanishing: Utilizing Archive Feature Wisely</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-implications-of-non-responsive-users-in-messaging/"><u>The Implications of Non-Responsive Users in Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-this-years-most-noteworthy-tech-mistakes/"><u>Unearthing This Year's Most Noteworthy Tech Mistakes</u></a></li>
 </ul></div>
 

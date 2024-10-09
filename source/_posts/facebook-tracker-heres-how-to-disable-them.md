@@ -1,7 +1,7 @@
 ---
 title: Facebook Tracker? Here's How to Disable Them
-date: 2024-10-01T18:03:36.481Z
-updated: 2024-10-03T20:53:29.919Z
+date: 2024-10-07T02:08:33.432Z
+updated: 2024-10-08T18:38:58.605Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,19 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 
  We've become a society intent on sharing...**everything.** How many times do you scroll through your Facebook feed and sigh at the information people are spewing forth? It goes further than that.
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Facebook Like and Share Plug-In Tracking
 
  The Facebook "Like" and "Share" buttons found on almost every website funnel data back into the Facebook advertising algorithm. The presence of the Facebook social share buttons means Facebook is hoovering up your data, regardless of whether you have an account or not.
@@ -51,10 +64,10 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
  Regardless of whether you have an account, if you even use a site using a Facebook Product, you receive a Facebook tracking cookie.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Facebook Tracking via Instagram and WhatsApp
@@ -79,6 +92,13 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 
 ![facebook 2021 advertising data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-2021-advertising-data.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Regardless of what Facebook's advertising preferences say about me, it perfectly illustrates the profile built to serve you advertising you will engage with, rather than a random spiel of useless ads.
 
  If you want to stop being stalked by ads online, consider using the[Off-Facebook Activity](https://facebook.com/off-facebook-activity) tool to control which apps and services can[share your data with Facebook](https://www.makeuseof.com/tag/off-facebook-activity-tool/) .
@@ -88,13 +108,6 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
  I often hear people say they are free from Facebook tracking because they do not have an account. Well, the joke is on them (or us? All of us?!). One of the reasons Facebook's advertising works so well is the immense amount of websites and services feeding data back to Facebook's advertising arm. That includes data gathered using the methods laid out above.
 
  When you visit one of these sites, regardless of your Facebook user status, Facebook receives an IP address, location, browser details, and more. And the best bit of all? Facebook tracking cookies**never** expire.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Why Is Facebook Tracking Me?
 
@@ -110,13 +123,6 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 
  Unfortunately, tracking and advertising are central to the modern internet. Have you ever tried running the privacy-focused browser extensions NoScript or PrivacyBadger (more on these extensions in a moment)? Many sites break without the enormous number of advertising and tracking scripts embedded in their code.
 
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Do I Stop Facebook Tracking Me?
 
  The big question, the one you want the answer to: how do you stop Facebook tracking your movements around the internet? Is it possible to stop Facebook tracking you? Can you block a Facebook pixel?
@@ -131,40 +137,32 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 
  While these don't stop advertising and tracking directly, it does mean advertisers won't use that information to advertise to you.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Script Blocking
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### uBlock Origin
 
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
  I would advise using uBlock Origin and**whitelisting your favorite trusted sites** —like MakeUseOf! It has[blocked malvertising content](https://www.makeuseof.com/tag/malvertising-can-protect/) on more than one occasion!
 
 **Download:** uBlock Origin for[Chrome](https://chrome.google.com/webstore/detail/ublock-origin/cjpalhdlnbpafiamejdnhcphjbkeiagm) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/ublock-origin/) |[Opera](https://addons.opera.com/en-gb/extensions/details/ublock/) |[Safari](https://github.com/el1t/uBlock-Safari/releases) (All Free)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### NoScript
 
@@ -173,10 +171,10 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 **Download** : NoScript for[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/noscript/) (Free)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Privacy Badger
@@ -187,15 +185,48 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 
 **Download:** Privacy Badger for[Chrome](https://chrome.google.com/webstore/detail/privacy-badger/pkehgijcmpdhfbdbbnkijodmdjhbjlgp) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/privacy-badger17/) |[Opera](https://addons.opera.com/en-gb/extensions/details/privacy-badger/) (All Free)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use a Privacy-Focused Alternative Browser
 
  If you are using Google's Chrome browser, you are being tracked. But you don't have to fear your browser tracking your online activity. There are[several privacy-focused browser alternatives](https://www.makeuseof.com/tag/2-anonymous-web-browsers-completely-private-secure/) you can use to stop Facebook tracking.
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Epic Privacy Browser
 
 [Epic Privacy Browser](http://www.epicbrowser.com/) protects you from "600+ tracking attempts in an average browsing session" and can see lower-quoted prices for flights and other services. It also has an integrated VPN with servers in eight countries.
 
 **Download:** Epic Privacy Browser for[Windows](https://cdn.epicbrowser.com/epicsetup.exe) |[macOS](https://cdn.epicbrowser.com/epic%5Fv71.0.3579.98.dmg) (Both Free)
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Tor Browser
 
@@ -208,13 +239,6 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 [Brave](https://brave.com/) is a Chromium-based browser with a complete focus on privacy and security. It features an interesting approach to whitelisting: adding tiny micro-payments for your favorite publications.
 
 **Download** : Brave for Windows (64-bit) | Windows (32-bit) | macOS | Linux
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Advertising Opt-Outs and Disabling Third-Party Cookies
 
@@ -265,16 +289,21 @@ Image Credit: Sabphoto/Shutterstock
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-igtv-content-with-multilingual-support/"><u>[Updated] In 2024, Crafting IGTV Content with Multilingual Support</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-high-tech-vr-handhelds-our-top-10-list/"><u>[Updated] In 2024, High-Tech VR Handhelds Our Top 10 List</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-step-by-step-crafting-captivating-haul-videos/"><u>2024 Approved Step-by-Step Crafting Captivating Haul Videos</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/expertise-unlocked-find-your-perfect-gadgets-through-toms-hardware/"><u>Expertise Unlocked: Find Your Perfect Gadgets Through Tom's Hardware</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-pledges-5m-for-covd-19-global-response/"><u>Facebook Pledges $5M for COVD-19 Global Response</u></a></li>
-<li><a href="https://facebook.techidaily.com/fan-experience-elevated-with-fb-and-twt-coverage/"><u>Fan Experience Elevated with FB & Twt Coverage</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/free-online-wav-to-mp3-converter-by-movavi-convert-audio-files-in-minutes/"><u>Free Online WAV to MP3 Converter by Movavi: Convert Audio Files in Minutes!</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/kid-friendly-interactive-online-games-a-list-of-the-best-pick/"><u>Kid-Friendly Interactive Online Games: A List of the Best Pick</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-peace-and-productivity-why-drop-facebook/"><u>Privacy, Peace & Productivity: Why Drop Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-gaining-clients-on-social-media-focusing-on-fb/"><u>The Art of Gaining Clients on Social Media: Focusing on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-facebook-whatsapp-and-instagram-went-offline-for-six-hours/"><u>Why Facebook, WhatsApp, and Instagram Went Offline for Six Hours</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-navigating-the-future-vrs-role-in-business-strategy/"><u>[New] In 2024, Navigating the Future VR's Role in Business Strategy</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-effective-ways-to-gain-access-to-cost-free-imagery/"><u>[Updated] 2024 Approved Effective Ways to Gain Access to Cost-Free Imagery</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/activation-code-gratuito-per-videoeditorplus-inizia-a-editare-i-tuoi-video-ora/"><u>Activation Code Gratuito per VideoEditorPlus - Inizia a Editare I Tuoi Video Ora</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-the-mall-to-your-screen-fbs-friday-shopping/"><u>Bringing the Mall to Your Screen: FB’s Friday Shopping</u></a></li>
+<li><a href="https://facebook.techidaily.com/decrypting-the-codex-to-oversee-metas-account-central-hub/"><u>Decrypting the Codex to Oversee Meta’s Account Central Hub</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-break-free-from-small-viewing-mastering-facebooks-full-screen-function/"><u>In 2024, Break Free From Small Viewing Mastering Facebook's Full-Screen Function</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-disabling-apple-iphone-12-pro-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>In 2024, Disabling Apple iPhone 12 Pro Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-facebook-slideshow-maker-how-to-make-a-facebook-slideshow/"><u>In 2024, Facebook Slideshow Maker How to Make a Facebook Slideshow</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-top-3-storytelling-techniques-to-grow-your-youtube-channel/"><u>In 2024, Top 3 Storytelling Techniques to Grow Your YouTube Channel</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-the-pack-with-these-10-unique-free-social-account-aides/"><u>Leading the Pack with These 10 Unique Free Social Account Aides</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-concealing-your-facebook-content-via-archiving/"><u>Mastering the Art: Concealing Your Facebook Content via Archiving</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinventing-interaction-unpacking-six-key-shifts-in-facebooks-metaverse/"><u>Reinventing Interaction: Unpacking Six Key Shifts in Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-specs-on-hold-oculus-quest-iii-announcement-moved/"><u>Tech Specs on Hold: Oculus Quest III Announcement Moved</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mystery-behind-targeted-mobile-ads-insightful-or-accidental/"><u>The Mystery Behind Targeted Mobile Ads: Insightful or Accidental?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-password-cracking-tools-for-vivo-y200e-5g-by-drfone-android/"><u>Top 10 Password Cracking Tools For Vivo Y200e 5G</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/tutorial-windows-movie-maker-for-effective-animation-designs/"><u>Tutorial Windows Movie Maker for Effective Animation Designs</u></a></li>
 </ul></div>
 

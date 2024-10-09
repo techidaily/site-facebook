@@ -1,7 +1,7 @@
 ---
 title: Trust in Big Tech Wanes; Facebook Under Scrutiny
-date: 2024-09-15T21:27:09.922Z
-updated: 2024-09-21T23:13:19.146Z
+date: 2024-10-01T19:00:06.548Z
+updated: 2024-10-08T17:09:02.349Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/69a1f779573ffb1d9703aa1f0c2a82407b77bc350
 
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Is the Least Trusted
 
  About 44% of Americans trust Apple and Microsoft. Google does better with 48% trust. Amazon does really well comparatively, as it has the trust of a majority 53% of users (Amazon and Washington Post are both owned by Jeff Bezos). Other users either distrust these four companies or have no opinion.
@@ -46,9 +53,23 @@ thumbnail: https://thmb.techidaily.com/69a1f779573ffb1d9703aa1f0c2a82407b77bc350
 
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is Facebook So Distrusted?
 
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
 
@@ -65,10 +86,10 @@ thumbnail: https://thmb.techidaily.com/69a1f779573ffb1d9703aa1f0c2a82407b77bc350
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -94,5 +115,26 @@ thumbnail: https://thmb.techidaily.com/69a1f779573ffb1d9703aa1f0c2a82407b77bc350
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-elevate-your-tiktok-presence-with-exquisite-video-templates/"><u>[New] 2024 Approved Elevate Your TikTok Presence with Exquisite Video Templates</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-dive-into-history-the-definitive-list-of-student-friendly-channels-1-10-for-2024/"><u>[New] A Dive Into History The Definitive List of Student-Friendly Channels #1-10 for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-level-up-your-playtime-examining-kinemaster-on-android/"><u>[Updated] In 2024, Level Up Your Playtime Examining KineMaster on Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-quickly-speed-up-or-decelerate-videos-for-peak-engagement-for-2024/"><u>[Updated] Quickly Speed Up or Decelerate Videos for Peak Engagement for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-crafting-innovative-fb-videos-unique-ad-creation-techniques/"><u>2024 Approved Crafting Innovative FB Videos Unique Ad Creation Techniques</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-bundle-6-powerful-apps-to-remove-signature-borders/"><u>2024 Approved The Ultimate Bundle – 6 Powerful Apps to Remove Signature Borders</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-huawei-nova-y91-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/busting-metaverse-myths-a-closer-look-at-social-giants/"><u>Busting Metaverse Myths - A Closer Look at Social Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detente-a-look-at-life-without-social-media/"><u>Digital Détente: A Look at Life without Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-negative-feelings-towards-virtual-world-connectors/"><u>Dissecting Negative Feelings Towards Virtual World Connectors</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-power-structures-key-lessons-from-fb-files/"><u>Exposing Power Structures: Key Lessons From FB Files</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-13-to-other-iphone-15-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 13 to other iPhone 15 devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-facebook-memories-selective-sharing/"><u>Personalizing Facebook Memories: Selective Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-deletion-process-clearing-fb-visit-logs/"><u>Safe Deletion Process: Clearing FB Visit Logs</u></a></li>
+<li><a href="https://facebook.techidaily.com/supercharge-your-social-sphere-with-these-3-efficient-fb-tagging-tactics/"><u>Supercharge Your Social Sphere with These 3 Efficient Fb Tagging Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-5-best-social-media-platforms-for-business/"><u>The 5 Best Social Media Platforms for Business</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/shing-youtube-potential-the-best-shortcuts-to-higher-views/"><u>Unleashing YouTube Potential The Best Shortcuts to Higher Views</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-hides-in-a-users-muted-profile/"><u>What Hides in a User's Muted Profile?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/m4a-wav-movavi/"><u>オンラインでのフリー M4A からWAVへの音声変換 - Movavi</u></a></li>
+</ul></div>
 

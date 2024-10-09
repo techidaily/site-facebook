@@ -1,7 +1,7 @@
 ---
 title: "Phone Data: Silent Salesperson? Real Luck, Or Designed Deception?"
-date: 2024-09-27T20:52:07.888Z
-updated: 2024-10-03T17:26:31.320Z
+date: 2024-10-06T03:44:34.650Z
+updated: 2024-10-09T03:44:41.508Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ What is going on?
  Let's consider the evidence and try to work out. Is your phone listening to you for ads, or is it simply a good, old-fashioned, coincidence?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Does Your Phone Listen to You for Adverts?
@@ -46,6 +46,13 @@ What is going on?
  They believe that smartphone microphones are being used to record what they say, with the information used to[better target personalized Google ads](https://www.makeuseof.com/tag/disable-googles-personalized-ads/) on websites and Facebook.
 
  It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman[reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Reddit Users Think Their Phones Are Listening
 
@@ -64,10 +71,10 @@ What is going on?
  You'll find many similar stories on Reddit and beyond. Check this account of[a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is My Smartphone Really Listening to Me for Ads?
@@ -102,13 +109,6 @@ What is going on?
 
  Meanwhile, data protection expert Mariano delli Santi[told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Do Phones Listen to You? Companies Say “No”
 
  Google and Facebook have both denied that their apps can use smartphone microphones to gather information in this way.
@@ -134,10 +134,10 @@ What is going on?
  Surprisingly, not a single topic appeared as adverts, neither as pop-ups nor as inbox spam. There was no Google News feed item, and nothing on any linked devices.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## So, Why Do You Get Ads for Things You Talk About?
@@ -167,22 +167,15 @@ What is going on?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-precise-color-correction-mastery-in-gopro-studio/"><u>[New] 2024 Approved Precise Color Correction Mastery in GoPro Studio</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-zero-degrees-to-glory-peak-sports-in-cold-climates-for-2024/"><u>[Updated] Zero Degrees to Glory Peak Sports in Cold Climates for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/affordable-excellence-the-arcshell-ar-5-user-guide-and-in-depth-assessment/"><u>Affordable Excellence: The ArcShell AR-5 User Guide & In-Depth Assessment</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/bypass-issue-twitter-video-on-chrome-freeze-for-2024/"><u>Bypass Issue Twitter Video on Chrome Freeze for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-texting-tech-boost-for-instagram-and-messenger-a-new-era-begins/"><u>Facebook's Texting Tech Boost for Instagram and Messenger: A New Era Begins</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/from-macro-to-superzoom-powershot-sx70s-versatility/"><u>From Macro to Superzoom: PowerShot SX70's Versatility!</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-stay-safe-when-using-facebook-marketplace-9-tips/"><u>How to Stay Safe When Using Facebook Marketplace: 9 Tips</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-tecno-spark-20-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Tecno Spark 20</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximize-engagement-top-5-costless-fb-update-planning-tips/"><u>Maximize Engagement: Top 5 Costless FB Update Planning Tips</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mobile-reading-revolutionized-in-depth-look-at-the-user-centric-design-and-functionality-of-the-kobo-clara-hd/"><u>Mobile Reading Revolutionized: In-Depth Look at the User-Centric Design and Functionality of the Kobo Clara HD</u></a></li>
-<li><a href="https://facebook.techidaily.com/peak-times-for-online-presence-growth/"><u>Peak Times for Online Presence Growth</u></a></li>
-<li><a href="https://facebook.techidaily.com/regaining-control-tackling-fb-upsets/"><u>Regaining Control: Tackling FB Upsets</u></a></li>
-<li><a href="https://facebook.techidaily.com/retrieving-control-over-a-frozen-or-suspended-facebook-profile/"><u>Retrieving Control Over a Frozen or Suspended Facebook Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-vigilance-justified-trump-suspension-not-permanent/"><u>Social Media Vigilance: Justified Trump Suspension, Not Permanent</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/solving-the-problem-of-itunes-failing-to-connect-with-an-iphone-understanding-and-addressing-invalid-responses/"><u>Solving the Problem of iTunes Failing to Connect with an iPhone - Understanding and Addressing Invalid Responses</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-emerging-trend-of-cryptocurrency-on-facebook-and-instagram/"><u>The Emerging Trend of Cryptocurrency on Facebook & Instagram</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/which-conversational-ai-takes-the-lead-gpt-vs-huggingface/"><u>Which Conversational AI Takes the Lead: GPT Vs. HuggingFace</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-rapid-routines-sending-photos-from-iphone-to-computer/"><u>2024 Approved Rapid Routines Sending Photos From iPhone to Computer</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-leap-in-user-engagement-facebooks-informed-content-experiment/"><u>A Leap in User Engagement: Facebook’s Informed Content Experiment</u></a></li>
+<li><a href="https://facebook.techidaily.com/biden-unveils-vaccination-blitz-on-snapchat-and-twitter/"><u>Biden Unveils Vaccination Blitz on Snapchat & Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/customized-digital-access-facebooks-strategy-surpasses-apples-model/"><u>Customized Digital Access: Facebook's Strategy Surpasses Apple's Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144254299-digital-dollar-in-pasture-zuckerbergs-peculiar-choice/"><u>Digital Dollar in Pasture: Zuckerberg's Peculiar Choice.</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-the-red-screen-error-ultimate-troubleshooting-guide/"><u>Fixing the Red Screen Error: Ultimate Troubleshooting Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-nokia-g310-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Nokia G310 Phone? Unlock It Now</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-google-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Google</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-s-top-picks-android-video-editor-apps-compatible-with-chromebook/"><u>Updated S Top Picks Android Video Editor Apps Compatible with Chromebook</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2024-09-28T16:01:48.067Z
-updated: 2024-10-03T21:08:34.408Z
+date: 2024-10-02T17:28:30.077Z
+updated: 2024-10-09T03:09:20.873Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -66,19 +66,22 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-best-photo-to-cartoon-software-for-windows-and-mac/"><u>[New] 2024 Approved Best Photo to Cartoon Software for Windows & Mac</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-building-a-business-from-blogs-and-video-reviews-for-2024/"><u>[Updated] Building a Business From Blogs and Video Reviews for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-culinary-connoisseurs-must-watch-food-content/"><u>[Updated] In 2024, Culinary Connoisseurs Must-Watch Food Content</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-the-secrets-to-stellar-podcast-summaries/"><u>[Updated] The Secrets to Stellar Podcast Summaries</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/convertire-i-file-mxf-in-mp4-senza-costi-le-strategie-migliore-su-pc-o-mac/"><u>Convertire I File MXF in MP4 Senza Costi: Le Strategie Migliore Su PC O Mac</u></a></li>
-<li><a href="https://facebook.techidaily.com/emerging-tech-two-cameras-on-first-fb-wearable-suggested/"><u>Emerging Tech: Two Cameras on First FB Wearable Suggested</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-zero-to-hero-in-online-communities/"><u>From Zero to Hero in Online Communities</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-a-found-iphone-12-drfone-by-drfone-ios/"><u>In 2024, How To Unlock A Found iPhone 12? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-navigating-lut-integration-in-adobe-ae/"><u>In 2024, Navigating LUT Integration in Adobe AE</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-legal-boundaries-when-grabbing-private-fb-content/"><u>Navigating Legal Boundaries When Grabbing Private FB Content</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-android-essentials-the-most-popular-apps-you-need/"><u>New In 2024, Android Essentials The Most Popular Apps You Need</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-mastery-for-career-growth-and-success/"><u>Social Media Mastery for Career Growth and Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncover-most-watched-videos-on-facebook-today/"><u>Uncover Most Watched Videos on Facebook Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-identity-of-the-courageous-fb-insider/"><u>Unveiling Identity of the Courageous FB Insider</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-how-to-establish-and-run-a-discochannel-successfully/"><u>[New] 2024 Approved How to Establish and Run a DiscoChannel Successfully</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-sparking-inspiration-outstanding-youtube-content-themes/"><u>[New] 2024 Approved Sparking Inspiration Outstanding YouTube Content Themes</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-essential-tech-for-instant-time-lapse-videos/"><u>[New] Essential Tech for Instant Time-Lapse Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-mastering-minecraft-the-best-practices-to-record-gameplay/"><u>[New] In 2024, Mastering Minecraft The Best Practices to Record Gameplay</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-crafting-a-captivating-voice-the-art-of-writing-film-dialogues/"><u>[Updated] Crafting a Captivating Voice The Art of Writing Film Dialogues</u></a></li>
+<li><a href="https://facebook.techidaily.com/epic-games-discloses-tracking-for-unlimited-game-playtime/"><u>Epic Games Discloses Tracking for Unlimited Game Playtime</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-access-to-whatsapp-users-reined-in-by-germany-legislation/"><u>Facebook's Access to WhatsApp Users Reined in by Germany Legislation</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-13-passcode-without-computer-by-drfone-ios/"><u>How to Unlock Apple iPhone 13 Passcode without Computer?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Tecno Spark 20C | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/investing-in-your-segment-of-the-725-million-facebook-payout/"><u>Investing in Your Segment of the $725 Million Facebook Payout</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-salesmen-in-your-pocket-a-truth-or-tale-of-coincidence/"><u>Silent Salesmen in Your Pocket: A Truth or Tale of Coincidence?</u></a></li>
+<li><a href="https://facebook.techidaily.com/smarter-more-personalized-advertising-awaits-you-on-facebook/"><u>Smarter, More Personalized Advertising Awaits You on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/steady-as-she-goes-unveiling-the-world-of-crypto-stability-coins/"><u>Steady as She Goes: Unveiling the World of Crypto Stability Coins</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/tesla-robotaxi-update-a-closer-look-at-rumored-costs-launch-dates-and-vehicle-specifications/"><u>Tesla Robotaxi Update - A Closer Look at Rumored Costs, Launch Dates, and Vehicle Specifications</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unlocking-student-potential-with-instructional-videos-for-2024/"><u>Unlocking Student Potential with Instructional Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-distinctions-between-fb-pages-and-unames/"><u>Unveiling the Distinctions Between FB Pages & UNAMES</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-vanish-mode-on-facebook-messenger/"><u>What Is Vanish Mode on Facebook Messenger?</u></a></li>
 </ul></div>
 

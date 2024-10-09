@@ -1,7 +1,7 @@
 ---
 title: Reinforcing Online Safety Measures with Effective 2FA for Email Services
-date: 2024-09-28T21:47:35.148Z
-updated: 2024-10-03T21:38:27.596Z
+date: 2024-10-06T05:43:27.032Z
+updated: 2024-10-09T03:00:47.578Z
 tags:
   - facebook
 categories:
@@ -33,19 +33,33 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
  Check out our article on the[pros and cons of different 2FA methods](https://www.makeuseof.com/tag/pros-cons-2fa-types-methods/) for a more in-depth look at the system.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Set Up 2FA on Gmail and Google
 
  Your Google accounts can use several different 2FA schemes, such is the search giant's commitment to securing your accounts.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Google Prompt
 
 ![google 2fa second device prompt message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-second-device-prompt-message.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The first is through the newer Google Prompt system. Instead of sending a one-time code, you receive a Google Prompt on your separate device. You simply unlock your phone and tap**Yes** to unlock your account.
 
@@ -53,18 +67,24 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
 ![google 2fa options list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-options-list.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Once you accept the Google Prompt, you will meet another screen asking if you want to turn on 2-Step Verification. (Some users may meet a screen asking them to confirm their mobile number using an SMS; do this, then continue.) Select**Turn On** .
 
 ### Authenticator App
 
 ![google 2fa authenticator options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-authenticator-options.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Some users may prefer to use a different 2FA system. One such option is the Google Authenticator app. The Authenticator app generates a six-digit code for you to log into your account, but you must have your phone with you for the system to work.
 
@@ -81,6 +101,13 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 ## How to Set Up 2FA on Microsoft Outlook
 
 ![microsoft outlook two factor auth settings-1](<https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/microsoft> outlook two factor auth settings-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In this instance, you are looking at Microsoft's Outlook.com service rather than the desktop Outlook client. The Outlook desktop client has other forms of security,[such as password-protecting your Outlook PST file](https://www.makeuseof.com/tag/tricks-outlook-microsoft-account-secure/) . However, 2FA isn't currently available.
 
@@ -102,19 +129,6 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
 ![facebook two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-two-factor-auth-settings.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Locking your Facebook account is as important as your email address.
 
  To enable 2FA, head to your[Facebook Security Settings](https://www.facebook.com/settings?tab=security) page. Next, select**Use two-factor authentication** , then**Get started** . You have three options: Text message, Authentication app, or the newest addition, a Security key. You can select whichever option suits you.
@@ -125,48 +139,28 @@ Locking your Facebook account is as important as your email address.
 
 ![twitter two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/twitter-two-factor-auth-settings.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Twitter supports third-party authenticator apps, so you can use Google Authenticator to secure your account.
 
  Head to your[Twitter account settings](https://twitter.com/settings/account) , then under the**Security** header, select**Login Verification** . You can turn on SMS 2FA by entering your phone number and then entering the code. If your Twitter account isn't already using SMS verification, you must turn this on before enabling a third-party authentication app.
 
  Once you turn on Login Verification, head back to the same menu and select**Review your login verification methods** , then select**Mobile security app > Set up** . Scan the QR code using the Authenticator app and follow the Twitter instructions.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set Up 2FA on Instagram
 
 ![instagram two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/instagram-two-factor-auth-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Instagram 2FA comes in two forms: an SMS code or using an authentication app. Instagram added the latter in 2018 to boost account security, and the set up is very easy.
 
  In the Instagram app, head to **Settings > Privacy and Security > Two-Factor Authentication > Edit two-factor authentication setting,** then select the 2FA method you prefer.
 
  If you select "Authentication App," the Instagram app will automatically detect your installed authentication app and send a login code. For instance, your Instagram account would automatically appear in the Google Authenticator app on your phone. However, by extension, the app authentication option cannot be turned on using the desktop version, which is disappointing.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Set Up 2FA on Amazon
 
@@ -193,16 +187,16 @@ Locking your Facebook account is as important as your email address.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/from-posting-to-purchasing-could-a-social-media-platform-open-shops/"><u>From Posting to Purchasing: Could a Social Media Platform Open Shops?</u></a></li>
-<li><a href="https://video-capture.techidaily.com/how-to-expertly-record-and-save-your-favorite-hulu-shows/"><u>How To Expertly Record and Save Your Favorite Hulu Shows</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-nokia-c210-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Nokia C210 Without PUK Codes</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-the-perfect-blend-of-relaxation-and-growth-podcast-multi-tasking-tips/"><u>In 2024, The Perfect Blend of Relaxation and Growth Podcast Multi-Tasking Tips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-video-enhancement-embedding-youtube-into-google-slides/"><u>In 2024, Video Enhancement Embedding YouTube Into Google Slides</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-network-privacy-vs-convenience-with-social-app-sign-ins-via-facebook/"><u>Navigating Network Privacy vs Convenience with Social App Sign-Ins via Facebook</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/redefining-productivity-on-the-move-in-depth-review-of-the-2021-ipad-pro-m1-and-its-exceptional-performance-for-mobile-users/"><u>Redefining Productivity on the Move: In-Depth Review of the 2021 iPad Pro (M1) and Its Exceptional Performance for Mobile Users</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/rotate-videos-with-ease-top-10-free-tools-for-windows-mac-android-and-iphone-for-2024/"><u>Rotate Videos with Ease Top 10 Free Tools for Windows, Mac, Android, and iPhone for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-erase-your-facebook-share/"><u>Step-by-Step Guide: Erase Your Facebook Share</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-tolls-facebook-and-cos-6-hour-disruption/"><u>Tech Tolls: Facebook and Co.'s 6-Hour Disruption</u></a></li>
-<li><a href="https://facebook.techidaily.com/tectonic-shifts-ahead-us-antitrust-laws-role-in-controlling-tech-titans/"><u>Tectonic Shifts Ahead: U.S. Antitrust Law's Role in Controlling Tech Titans</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-chorus-chronicles-a-guide-to-audio-selection-for-ig/"><u>[New] 2024 Approved Chorus Chronicles A Guide to Audio Selection for IG</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-essential-tips-for-leveraging-azure-speech-to-text-service/"><u>[New] 2024 Approved Essential Tips for Leveraging Azure Speech to Text Service</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-vr-gaming-powered-essential-oculus-players/"><u>[New] In 2024, VR Gaming Powered Essential Oculus Players</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-look-back-at-googles-major-news-of-2022/"><u>A Look Back at Google’s Major News of 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/advanced-methods-to-examine-hidden-feeds/"><u>Advanced Methods to Examine Hidden Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-gaps-in-project-management-using-facebooks-8-elements/"><u>Bridging Gaps in Project Management Using Facebook's 8 Elements</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearer-conversations-on-facebook-tips-for-trimmed-dialogues/"><u>Clearer Conversations on Facebook: Tips for Trimmed Dialogues</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-xcover-6-pro-tactical-edition-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Samsung Galaxy XCover 6 Pro Tactical Edition Phone without Any Data Loss</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-voice-customization-leaders-including-the-magic-call-apps/"><u>In 2024, Voice Customization Leaders Including the Magic Call Apps</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-mac-movie-creation-a-beginners-guide-to-making-movies-for-2024/"><u>New Mac Movie Creation A Beginners Guide to Making Movies for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-oppo-find-x7-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Oppo Find X7 Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
 

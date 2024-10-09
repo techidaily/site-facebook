@@ -1,7 +1,7 @@
 ---
 title: Setting Boundaries on Social Media Images
-date: 2024-09-18T23:34:22.238Z
-updated: 2024-09-21T19:52:28.631Z
+date: 2024-10-07T18:36:31.565Z
+updated: 2024-10-09T01:34:36.356Z
 tags:
   - facebook
 categories:
@@ -53,6 +53,13 @@ thumbnail: https://thmb.techidaily.com/a688e86ffbdc3e471be20f57f8c10af5824b74763
 
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Old Photos
 
  OK, so making sure your new photos are private is quite straightforward, but what about your old photos?[Depending on your addiction level](https://www.makeuseof.com/tag/social-media-detox/) , we could be talking about thousands of images.
@@ -60,13 +67,6 @@ thumbnail: https://thmb.techidaily.com/a688e86ffbdc3e471be20f57f8c10af5824b74763
  Luckily, it is possible to change the privacy level of your old snaps. You have three methods open to you:
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
@@ -78,26 +78,40 @@ thumbnail: https://thmb.techidaily.com/a688e86ffbdc3e471be20f57f8c10af5824b74763
 
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
 
  This covers your photos, but also your videos, wall posts, comments, Likes, and other content.
 
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Pro Tip: Use the Activity Log
 
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Photos You're Tagged In
 
@@ -119,13 +133,6 @@ thumbnail: https://thmb.techidaily.com/a688e86ffbdc3e471be20f57f8c10af5824b74763
 
  In the latest version of Facebook, you need to disable the face recognition feature to prevent the suggestions from appearing. Go to**Settings and Privacy > Settings > Face Recognition** and make sure the setting displays**No** .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Does Facebook Photo Privacy Concern You?
 
  We hope this article has made you realize photo privacy is important and helped you to understand the steps you can take to ensure images of you aren't being exposed in the public realm. Because despite what tech companies would like you to believe, online privacy is important.
@@ -143,5 +150,22 @@ thumbnail: https://thmb.techidaily.com/a688e86ffbdc3e471be20f57f8c10af5824b74763
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-expert-android-guide-to-top-gba-emulators/"><u>[New] Expert Android Guide to Top GBA Emulators</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-teaching-tech-trends-the-elite-10-audio-visual-recorders-for-classrooms/"><u>[New] In 2024, Teaching Tech Trends The Elite 10 Audio-Visual Recorders for Classrooms</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-in-game-film-mastery-using-fbx-recorder/"><u>[Updated] 2024 Approved In-Game Film Mastery Using FBX Recorder</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-precision-in-production-5-advanced-methods-for-trimming-on-vimeo-platform/"><u>[Updated] 2024 Approved Precision in Production 5 Advanced Methods for Trimming on Vimeo Platform</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-reimagine-old-school-vhs-with-modern-computer-techniques/"><u>[Updated] Reimagine Old-School VHS with Modern Computer Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolve-your-online-presence-move-beyond-fb/"><u>Evolve Your Online Presence, Move Beyond FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-expands-to-sound-based-social-interaction/"><u>Facebook Expands to Sound-Based Social Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-clicks-to-consequences-understanding-online-responsibility/"><u>From Clicks to Consequences: Understanding Online Responsibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-did-sheryl-sandberg-influence-facebook/"><u>How Did Sheryl Sandberg Influence Facebook?</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-xiaomi-redmi-k70-pro-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Xiaomi Redmi K70 Pro Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-facebooks-dark-mode/"><u>Mastering the Art of Facebook’s Dark Mode</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-edge-40-neo-music-recovery-recover-deleted-music-from-motorola-edge-40-neo-by-fonelab-android-recover-music/"><u>Motorola Edge 40 Neo Music Recovery - Recover Deleted Music from Motorola Edge 40 Neo</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/personalizing-failure-lockout-period-on-sign-in-errors/"><u>Personalizing Failure Lockout Period on Sign In Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-business-focused-networks-for-maximum-engagement/"><u>Top Business-Focused Networks for Maximum Engagement</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/unleashing-hidden-gem-top-6-underexplored-windows-shortcuts-that-will-boost-your-productivity/"><u>Unleashing Hidden Gem: Top 6 Underexplored Windows Shortcuts That Will Boost Your Productivity</u></a></li>
+</ul></div>
 

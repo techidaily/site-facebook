@@ -1,7 +1,7 @@
 ---
 title: "Speak Like a Socialite: Learn These 30 Trending Acronyms Today"
-date: 2024-09-28T19:09:05.985Z
-updated: 2024-10-03T20:35:46.832Z
+date: 2024-10-03T17:53:07.998Z
+updated: 2024-10-08T19:31:28.453Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  FYP is short for "For You Page", which is TikTok's personal recommendations feed. It shows you what it thinks you'll like based on the content you already enjoy. Every TikTok creator wants their videos to be featured on the FYP. In fact, the #FYP hashtag on TikTok had 49,775.4 billion views at the time of writing.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. IYKYK
 
  IYKYK stands for "if you know, you know". This abbreviation is used to refer to an inside joke or something that only certain people would understand. It's typically used without an explanation.
@@ -46,23 +53,9 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  A DM is a direct message sent on a social media app. It's where users can communicate privately instead of publicly, like in post comments. For example, you can send a[DM on social media](https://www.makeuseof.com/what-does-dm-mean/) when you want to share someone's post with a friend privately.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. #F4F
 
  #F4F means "follow for follow". Users often leave this hashtag in your comments after following you. It's their way of letting you know they've just followed you and asking you to follow them back. You aren't necessarily obligated to follow them back, but you may lose them as a follower if you don't.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. #L4L
 
@@ -73,6 +66,13 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
  On X (formerly Twitter), RT stands for retweet, which means to repost a tweet. Retweets help posts get more visibility and engagement. If you see someone's retweets so often they start annoying you, you can[turn off their retweets without unfollowing them](https://www.makeuseof.com/tag/turn-off-retweets-twitter-without-unfollowing/) .
 
  While the terms "tweet" and "retweet" have technically been retired with X's rebranding in 2023, you'll still find people using the terms.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 9\. ATP
 
@@ -90,6 +90,13 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  IKTR means "I know that's right". This term is used when you agree with something or can relate to the situation. For example, someone may post that doing their nails is a form of self-care. Another user may comment "IKTR".
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 13\. ICYMI
 
  Popular on X, ICYMI stands for "in case you missed it". It's used to bring your audience up to speed about something that happened while they were away or that they missed on their timeline.
@@ -98,16 +105,16 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  IJS means "I'm just saying". The IJS abbreviation is often added to the end of a post about an unpopular opinion or differing view.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 15\. IMO/IMHO
 
  IMO and IMHO stand for "in my opinion" and "in my honest opinion", respectively. These abbreviations are used when someone expresses their opinion on social media. People may feel the need to add it as a disclaimer when they anticipate that other users may disagree with them.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 16\. OOMF
 
@@ -116,13 +123,6 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 ## 17\. TBH/TBQH
 
  TBH and TBQH stand for "to be honest" and "to be quite hones"t, respectively. These informal abbreviations are used in different contexts, including opinions, hot takes, and admissions.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 18\. FRFR
 
@@ -136,35 +136,48 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  WCW stands for "Woman Crush Wednesday". WCW is used on posts that celebrate women on Wednesdays. Users may post one or more women and may or may not explain why they've picked them as their WCW. The abbreviation can also be used as a hashtag.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 21\. MCM
 
  MCM is short for "Man Crush Monday". This is similar to WCW but for men. And instead of Wednesdays, the posts are uploaded on Mondays.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 22\. TBT
 
  TBT means "Throwback Thursday". Thursdays are for walking down memory lane on social media. TBT is used with an old picture you're posting or reposting, and can be used as a hashtag.​​​​​​​
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 23\. FBF
 
  FBF stands for "Flashback Friday". Just like TBT, social media users post memories or repost posts with the abbreviation FBF or the hashtag #FBF on Fridays.​​​​​​​
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 24\. OOTD
 
  OOTD is short for "outfit of the day". Popular on Instagram and TikTok, OOTD is used to show off your outfit for that particular day.
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 25\. OOTN
 
@@ -173,13 +186,6 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 ## 26\. HT
 
  HT stands for "hat tip". HT is used to thank or credit someone who is the source of particular information you're sharing. So you might see HT shared with their username (HT @username). It's a way to acknowledge them and point your audience to their page.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 27\. IG
 
@@ -193,16 +199,16 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  TL;DR means "too long; didn't read". This is used in response to a social media post that is too long to read or it may appear before a summary of a post from the author.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 30\. FOMO
 
  FOMO means "fear of missing out". The acronym FOMO is used in two contexts: to express that you don't want to miss out on something, or that you're missing out on something at the time. The feeling is often triggered by what you see others talking about online. Fortunately, there are[ways to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) .
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Never Get Left Behind
 
@@ -223,22 +229,19 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-leading-streaming-tools-for-online-video-games/"><u>[New] 2024 Approved Leading Streaming Tools for Online Video Games</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-cutting-edge-drone-footage-for-movies-and-tv-for-2024/"><u>[New] Cutting-Edge Drone Footage for Movies and TV for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-top-5-high-quality-online-meeting-capture-devices/"><u>[Updated] Top 5 High-Quality Online Meeting Capture Devices</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chat-with-power-optimizing-chatgpt-functionality-on-mac-computers/"><u>Chat with Power: Optimizing ChatGPT Functionality on Mac Computers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/combining-chords-and-clips-the-ultimate-fb-video-soundtrack-for-2024/"><u>Combining Chords and Clips The Ultimate FB Video Soundtrack for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/googles-annual-summary-of-press-milestones/"><u>Google's Annual Summary of Press Milestones</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-realme-12-5g-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Realme 12 5G for Free? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-samsung-galaxy-m34-5g-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Samsung Galaxy M34 5G to PC? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/interconnectedness-in-the-digital-age-7-methods-for-unity/"><u>Interconnectedness in the Digital Age: 7 Methods for Unity</u></a></li>
-<li><a href="https://facebook.techidaily.com/last-rites-how-to-eliminate-your-facebook-presence-forever/"><u>Last Rites: How to Eliminate Your Facebook Presence Forever</u></a></li>
-<li><a href="https://facebook.techidaily.com/leading-your-facebook-collective-with-strong-standards/"><u>Leading Your Facebook Collective with Strong Standards</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-privacy-a-thorough-examination-of-fb-settings/"><u>Mastering Privacy: A Thorough Examination of FB Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/our-lives-as-a-marketable-asset/"><u>Our Lives as a Marketable Asset</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/pronunciation-pioneers-unveiling-scottish-irish-and-aussie-flair/"><u>Pronunciation Pioneers: Unveiling Scottish, Irish, and Aussie Flair</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-delete-your-facebook-account-android-wise/"><u>The Ultimate Guide: Delete Your Facebook Account Android-Wise</u></a></li>
-<li><a href="https://facebook.techidaily.com/unpacking-facebooks-claim-of-continued-vitality/"><u>Unpacking Facebook's Claim of Continued Vitality</u></a></li>
-<li><a href="https://techtrends.techidaily.com/why-governments-should-reconsider-their-reliance-on-big-tech-lessons-from-microsofts-service-interruptions/"><u>Why Governments Should Reconsider Their Reliance on Big Tech: Lessons From Microsoft's Service Interruptions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-easy-sound-transformation-ios-tools-to-convert-youtube-songs-to-mp3-files/"><u>[New] 2024 Approved Easy Sound Transformation IOS Tools to Convert YouTube Songs to MP3 Files</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-rise-to-stardom-secrets-to-viral-video-success/"><u>[Updated] In 2024, Rise to Stardom Secrets to Viral Video Success</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-harmonize-your-preferences-how-to-create-an-engaging-youtube-playlist/"><u>2024 Approved Harmonize Your Preferences How to Create an Engaging YouTube Playlist</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-the-dynamics-of-collaborative-marketing-on-youtube/"><u>2024 Approved The Dynamics of Collaborative Marketing on YouTube</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/a-comprehensive-guide-assessing-the-prospects-of-prompt-engineering-jobs/"><u>A Comprehensive Guide: Assessing the Prospects of Prompt Engineering Jobs</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/amazons-quality-soundbass-at-an-affordable-price-review-revealed/"><u>Amazon's Quality Soundbass at an Affordable Price - Review Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/anomaly-detection-for-safeguarding-personal-online-space/"><u>Anomaly Detection for Safeguarding Personal Online Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-up-hidden-previous-facebook-content/"><u>Digging up Hidden Previous Facebook Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-support-explained-what-it-offers/"><u>Facebook Support Explained: What It Offers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-top-5-mac-video-tools-beyond-standard-bandicam/"><u>In 2024, Top 5 Mac Video Tools Beyond Standard Bandicam</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/optimizing-your-android-experience-with-effective-recordings-for-2024/"><u>Optimizing Your Android Experience with Effective Recordings for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-blueprint-for-an-exceptional-facebook-profile/"><u>The Ultimate Blueprint for an Exceptional Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/thriving-in-silence-6-advantages-to-exiting-facebook/"><u>Thriving in Silence - 6 Advantages to Exiting Facebook</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ultimate-techniques-for-downsizing-mov-videos-effectively/"><u>Ultimate Techniques for Downsizing MOV Videos Effectively</u></a></li>
 </ul></div>
 

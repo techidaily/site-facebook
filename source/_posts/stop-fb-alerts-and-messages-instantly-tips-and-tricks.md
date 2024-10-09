@@ -1,7 +1,7 @@
 ---
 title: "Stop FB Alerts & Messages Instantly: Tips and Tricks"
-date: 2024-09-20T01:05:00.650Z
-updated: 2024-09-21T18:40:54.638Z
+date: 2024-10-01T23:47:27.069Z
+updated: 2024-10-08T21:28:31.305Z
 tags:
   - facebook
 categories:
@@ -39,6 +39,13 @@ thumbnail: https://thmb.techidaily.com/0464d20c8383250ad5eec7dae311ce3366a21c1ce
 5. Select**Remove this notification** .
 
  The process to delete Facebook notifications on the smartphone app is similar. Just fire up the app and tap on the**Notifications** tab. Once you've found the alert you want to get rid of, tap on the three dots and choose**Remove this notification** .
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Clear All Facebook Notifications
 
@@ -79,16 +86,16 @@ Follow the steps below to learn about the process on the web app:
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Turn Off Facebook Notifications by Category
 
 ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -111,25 +118,18 @@ Follow the steps below to learn about the process on the web app:
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Stop Facebook Notifications on Android
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -141,6 +141,13 @@ Close
 4. Scroll down to**Facebook** and tap on it.
 5. Tap on**Notifications** .
 6. Slide the toggle next to**Show notifications** into the**Off** position.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Stop Facebook Notifications on iOS
 
@@ -172,5 +179,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-transforming-stored-memories-into-dynamic-fb-livestreams-today/"><u>[New] 2024 Approved Transforming Stored Memories Into Dynamic FB Livestreams Today</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-streaming-wars-whos-leading-vimeo-or-popular-online-platforms/"><u>[New] Streaming Wars Who's Leading – Vimeo or Popular Online Platforms?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-live-on-air-how-to-broadcast-on-youtube-and-twitch-using-obs-for-2024/"><u>[Updated] Live on Air How to Broadcast on YouTube & Twitch Using OBS for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-user-needs-in-choosing-a-facebook-portal/"><u>Analyzing User Needs in Choosing a Facebook Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-platforms-share-instagram-reels-with-facebook-audience/"><u>Connecting Platforms: Share Instagram Reels with Facebook Audience</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/extensive-appraisal-hero4-black-capabilities-for-2024/"><u>Extensive Appraisal Hero4 Black Capabilities for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonize-conversations-with-facebooks-new-sounds-for-messaging/"><u>Harmonize Conversations with Facebook's New Sounds for Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/holding-fire-social-media-giant-waits-for-ruling/"><u>Holding Fire: Social Media Giant Waits for Ruling</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-apple-iphone-15-plus-drfone-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-nubia-red-magic-8s-proplus-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Nubia Red Magic 8S Pro+ to Protect Your Individual Information</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalization-strategies-for-enhancing-facebook-timelines/"><u>Personalization Strategies for Enhancing Facebook Timelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/podcast-platform-grows-on-facebooks-auditory-upgrade/"><u>Podcast Platform Grows on Facebook’s Auditory Upgrade</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-the-issue-of-unshutting-a-windows-10-operating-system-on-your-pc/"><u>Solving the Issue of Unshutting a Windows 10 Operating System on Your PC</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/the-artisans-guide-to-creating-sound-alterations-without-cost/"><u>The Artisan's Guide to Creating Sound Alterations Without Cost</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-intricacies-behind-facebooks-policy-to-support-multi-profiles-per-user-account/"><u>The Intricacies Behind Facebook's Policy to Support Multi-Profiles per User Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-planner-softwares-a-guide-to-scheduling-success/"><u>Top Planner Softwares: A Guide to Scheduling Success</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722892824202-troubleshooting-airpods-charge-issues-try-these-9-fixes/"><u>Troubleshooting AirPods Charge Issues? Try These 9 Fixes!</u></a></li>
+<li><a href="https://facebook.techidaily.com/tweaking-childrens-data-a-parents-guide-to-messenger-kids/"><u>Tweaking Children's Data: A Parent's Guide to Messenger Kids</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-unleash-your-creativity-top-online-stop-motion-animation-software/"><u>Updated 2024 Approved Unleash Your Creativity Top Online Stop Motion Animation Software</u></a></li>
+</ul></div>
 

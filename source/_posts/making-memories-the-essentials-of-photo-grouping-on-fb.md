@@ -1,7 +1,7 @@
 ---
 title: "Making Memories: The Essentials of Photo Grouping on FB"
-date: 2024-09-14T16:15:55.406Z
-updated: 2024-09-21T20:42:31.578Z
+date: 2024-10-02T16:57:16.133Z
+updated: 2024-10-08T21:15:22.342Z
 tags:
   - facebook
 categories:
@@ -36,15 +36,43 @@ To do this, you'll use Instagram’s collage app Layout.
 
 **Download** : Layout for[iOS](https://apps.apple.com/us/app/layout-from-instagram/id967351793) ǀ[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU96430/https://play.google.com/store/apps/details?id=com.instagram.layout&hl=en&gl=US) (Free)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Make a Photo Collage for Facebook Using Layout
 
  To create your photo collage, you’ll first need to download the Layout app from Google Play or the Apple App Store.
 
 ![instagram layout home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/instagram-layout-home-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![instagram layout select photo page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/instagram-layout-select-photo-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![instagram layout edit photo page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/instagram-layour-edit-photo-page.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -80,12 +108,20 @@ After downloading the app, follow these steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-integrate-twitter-and-snapchat-posting-tweets-as-snaps/"><u>[New] 2024 Approved Integrate Twitter & Snapchat Posting Tweets as Snaps</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-social-network-harmony-integrating-instagram-and-facebook/"><u>[Updated] 2024 Approved Social Network Harmony Integrating Instagram & Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-value-of-online-dislikes/"><u>Assessing the Value of Online Dislikes</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealed-choices-how-interfaces-steal-privacy/"><u>Concealed Choices: How Interfaces Steal Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-social-medias-negative-feedback-mechanism/"><u>Evaluating Social Media's Negative Feedback Mechanism</u></a></li>
+<li><a href="https://facebook.techidaily.com/gear-up-your-guide-to-the-meta-account-oversight-hub/"><u>Gear Up: Your Guide to the Meta Account Oversight Hub</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On ZTE Axon 40 Lite? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-samsung-galaxy-f54-5g-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Samsung Galaxy F54 5G</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-syncopating-sounds-how-to-edit-music-effectively-in-canva/"><u>In 2024, Syncopating Sounds How to Edit Music Effectively in Canva</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-tecno-spark-20-pro-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Tecno Spark 20 Pro Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-vivo-y100a-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://discover-great.techidaily.com/unlock-and-convert-dvds-with-wonderfox-dvd-ripper-pro-for-high-quality-mp4-mkv-avi-mov-and-wmv-files/"><u>Unlock and Convert DVDs with WonderFox DVD Ripper Pro for High-Quality MP4, MKV, AVI, MOV & WMV Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/verify-fbs-safety-email-(securityfbcom)-authenticity/"><u>Verify FB's Safety Email: <security@fb.com> Authenticity?</u></a></li>
+</ul></div>
 

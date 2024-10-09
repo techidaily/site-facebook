@@ -1,7 +1,7 @@
 ---
 title: Unpacking Big Tech's Future with America's Strengthened Antitrust Approach
-date: 2024-09-19T00:39:28.552Z
-updated: 2024-09-21T16:29:02.891Z
+date: 2024-10-06T03:33:39.086Z
+updated: 2024-10-08T18:08:22.016Z
 tags:
   - facebook
 categories:
@@ -34,9 +34,23 @@ thumbnail: https://thmb.techidaily.com/27d9679823f15c1f840af178653026beb0d15afa8
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
@@ -54,13 +68,6 @@ thumbnail: https://thmb.techidaily.com/27d9679823f15c1f840af178653026beb0d15afa8
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -73,6 +80,13 @@ thumbnail: https://thmb.techidaily.com/27d9679823f15c1f840af178653026beb0d15afa8
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -82,13 +96,6 @@ thumbnail: https://thmb.techidaily.com/27d9679823f15c1f840af178653026beb0d15afa8
  The bill specifies a "conflict of interest" that should be avoided at all costs; a platform owner's responsibility to the marketplace that they manage conflicts deeply with that same platform owner's desire to out-sell the vendors that it represents.
 
 In essence: leave the selling to the sellers.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
@@ -116,6 +123,13 @@ Finally, we come to the economic backing to make it all happen.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Future Is a Really Big Place
 
  With the tech industry still in its infancy, the waters ahead are murky and uncharted. If written to law, this bipartisan legislation will mark one significant triumph against the tyranny of the extraordinarily wealthy. Those of us here on the ground have few means of recourse without measures like this in place.
@@ -135,5 +149,20 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-capture-connections-real-time-recordings/"><u>[New] Capture Connections Real Time Recordings</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exquisite-movie-trailer-showcase/"><u>2024 Approved Exquisite Movie Trailer Showcase</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-mp4-downloader-pro-facebook-video-hacks/"><u>2024 Approved MP4 Downloader Pro - Facebook Video Hacks</u></a></li>
+<li><a href="https://article-helps.techidaily.com/eliminating-iphones-inability-to-autofocus-on-targets-for-2024/"><u>Eliminating iPhone's Inability to Autofocus on Targets for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elite-sportsmen-leave-social-media-to-shun-online-harassment/"><u>Elite Sportsmen Leave Social Media to Shun Online Harassment</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-unleash-your-potential-navigating-the-world-of-switch-pro-in-steam/"><u>In 2024, Unleash Your Potential Navigating the World of Switch Pro in Steam</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-non-harmful-social-engagement-online/"><u>Mastering The Art of Non-Harmful Social Engagement Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-multi-group-facebook-interaction/"><u>Navigating the Maze of Multi-Group Facebook Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/protective-measures-for-shrewd-social-shopping-on-facebook/"><u>Protective Measures for Shrewd Social Shopping on Facebook</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/revolutionize-your-roadside-emergencies-with-the-halo-bolt-portable-chargerjump-starter-a-thorough-product-assessment/"><u>Revolutionize Your Roadside Emergencies with the Halo Bolt Portable Charger/Jump Starter: A Thorough Product Assessment</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-typographic-touch-chat-styles-and-standouts/"><u>The Typographic Touch: Chat Styles and Standouts</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapps-feature-availability-remains-same-without-new-policies/"><u>WhatsApp's Feature Availability Remains Same Without New Policies</u></a></li>
+</ul></div>
 

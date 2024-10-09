@@ -1,7 +1,7 @@
 ---
 title: The New Era of Community Management Unveiled by Facebook
-date: 2024-10-02T16:51:23.000Z
-updated: 2024-10-03T17:17:09.958Z
+date: 2024-10-05T23:15:37.676Z
+updated: 2024-10-08T19:04:03.783Z
 tags:
   - facebook
 categories:
@@ -33,16 +33,10 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -54,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -67,16 +61,10 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -100,17 +88,19 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-spectacular-visuals-the-power-of-tiktok-effects-for-2024/"><u>[New] Spectacular Visuals The Power of TikTok Effects for 2024</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/fix-the-problem-only-empty-prints-from-your-epson-device/"><u>Fix the Problem: Only Empty Prints From Your Epson Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-address-failure-in-sending-facebook-security-token/"><u>How to Address Failure in Sending Facebook Security Token</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-realme-narzo-60x-5g-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Realme Narzo 60x 5G</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/les-6-meilleurs-moyens-de-transformer-des-fichiers-videos-en-mp4-sur-un-mac/"><u>Les 6 Meilleurs Moyens De Transformer Des Fichiers Vidéos en MP4 Sur Un Mac</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/optimal-metaverse-displays-the-ultimate-8-picks-for-2024/"><u>Optimal Metaverse Displays The Ultimate 8 Picks for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/quickly-connect-your-fb-story-via-linked-profile/"><u>Quickly Connect Your FB Story via Linked Profile</u></a></li>
-<li><a href="https://driver-download.techidaily.com/resolving-hp-beats-sound-card-problems-on-windows-11-8-and-7-a-comprehensive-guide/"><u>Resolving HP Beats Sound Card Problems on Windows 11, 8 & 7 - A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/set-up-dark-screen-display-on-facebook/"><u>Set Up Dark Screen Display on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-for-configuring-facebook-shortcuts-easily/"><u>Step-by-Step for Configuring Facebook Shortcuts Easily</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-comprerancers-blockade-how-to-halt-comments-on-social-media/"><u>The Comprerancer's Blockade: How to Halt Comments on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-directs-facebook-today/"><u>Who Directs Facebook Today?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-androids-best-mobile-brawlers-ranked-1-10-for-2024/"><u>[New] Android's Best Mobile Brawlers Ranked #1-10 for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-pioneering-creations-cutting-edge-tips-for-gifs/"><u>[Updated] In 2024, Pioneering Creations Cutting-Edge Tips for GIFs</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-tale-of-transformation-why-facebook-staff-are-now-metamates/"><u>A Tale of Transformation: Why Facebook Staff Are Now 'Metamates'</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-art-and-tech-with-meta-drops-social-platform-testing/"><u>Bridging Art & Tech with Meta Drops' Social Platform Testing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/excellent-video-and-picture-capture-for-iphones-and-androids-here-in-2024/"><u>Excellent Video & Picture Capture for iPhones & Androids Here, In 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-nokia-g310-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-competing-to-the-best-substitutes-for-samsungs-gear-360/"><u>In 2024, Competing to the Best Substitutes for Samsung's Gear 360</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-s-top-picks-16-free-video-editing-software-for-beginners/"><u>New S Top Picks 16 Free Video Editing Software for Beginners</u></a></li>
+<li><a href="https://driver-download.techidaily.com/quick-fix-downloading-and-updating-asus-bluetooth-drivers-with-expert-advice-for-seamless-connectivity/"><u>Quick Fix: Downloading and Updating ASUS Bluetooth Drivers with Expert Advice for Seamless Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/screenshot-your-sanctuary-eradicating-fb-notifications/"><u>Screenshot Your Sanctuary: Eradicating FB Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-transition-to-spotify-while-staying-in-facebook-app/"><u>Seamless Transition to Spotify While Staying in Facebook App</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-merits-of-swipe-and-tap-in-social-media-platforms/"><u>The Merits of Swipe and Tap in Social Media Platforms</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-selection-of-text-from-speech-applications-202/"><u>The Ultimate Selection of Text-From-Speech Applications, 202</u></a></li>
 </ul></div>
 

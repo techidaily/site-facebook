@@ -1,7 +1,7 @@
 ---
 title: Facial Data Deletion – Potential Threat to Facebook's User Security?
-date: 2024-09-20T22:46:47.292Z
-updated: 2024-09-21T17:01:46.139Z
+date: 2024-10-06T22:19:35.892Z
+updated: 2024-10-08T18:50:59.793Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
 
  This means image descriptions created for the blind and visually impaired will no longer include people’s names. Additionally, people won’t see automatic tagging options when uploading photos or videos.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Will Facebook Still Use Facial Recognition?
 
  In short,[Facebook says](http://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/) it will no longer rely on facial recognition technology to detect when people appear in the site’s content. However, the company is not leaving facial recognition behind. Instead, it intends to keep using the technology in certain instances.
@@ -47,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
  It continued, “These are places where facial recognition is both broadly valuable to people and socially acceptable when deployed with care. While we will continue working on use cases like these, we will ensure people have transparency and control over whether they are automatically recognized.”
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will This Change Affect Facebook’s Public Perception?
@@ -68,15 +75,22 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
  Facebook made security changes then, too, such as making it easier for people to select data and privacy preferences. It’s easy to suspect, then, that pledges to strengthen security by deleting facial recognition data is a mere scramble to fix the company’s image. It’s too early to say whether this change alone will positively affect how people view the business, though.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## No Major Security Improvements Here
 
 ![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If a person only reads the headlines about Facebook’s facial recognition plans, they might get the impression the company’s leadership genuinely cares about making changes for the better.
 
@@ -97,5 +111,23 @@ thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab5294
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-the-top-8-collaborative-affordable-android-video-mosaics/"><u>2024 Approved Exploring the Top 8 Collaborative, Affordable Android Video Mosaics</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/mp3-movavi-mp3/"><u>網路自由MP3流動解壓縮 - Movavi MP3转换器</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/asus-cam-repair-guide-essentials/"><u>ASUS Cam Repair Guide Essentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/enjoy-peaceful-posts-how-to-disable-responses-in-facebook/"><u>Enjoy Peaceful Posts: How to Disable Responses in Facebook</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-infinix-smart-7-hd-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Infinix Smart 7 HD phone? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/newbies-guide-top-10-sms-chamber-secrets/"><u>Newbie's Guide: Top 10 SMS Chamber Secrets</u></a></li>
+<li><a href="https://video-capture.techidaily.com/rotating-mp4-videos-by-90-a-step-by-step-guide/"><u>Rotating MP4 Videos by 90°: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/silicon-valley-reimagined-implications-of-new-us-antitrust-enforcement/"><u>Silicon Valley Reimagined: Implications of New US Antitrust Enforcement</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealth-commentary-tactics-for-facebook-clans/"><u>Stealth Commentary Tactics for Facebook Clans</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-renaming-yourself-in-the-digital-age/"><u>Step-by-Step: Renaming Yourself in the Digital Age</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/stop-the-frustration-resolving-persistent-freezing-in-psychonauts-2-on-pc-systems/"><u>Stop the Frustration - Resolving Persistent Freezing in Psychonauts 2 on PC Systems</u></a></li>
+<li><a href="https://blog-min.techidaily.com/the-ultimate-trick-to-a-faster-kodi-interface-complete-guide-to-clearing-your-apps-caches/"><u>The Ultimate Trick to a Faster Kodi Interface: Complete Guide to Clearing Your App's Caches</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-rated-photo-viewer-apps-para-usar-en-windows-10/"><u>Top Rated Photo Viewer Apps Para Usar en Windows 10</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-the-10-premier-platforms-for-e-learning-and-coursework/"><u>Ultimate Selection: The 10 Premier Platforms for E-Learning and Coursework</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-hidden-lives-use-chat-games-to-understand-friends-better/"><u>Unlock Hidden Lives: Use Chat Games to Understand Friends Better</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-qualifies-for-participation-in-facebook-communities/"><u>Who Qualifies for Participation in Facebook Communities?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Most Americans Think Social Media Does More Harm Than Good
-date: 2024-09-20T16:02:38.029Z
-updated: 2024-09-21T18:06:36.119Z
+date: 2024-10-06T22:12:59.671Z
+updated: 2024-10-09T05:39:54.189Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/380105e59c8959c0073d444abec887193c4b497ad
 
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Does Social Media Affect Your Life?
 
  The same poll also asked Americans how social media affects their quality of life. 49 percent say social media makes their lives better, while 37 percent say it makes their lives worse.
@@ -54,7 +61,27 @@ thumbnail: https://thmb.techidaily.com/380105e59c8959c0073d444abec887193c4b497ad
 
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
 
@@ -77,12 +104,18 @@ thumbnail: https://thmb.techidaily.com/380105e59c8959c0073d444abec887193c4b497ad
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-art-of-crafting-engaging-social-media-slideshows-on-fb/"><u>[Updated] 2024 Approved The Art of Crafting Engaging Social Media Slideshows on FB</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-top-five-game-changing-updates-from-facebook/"><u>[Updated] 2024 Approved Top Five Game-Changing Updates From Facebook</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-list-premier-iphone-tone-producers/"><u>[Updated] Ultimate List Premier iPhone Tone Producers</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-support-for-nfts-in-meta-drops-trial-phase/"><u>Cutting-Edge Support for NFTs in Meta Drops Trial Phase</u></a></li>
+<li><a href="https://facebook.techidaily.com/did-a-facebook-error-expose-our-conversational-numbers-unintentionally/"><u>Did a Facebook Error Expose Our Conversational Numbers Unintentionally?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/file-sync-solutions-top-ways-to-bring-data-home/"><u>File Sync Solutions Top Ways To Bring Data Home</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-your-phone-number-been-leaked-through-facebook/"><u>Has Your Phone Number Been Leaked Through Facebook?</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-it-oppo-f25-pro-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Oppo F25 Pro 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-mastery-unlock-the-potential-of-hashtags-for-fb-success/"><u>Social Media Mastery: Unlock the Potential of Hashtags for FB Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quiet-after-deactivating-your-fb-page/"><u>The Quiet After Deactivating Your FB Page</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-ultimate-5-voice-trickery-skills-to-direct-chatgpts-functionality/"><u>The Ultimate 5 Voice Trickery Skills to Direct ChatGPT's Functionality</u></a></li>
+</ul></div>
 

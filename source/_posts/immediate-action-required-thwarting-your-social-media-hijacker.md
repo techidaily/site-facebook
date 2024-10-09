@@ -1,7 +1,7 @@
 ---
 title: "Immediate Action Required: Thwarting Your Social Media Hijacker"
-date: 2024-09-16T00:02:44.360Z
-updated: 2024-09-21T17:56:17.496Z
+date: 2024-10-03T03:12:01.933Z
+updated: 2024-10-08T21:34:21.018Z
 tags:
   - facebook
 categories:
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/786e0982cfdee2d5f20c6d4b4308fc64b7f3b17fc
 
 ![Facebook Accounts Center Where You're Logged In](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-accounts-center-where-you-re-logged-in.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Other signs that your account may have been hacked include:
 
 * Your personal data, including your password, email address, phone number, or name were changed by a third party. Within the[**Accounts Center**](https://accountscenter.facebook.com/) , go to**Personal details** and expand the**Contact info** option. Here you can see all email addresses and phone numbers associated with your account.
@@ -56,6 +63,13 @@ Other signs that your account may have been hacked include:
 ## What to Do If Your Facebook Account Was Hacked
 
  If you have confirmed that your account has been compromised, here are the steps you should follow.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1a. Change Your Facebook Password
 
@@ -83,13 +97,6 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Find Your Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2011/11/Find-Facebook-Account.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If Facebook can find your account, you can choose how to**Reset Your Password** .
 
  If the hacker changed your email address, you should have received a message to the original address. Find this message because it contains a special link that will let you reverse the change and secure your account.
@@ -100,16 +107,16 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Password Recovery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-password-recovery.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Use the**Try another way** link if you no longer have access to any of the offered email accounts. Facebook will offer to send a code to the phone numbers associated with your account. If none of those are viable, either, it's nearly impossible to recover your account.
 
  If you believe that the Facebook hacker who has access to your account has been abusing it, proceed to step 2.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Report the Facebook Hack
 
@@ -118,6 +125,13 @@ Do this only if you're sure you can log back in.
 ![Facebook Hacked Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-hacked-report.jpg)
 
  You can also use this in case you have lost access to your account by means of a phishing attack. Facebook will help you recover access to your account.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Remove Suspicious Applications
 
@@ -129,31 +143,24 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Apps and Websites Review](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-apps-and-websites-review.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  We also recommend removing all**Expired** apps and websites.
 
  Alternatively, click the**View and Edit** button and change the app's permissions, which include options like app visibility, access to your personal information, and actions it can take.
 
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Do Damage Control
 
  After doing everything you can to regain control over your hacked Facebook account and prevent further damage, inform your friends and family about what is going on.
 
  This is a precautionary step in case the hacker has used your account to reach out to people. If you presently can't access your account, contact your Facebook friends through other social networks, by email, or have a mutual friend inform them via Facebook.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Improving Facebook's Privacy and Security Settings
 
@@ -166,10 +173,10 @@ Do this only if you're sure you can log back in.
  These settings not only[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , they can also help you recover it. Note that the single most important security feature you can enable on any of your accounts is two-factor authentication. You can[use Microsoft Authenticator](https://www.makeuseof.com/how-to-use-microsoft-authenticator-app/) and Google Authenticator with Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Do You Keep Your Facebook Account Safe?
@@ -189,5 +196,26 @@ Do this only if you're sure you can log back in.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-quick-guide-to-crafting-realistic-motion-blur-effect-in-ps/"><u>[Updated] 2024 Approved Quick Guide to Crafting Realistic Motion Blur Effect in PS</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-oppo-reno-11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/achieve-xbox-broadcast-excellence-on-facebook-for-2024/"><u>Achieve Xbox Broadcast Excellence on Facebook for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-measures-to-undo-fb-account-breach-consequences/"><u>Critical Measures to Undo FB Account Breach Consequences</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153264015-fb-oversight-to-announce-verdict-trump-ban-under-microscope/"><u>FB Oversight to Announce Verdict - Trump Ban Under Microscope</u></a></li>
+<li><a href="https://facebook.techidaily.com/finding-lost-facebook-posts-a-recovery-blueprint/"><u>Finding Lost Facebook Posts: A Recovery Blueprint</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-the-chatgpt-ios-application-surpasses-the-website-in-usability-and-features/"><u>How the ChatGPT iOS Application Surpasses the Website in Usability and Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-dji-air-2s-revolutionizes-drone-technology-an-in-depth-product-review/"><u>How the DJI Air 2S Revolutionizes Drone Technology - An In-Depth Product Review</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-motorola-moto-g23-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Motorola Moto G23</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/mastering-the-art-of-monetization-with-ajey-carryminati-for-2024/"><u>Mastering the Art of Monetization with Ajey (CarryMinati) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-safely-a-guide-to-friending-wisely/"><u>Navigating Social Media Safely: A Guide to Friending Wisely</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/pc-performance-basics-how-quickly-should-it-run/"><u>PC Performance Basics: How Quickly Should It Run?</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconnecting-to-facebook-post-random-signoff/"><u>Reconnecting to Facebook Post-Random Signoff</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/snapchats-ai-battle-in-depth-comparison-of-myai-vs-chatgpt/"><u>Snapchat's AI Battle: In-Depth Comparison of MyAI Vs. ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-break-next-in-line-youths-choice-to-unfollow-instagram/"><u>Social Media Break: Next in Line? Youths' Choice to Unfollow Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/tutorial-export-instagram-reels-for-facebook-sharing/"><u>Tutorial: Export Instagram Reels for Facebook Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-significance-of-emojis-and-glyphs-on-facebook-messenger/"><u>Understanding the Significance of Emojis and Glyphs on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/untangling-the-messages-fb-icon-semantics/"><u>Untangling the Messages: FB Icon Semantics</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-the-best-mac-video-metadata-editors-for-beginners-and-pros-alike/"><u>Updated In 2024, The Best Mac Video Metadata Editors for Beginners and Pros Alike</u></a></li>
+</ul></div>
 

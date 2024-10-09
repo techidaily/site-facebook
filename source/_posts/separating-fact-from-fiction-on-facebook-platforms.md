@@ -1,7 +1,7 @@
 ---
 title: Separating Fact From Fiction on Facebook Platforms
-date: 2024-09-19T21:37:45.261Z
-updated: 2024-09-22T00:07:22.541Z
+date: 2024-10-01T23:15:37.434Z
+updated: 2024-10-09T02:37:19.808Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
 
  At first glance, a fake Facebook profile isn't any different from a genuine one. However, the devil is in the details. Here are some tips for identifying a fake profile on Facebook:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Fake or Stolen Photos
 
 ![Woman looking at her mobile phone with laptop open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Woman-looking-at-her-mobile-phone-with-laptop-open.jpg)
@@ -43,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
  Fake profiles don't have a lot of things to say about their day-to-day life because, well, they aren't living it. Instead, they opt for using a lot of photos to create a semblance of being active. One thing that stands out is the nature of the photos they post. Because they aren't living the life they claim, they'll typically have to steal the photos of people they're impersonating. This is especially the case with fake Facebook profiles used by[online dating scammers](https://www.makeuseof.com/tag/spot-avoid-online-dating-scammer/) .
 
  If you suspect an account to be fake, you can do a simple Google reverse image search. Or, you can use other dedicated image search tools like[TinEye](http://tineye.com) and[Pixsy](http://pixsy.com) . The process is fairly simple, just upload the photo and start searching. If you find the same image posted at an earlier time somewhere else, it could be that the account you're interacting with is a sham.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. An Inconsistent Timeline
 
@@ -56,6 +70,13 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
 
 ![Photo of Person Checking Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/maxim-ilyahov-0aRycsfH57A-unsplash.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If an account that you believe is used by a close friend or family member suddenly asks for information or help in an unusual way, treat it with caution. No matter how long you've been Facebook friends with someone, never believe any suspicious stories that might require any form of financial resources or confidential information from you.
 
  The reason most scammers succeed in perpetrating their scams on Facebook is that the victims typically believe they know who they're dealing with. The stories can come in different styles. They could say you should help them pay for an online service because they're not with their credit card or something similar. And yes, there's the popular story about being a US soldier on a United Nations mission in Africa, who's desperately in need of your help to return to the US. Yep, fake Facebook profile.
@@ -65,10 +86,16 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
  A sizable number of fake accounts are run by bots or people who know little about you. As a result, they'll typically try to avoid any conversation that might reveal their lack of knowledge about you. This is why a good way to confirm whether or not an account is fake is to start a deep conversation.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Friend Requests From People Who Have No Mutuals
@@ -76,13 +103,6 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
  If you're getting lots of friend requests from accounts that do not have any mutual friends, there's a possibility that it's a fake account that's directly targeting you. Sadly, there are a lot of fake profiles out there which are hand-crafted to deceive a particular person. These are trickier to spot, especially as they gain credibility by learning a lot about you. However, they're little slip-ups that you'll still notice along the way.
 
  It's possible to block friend requests from people who have no friends in common with you. To do this, head to the**Settings** section of your Facebook mobile app, scroll down and tap on**How people can find and contact you >** **Who can send you friend requests? >** **Friends of friends** . You can also try out other[ways to limit the people that can contact you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Protect Yourself From Fake Profiles
 
@@ -103,5 +123,21 @@ thumbnail: https://thmb.techidaily.com/26237c0b8cf6f930c119cd7d58abe423d11d796e2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-superior-methods-for-soundless-footage/"><u>[New] 2024 Approved Superior Methods for Soundless Footage</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unlocking-instagrams-hidden-gems-tailored-to-your-passions-for-2024/"><u>[New] Unlocking Instagram’s Hidden Gems Tailored to Your Passions for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-inside-out-a-thorough-examination-of-dji-phantom-4/"><u>2024 Approved Inside Out A Thorough Examination of DJI Phantom 4</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/o-integrate-titles-and-descriptions-into-your-youtube-video/"><u>How to Integrate Titles and Descriptions Into Your YouTube Video</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-redefine-phoneemail-on-facebook/"><u>How to Redefine Phone/Email on Facebook</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-infinix-hot-30i-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Infinix Hot 30i to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-xiaomi-redmi-note-12r-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Xiaomi Redmi Note 12R to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-best-free-video-cutters-and-joiners-for-beginners/"><u>New 2024 Approved Best Free Video Cutters and Joiners for Beginners</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-unveiled-delete-your-social-media-narrative/"><u>Secrets Unveiled: Delete Your Social Media Narrative</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-savvy-how-hashtags-drive-traffic-on-facebook/"><u>Social Media Savvy: How #Hashtags Drive Traffic on Facebook</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-art-of-pacing-keeping-gaming-enjoyable/"><u>The Art of Pacing: Keeping Gaming Enjoyable</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unsung-rules-of-social-networking-keep-your-info-to-yourself/"><u>The Unsung Rules of Social Networking: Keep Your Info to Yourself</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-brand-potential-with-a-company-profile-on-facebook-top-8-insights/"><u>Unlocking Brand Potential with a Company Profile on Facebook - Top 8 Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-hidden-voices-fb-groups-edition/"><u>Unmasking Hidden Voices: FB Groups Edition</u></a></li>
+</ul></div>
 

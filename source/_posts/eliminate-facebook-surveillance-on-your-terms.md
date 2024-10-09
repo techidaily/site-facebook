@@ -1,7 +1,7 @@
 ---
 title: Eliminate Facebook Surveillance on Your Terms
-date: 2024-10-01T19:45:51.217Z
-updated: 2024-10-03T22:35:31.353Z
+date: 2024-10-03T03:16:47.056Z
+updated: 2024-10-09T06:19:26.601Z
 tags:
   - facebook
 categories:
@@ -44,18 +44,18 @@ thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac0
 
  As with Facebook tracking via the Like and Share social plug-ins, the crux of the issue is whether Facebook provides enough information to users to make informed decisions regarding data tracking.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Facebook Cookies
 
  Facebook places a cookie on your computer if you have a Facebook account. It also places a cookie on your computer if you use "Facebook Products, including our website or apps, or visit other websites and apps that use Facebook Products (including the Like button or other Facebook Technologies)."
 
  Regardless of whether you have an account, if you even use a site using a Facebook Product, you receive a Facebook tracking cookie.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Facebook Tracking via Instagram and WhatsApp
 
@@ -66,10 +66,16 @@ thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac0
  Thankfully,[WhatsApp users can turn off data sharing](https://www.makeuseof.com/tag/4-security-threats-whatsapp-users-need-know/) . Instagram users do not have the same data privacy option. If you want to switch, here are[four privacy-focused WhatsApp alternatives](https://www.makeuseof.com/tag/4-slick-whatsapp-alternatives-guard-privacy/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Does Facebook Know About You?
@@ -90,11 +96,25 @@ thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac0
 
  If you want to stop being stalked by ads online, consider using the[Off-Facebook Activity](https://facebook.com/off-facebook-activity) tool to control which apps and services can[share your data with Facebook](https://www.makeuseof.com/tag/off-facebook-activity-tool/) .
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Facebook Tracks Users, Even Without an Account
 
  I often hear people say they are free from Facebook tracking because they do not have an account. Well, the joke is on them (or us? All of us?!). One of the reasons Facebook's advertising works so well is the immense amount of websites and services feeding data back to Facebook's advertising arm. That includes data gathered using the methods laid out above.
 
  When you visit one of these sites, regardless of your Facebook user status, Facebook receives an IP address, location, browser details, and more. And the best bit of all? Facebook tracking cookies**never** expire.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Is Facebook Tracking Me?
 
@@ -116,13 +136,6 @@ thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac0
 
  Thankfully, there are several great solutions and, better yet, many of them will stop other invasive tracking practices, too.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Change Facebook Ad Preferences
 
  One of the first things you can do is change your[Facebook Ad Preferences](http://www.facebook.com/ads/preferences/) .
@@ -131,13 +144,6 @@ thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac0
 
  While these don't stop advertising and tracking directly, it does mean advertisers won't use that information to advertise to you.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Script Blocking
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
@@ -145,13 +151,6 @@ thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac0
 ### uBlock Origin
 
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
@@ -173,9 +172,23 @@ thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac0
 
 **Download:** Privacy Badger for[Chrome](https://chrome.google.com/webstore/detail/privacy-badger/pkehgijcmpdhfbdbbnkijodmdjhbjlgp) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/privacy-badger17/) |[Opera](https://addons.opera.com/en-gb/extensions/details/privacy-badger/) (All Free)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use a Privacy-Focused Alternative Browser
 
  If you are using Google's Chrome browser, you are being tracked. But you don't have to fear your browser tracking your online activity. There are[several privacy-focused browser alternatives](https://www.makeuseof.com/tag/2-anonymous-web-browsers-completely-private-secure/) you can use to stop Facebook tracking.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Epic Privacy Browser
 
@@ -196,10 +209,16 @@ thumbnail: https://thmb.techidaily.com/8398659134dc24374c71d0ed649ae9e802ceefac0
 **Download** : Brave for Windows (64-bit) | Windows (32-bit) | macOS | Linux
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Advertising Opt-Outs and Disabling Third-Party Cookies
@@ -216,13 +235,6 @@ Users can opt out of behavioral advertising using a regional tool.
 
  Related:[How to Check Who Is Tracking You Around the Internet?](https://www.makeuseof.com/tag/check-who-tracking-you-online/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Cookie AutoDelete
 
  You can use a browser extension to delete third-party cookies automatically after leaving the site (some sites won't work without them). Cookie AutoDelete works for both Chrome and Firefox and allows you to customize the cookies you delete after each session.
@@ -230,10 +242,10 @@ Users can opt out of behavioral advertising using a regional tool.
 **Download:** Cookie AutoDelete for[Chrome](https://chrome.google.com/webstore/detail/cookie-autodelete/fhcgjolkccmbidfldomjliifgaodjagh?hl=en) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/cookie-autodelete/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Should You Block Facebook Tracking?
@@ -265,18 +277,19 @@ Image Credit: Sabphoto/Shutterstock
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-screen-streaming-showdown-whos-the-champion-for-2024-obs-or-shadowgl/"><u>[New] Screen Streaming Showdown Who's the Champion for 2024 OBS or ShadowGL?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/13-effective-techniques-for-converting-video-files-from-vob-format-to-mp4-in-windows-11-and-macos/"><u>13 Effective Techniques for Converting Video Files From VOB Format to MP4 in Windows 11 and macOS</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-unparalleled-camera-tech-s-filmmaking/"><u>2024 Approved Unparalleled Camera Tech 'S Filmmaking</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-and-your-well-being-9-integrative-strategies/"><u>ChatGPT & Your Well-Being: 9 Integrative Strategies</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/explore-instagrams-per-video-limit-explained-for-2024/"><u>Explore Instagram's Per-Video Limit Explained for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-will-transparency-affect-your-digital-interactions/"><u>How Will Transparency Affect Your Digital Interactions?</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-initiate-direct-camera-streaming-with-vlc/"><u>In 2024, Initiate Direct Camera Streaming with VLC</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-vivo-y56-5g-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Vivo Y56 5G Device</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/iphone-techniques-for-full-sphere-videography/"><u>IPhone Techniques for Full-Sphere Videography</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/listening-out-loud-deciphering-the-differences-between-podcasts-and-youtube-for-2024/"><u>Listening Out Loud Deciphering the Differences Between Podcasts & YouTube for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-privacy-exiting-facebook-groups/"><u>Securing Privacy: Exiting Facebook Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/trump-seeks-justice-against-g-f-t-for-censorship-claims/"><u>Trump Seeks Justice Against G-F-T for Censorship Claims</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-not-everyone-is-still-checking-into-fb-today/"><u>Why Not Everyone Is Still Checking Into FB Today</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-tips-to-prevent-frame-loss-during-real-time-broadcasts-with-obs-for-2024/"><u>[New] Tips to Prevent Frame Loss During Real-Time Broadcasts with OBS for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-become-a-meme-wizard-with-these-9gag-strategies/"><u>[Updated] 2024 Approved Become a Meme Wizard with These 9GAG Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unlock-the-secret-to-massive-engagement-3-top-tips-for-making-powerful-two-pov-reaction-videos-on-youtube/"><u>2024 Approved Unlock the Secret to Massive Engagement 3 Top Tips for Making Powerful Two-POV Reaction Videos on YouTube</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/advanced-screen-recorder-options-for-mac-not-including-bandicamp/"><u>Advanced Screen Recorder Options for Mac, Not Including Bandicamp</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-messenger-encryption-in-fb/"><u>Assessing Messenger Encryption in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-foundation-of-trust-with-facebooks-open-network-portal/"><u>Building a Foundation of Trust with Facebook's Open Network Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/capturing-hearts-and-eyes-top-6-profile-pic-ideas/"><u>Capturing Hearts and Eyes: Top 6 Profile Pic Ideas</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-a-community-of-positivity-online/"><u>Cultivating a Community of Positivity Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-the-cord-a-step-by-step-guide-to-leaving-facebook-for-good/"><u>Cut the Cord: A Step-by-Step Guide to Leaving Facebook for Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-mantras-key-personal-details-to-keep-offline/"><u>Cybersecurity Mantras: Key Personal Details to Keep Offline</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/decoding-technology-an-in-depth-look-at-devices-featured-on-toms-site/"><u>Decoding Technology: An In-Depth Look at Devices Featured on Tom's Site</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovative-photo-tips-for-exquisite-iphone-close-ups-and-macros-for-2024/"><u>Innovative Photo Tips for Exquisite iPhone Close-Ups & Macros for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721479665537-uncover-the-reasons-why-upgrading-to-ios-153-should-be-your-top-priority/"><u>Uncover the Reasons Why Upgrading to iOS 15.3 Should Be Your Top Priority</u></a></li>
 </ul></div>
 

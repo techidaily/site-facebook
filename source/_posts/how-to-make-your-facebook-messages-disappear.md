@@ -1,7 +1,7 @@
 ---
 title: How to Make Your Facebook Messages Disappear?
-date: 2024-10-02T22:59:57.081Z
-updated: 2024-10-03T23:11:16.539Z
+date: 2024-10-07T17:08:42.672Z
+updated: 2024-10-09T02:51:43.363Z
 tags:
   - facebook
 categories:
@@ -34,22 +34,15 @@ thumbnail: https://thmb.techidaily.com/fa290563760e589f24a85fc95189dcd8b9293ad62
 
  This isn't the same as[setting up privacy settings in Facebook for your photos](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) , or on your entire profile where others can't see it. The feature focuses on Messenger chats only.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Does Vanish Mode Work?
 
 ![Examples of vanish mode](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/vanish-mode.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You want to update your Messenger app to the latest version in order to have access to vanish mode. You'll also need to be previously connected with the person you are messaging to see the feature available.
@@ -62,31 +55,44 @@ thumbnail: https://thmb.techidaily.com/fa290563760e589f24a85fc95189dcd8b9293ad62
 
  Because of the encryption, you'll receive a notification anytime someone takes a screenshot of the messages. You still have the ability to report or block anyone misusing the feature, so don't worry about that.
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Use Vanish Mode
 
  All it takes is a quick swipe for anyone who wants to use vanish mode with people they are connected with. Open your messenger app and select your chat, before then swiping up.
 
 ![Enabling vanish mode in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/IMG_1038.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Receiving an error in vanish mode in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/IMG_1039.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
 
  If it's your first time with vanish mode, you'll be shown some rules about how the feature works. Anytime thereafter, you just need to swipe up and you'll enter vanish mode. Swipe up again to turn your Messenger chat back to normal.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Now You Know How You Use Vanish Mode on Messenger
 
@@ -109,20 +115,14 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-taking-command-of-zoom-breakout-sessions-for-2024/"><u>[New] Taking Command of Zoom Breakout Sessions for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-innovating-in-the-digital-age-making-stellar-fb-reels-on-youtube/"><u>2024 Approved Innovating in the Digital Age Making Stellar FB Reels on YouTube</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-revolutionize-recording-the-ultimate-guide-to-minecraft-screenshots-on-mac/"><u>2024 Approved Revolutionize Recording The Ultimate Guide to Minecraft Screenshots on Mac</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/audio-troubleshooting-tips-why-wont-my-laptop-speakers-work-and-how-to-solve-it/"><u>Audio Troubleshooting Tips: Why Won't My Laptop Speakers Work and How to Solve It?</u></a></li>
-<li><a href="https://facebook.techidaily.com/guiding-you-back-into-facebook-post-code-loss/"><u>Guiding You Back Into Facebook Post-Code Loss</u></a></li>
-<li><a href="https://driver-download.techidaily.com/humidity-levels-required-for-optimal-mycelium-proliferation-and-maturation-of-the-fungus/"><u>Humidity Levels Required for Optimal Mycelium Proliferation and Maturation of the Fungus.</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Itel A60s | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-tecno-pova-6-pro-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Tecno Pova 6 Pro 5G to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/managing-group-exits-maintaining-good-relationships-online/"><u>Managing Group Exits: Maintaining Good Relationships Online</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-guide-to-downloading-and-updating-razer-naga-drivers-in-windows-os/"><u>Step-by-Step Guide to Downloading & Updating Razer Naga Drivers in Windows OS</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essence-and-impact-of-recently-released-facebook-files/"><u>The Essence and Impact of Recently Released Facebook Files</u></a></li>
-<li><a href="https://facebook.techidaily.com/tips-to-maximize-outreach-when-sharing-job-openings-on-fb/"><u>Tips to Maximize Outreach When Sharing Job Openings on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/unseen-ambitions-deciphering-the-secrets-to-facebooks-wearable-device/"><u>Unseen Ambitions: Deciphering the Secrets to Facebook’s Wearable Device</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-5-best-apps-for-voice-translation-from-english-to-bangla/"><u>Updated 5 Best Apps for Voice Translation From English to Bangla</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-are-ray-ban-stories-facebook-announces-and-pricing-details/"><u>What Are Ray-Ban Stories? Facebook Announces & Pricing Details</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-comprehensive-key-to-efficient-morphvox-usage/"><u>[New] The Comprehensive Key to Efficient MorphVOX Usage</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-prioritizing-elements-what-to-consider-with-a-new-4k-camera-lens/"><u>[Updated] Prioritizing Elements What to Consider with a New 4K Camera Lens</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/el-transformation-from-zero-to-thousand-followers/"><u>Channel Transformation From Zero to Thousand Followers</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-hashtags-to-harmony-what-i-discovered-post-social-media/"><u>From Hashtags to Harmony: What I Discovered Post-Social Media</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/leveraging-ai-for-compelling-youtube-thumbnails/"><u>Leveraging AI for Compelling YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-the-significant-date-of-my-digital-enlightenment-facebook/"><u>Seeking the Significant Date of My Digital Enlightenment: Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-path-to-informed-facebook-usage-via-its-transparency-hub/"><u>The Path to Informed Facebook Usage via Its Transparency Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-11-social-network-snags-and-how-to-tackle-them/"><u>Top 11 Social Network Snags and How to Tackle Them</u></a></li>
 </ul></div>
 

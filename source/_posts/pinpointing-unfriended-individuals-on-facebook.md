@@ -1,7 +1,7 @@
 ---
 title: Pinpointing Unfriended Individuals on Facebook
-date: 2024-09-28T21:45:09.521Z
-updated: 2024-10-03T18:51:15.763Z
+date: 2024-10-08T03:53:37.800Z
+updated: 2024-10-08T23:16:16.932Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ Close
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Your Blocked List on the Web
@@ -56,10 +56,10 @@ Close
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
@@ -72,10 +72,10 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can People Tell if You've Blocked Them on Facebook?
@@ -87,10 +87,10 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
@@ -112,21 +112,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ree-youtube-intros-a-comprehensive-instructional-guide-for-2024/"><u>[New] Free YouTube Intros A Comprehensive Instructional Guide for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-small-scale-screenplay-idea/"><u>[New] Small-Scale Screenplay Idea</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-the-editors-ally-smooth-operation-in-m1-with-top-tools/"><u>[New] The Editor's Ally Smooth Operation in M1 with Top Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-functionality-and-worth-of-facebooks-tactile-tools/"><u>Exploring the Functionality and Worth of Facebook's Tactile Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/harmonizing-social-media-and-playlists-facebooks-boombox-revelation/"><u>Harmonizing Social Media and Playlists: Facebook's Boombox Revelation</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-easy-storage-solutions-for-androidmac-snaps-on-devices/"><u>In 2024, Easy Storage Solutions for Android/Mac Snaps on Devices</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-from-iphone-6-plus-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock from iPhone 6 Plus or iPad?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-xiaomi-redmi-note-13-5g-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Xiaomi Redmi Note 13 5G to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-infinix-note-30-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Infinix Note 30 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-safety-status-update-on-fb/"><u>Mastering Safety Status Update on FB</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/preserving-your-nintendo-switch-experiences-a-guide/"><u>Preserving Your Nintendo Switch Experiences A Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/six-stay-powerful-aspects-that-keep-facebook-at-the-forefront-for-networkers/"><u>Six Stay-Powerful Aspects That Keep Facebook at the Forefront for Networkers</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-6-benefits-why-facebook-remains-essential/"><u>Top 6 Benefits: Why Facebook Remains Essential</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-account-defenses-implement-2fa-for-email-services-like-googles-gmail-and-microsofts-outlook/"><u>Unlock Account Defenses: Implement 2FA for Email Services Like Google's Gmail and Microsoft's Outlook</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-facebook-refuses-to-fade-away/"><u>Why Facebook Refuses to 'Fade Away'</u></a></li>
-<li><a href="https://driver-error.techidaily.com/windows-11-error-code-eliminated-irql/"><u>Windows 11 Error Code Eliminated: IRQL</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/learn-to-harvest-the-richness-of-facebook-live-experiences-for-2024/"><u>, Learn to Harvest the Richness of Facebook Live Experiences for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-build-a-thriving-biz-channel-proven-strategies-and-examples/"><u>[New] 2024 Approved Build a Thriving Biz Channel Proven Strategies and Examples</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-digital-dreamland-gamers-income-evolution/"><u>[New] 2024 Approved Digital Dreamland Gamers' Income Evolution</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-save-money-on-titles-exclusive-list-of-11-free-creators/"><u>[Updated] 2024 Approved Save Money on Titles - Exclusive List of 11 Free Creators</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-zero-cost-image-amplifier-desktopmobile-edition/"><u>[Updated] 2024 Approved Top Zero-Cost Image Amplifier Desktop/Mobile Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/banish-facebooks-privacy-invasion-with-off-fb-controls/"><u>Banish Facebook's Privacy Invasion with Off-FB Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/considering-facebooks-role-in-streamlining-multi-app-sign-in-processes/"><u>Considering Facebook's Role in Streamlining Multi-App Sign-In Processes</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-our-picks-the-7-leading-traffic-control-applications/"><u>Discover Our Picks: The 7 Leading Traffic Control Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-recent-facebook-watches/"><u>Discovering Recent Facebook Watches</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-next-step-enhancing-stories-panel-with-reels-and-rooms/"><u>Facebook's Next Step: Enhancing Stories Panel With Reels & Rooms</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-isolation-to-engagement-joining-an-expat-group-on-facebook/"><u>From Isolation to Engagement: Joining an Expat Group on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-hashtags-for-prominence/"><u>Harnessing Hashtags for Prominence</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-lava-yuva-2-pro-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Lava Yuva 2 Pro Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/resolving-access-issues-with-your-facebook-id/"><u>Resolving Access Issues with Your Facebook ID</u></a></li>
+<li><a href="https://review-topics.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-vivo-y36i-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unyielding-nature-of-facebooks-content-advice/"><u>The Unyielding Nature of Facebook's Content Advice</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-your-zte-blade-a73-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your ZTE Blade A73 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
 </ul></div>
 

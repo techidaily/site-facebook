@@ -1,7 +1,7 @@
 ---
 title: Why Online Dialogue Is Now in the Hands of Social Giants
-date: 2024-09-16T00:35:26.665Z
-updated: 2024-09-21T19:39:36.495Z
+date: 2024-10-07T21:47:23.845Z
+updated: 2024-10-08T20:23:14.627Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/696965aa1a0f4c21fdfd456761bb63f354f50ffc3
  This is because young internet users will learn from people around them that are older about social media, and the less they see forums, the less chance they'll think to sign up for one. As time goes on, forums will likely become more obscure and more outdated—leading to fewer signups.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Forums Tend to Be Dedicated Around One Subject
@@ -62,21 +62,41 @@ thumbnail: https://thmb.techidaily.com/696965aa1a0f4c21fdfd456761bb63f354f50ffc3
 ![Cluster of icons for popular social media apps.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/social-apps-icons.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You likely have dozens of apps on your phone. It's possible you even regularly use most of them, even if it's pretty common for most apps on a users' phone to go ignored for months at a time. In any case, you probably agree that apps are more user-friendly than simply using a browser. Even though[social media can negatively affect you](https://www.makeuseof.com/tag/negative-effects-social-media/) , you're more likely to prioritize the convenience that apps and social media provide rather than the negative impacts that usage can cause.
 
  This is a big reason social media killed online forums because they typically can be used on a mobile app as well as a browser, whereas forums can only be used on browsers. While you can access most forums via your mobile browser, it'll be clunky and less responsive than an app—and almost definitely less friendly to navigate. The accessibility that apps provide makes people more likely to stick to them rather than go out of their way to use a forum on a browser to connect with people.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. The Rise of Facebook Groups
 
  Facebook Groups are extremely popular, with over[1.8 billion people using them monthly](https://www.searchenginejournal.com/1-8-billion-people-use-facebook-groups-every-month/397109/) . It's no surprise; they are well-designed and make it simple to keep up with conversations. As they are typically narrowly focused on a certain subject, it means that you can get information or conversation on specific subjects without even having to leave the Facebook app.
 
  While you may find that it's still harder to find older conversations on Facebook Groups than on a forum, the accessibility that they offer is undeniable. No other social media really has a competing feature, with LinkedIn Groups often littered with self-promotion, non-moderated conversations, and a lack of presence compared to Facebook Groups. This, combined with the popularity of Facebook's platform on the whole, means that their Groups feature is extremely popular—and these were also big reasons that online forums fell by the wayside over the past decade.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Social Media Is the Current-Day Online Forum
 
@@ -97,5 +117,24 @@ thumbnail: https://thmb.techidaily.com/696965aa1a0f4c21fdfd456761bb63f354f50ffc3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-elevate-your-images-with-gorgeous-mosaics-for-2024/"><u>[New] Elevate Your Images with Gorgeous Mosaics for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-pick-the-premier-mac-for-gif-capturing/"><u>[Updated] Pick the Premier Mac for GIF Capturing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-implementing-incremental-noise-reduction-using-audacity/"><u>2024 Approved Implementing Incremental Noise Reduction Using Audacity</u></a></li>
+<li><a href="https://facebook.techidaily.com/artistic-assets-transforming-video-content-into-money-through-metric-mastery/"><u>Artistic Assets: Transforming Video Content Into Money Through Metric Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-communication-platform-takes-stand-on-it-law-controversy/"><u>Digital Communication Platform Takes Stand on IT Law Controversy</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-install-intel-integrated-graphics-drivers-on-windows-1011/"><u>Download & Install Intel Integrated Graphics Drivers on Windows 10/11</u></a></li>
+<li><a href="https://facebook.techidaily.com/expose-fraudsters-on-facebook-the-list-of-top-14-scams/"><u>Expose Fraudsters on Facebook: The List of Top 14 Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-establishing-your-facebook-community-hub/"><u>Guide to Establishing Your Facebook Community Hub</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-your-apple-iphone-15-pro-passcode-4-easy-methods-with-or-without-itunes-drfone-by-drfone-ios/"><u>How to Unlock Your Apple iPhone 15 Pro Passcode 4 Easy Methods (With or Without iTunes) | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-samsung-galaxy-s23-fe-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Samsung Galaxy S23 FE?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-economical-enthusiasts-guide-to-game-recording/"><u>In 2024, The Economical Enthusiast's Guide to Game Recording</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-viral-content-showdown-is-the-time-for-likee-to-surpass-tiktok-nearing/"><u>In 2024, Viral Content Showdown Is the Time for Likee to Surpass TikTok Nearing?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-safety-in-the-realm-of-social-media-quizzes/"><u>Navigating Safety in the Realm of Social Media Quizzes</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-chapter-facebook-endorses-rust-language/"><u>New Chapter: Facebook Endorses Rust Language</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-landslide-tech-giants-go-dark-for-days/"><u>Online Landslide: Tech Giants Go Dark for Days</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/premiere-pros-best-practices-free-template-samples/"><u>Premiere Pro's Best Practices FREE Template Samples</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secret-language-of-facebook-chat-emojis-and-glyphs/"><u>The Secret Language of Facebook Chat Emojis & Glyphs</u></a></li>
+</ul></div>
 

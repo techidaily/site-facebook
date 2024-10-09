@@ -1,7 +1,7 @@
 ---
 title: Fear the Rise of Meta in Digital Spaces
-date: 2024-09-14T23:23:15.506Z
-updated: 2024-09-21T16:23:55.303Z
+date: 2024-10-02T04:49:08.833Z
+updated: 2024-10-08T22:41:05.201Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,19 @@ thumbnail: https://thmb.techidaily.com/23c6d535c7ad4efdb52e10a3b68daec9ba5e42c7d
 
  Because Meta has dominated social media so exhaustively, we are stuck in a vicious cycle every time the company messes up. First, we get outraged. Then we become disappointed that there's nothing we can do about it. And finally, we resign to the fact that we really have nowhere else to go. It's a complete entrapment. Meta's monopoly is so exhaustive that we are literally left with no other option.
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Meta Wields Too Much Power
 
 ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
@@ -55,6 +68,13 @@ thumbnail: https://thmb.techidaily.com/23c6d535c7ad4efdb52e10a3b68daec9ba5e42c7d
  With such powers, Zuckerberg gets to set the rules. He can unilaterally alter Facebook's algorithm to determine the kind of information you see. In theory, he can set the privacy options for billions of users or choose which of their messages get delivered.
 
  As evidenced in the buildup to the last two US presidential elections, filtered information can positively or negatively influence global outcomes. Consequently, Meta can easily influence global culture by controlling the kind of information billions of people have access to. That much power, if unchecked, is potentially dangerous.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. A Privacy Dilemma
 
@@ -86,6 +106,13 @@ Not convinced?
 
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
 
 Close
@@ -95,10 +122,10 @@ Close
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the[New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Stay Conscious of Meta's Influence
@@ -122,5 +149,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-masterful-traffic-puller-genius-for-2024/"><u>[Updated] Masterful Traffic Puller Genius for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-overcoming-full-screen-issues-in-obs/"><u>[Updated] Overcoming Full Screen Issues in Obs</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-real-time-broadcast-logging-made-simple/"><u>[Updated] Real-Time Broadcast Logging Made Simple</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-simple-steps-for-stellar-online-portrayals/"><u>6 Simple Steps for Stellar Online Portrayals</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dialogues-redefined-identifying-4-major-changes-in-networks/"><u>Digital Dialogues Redefined: Identifying 4 Major Changes in Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disconnect-considerations-for-a-smooth-social-exodus/"><u>Digital Disconnect: Considerations for a Smooth Social Exodus</u></a></li>
+<li><a href="https://driver-install.techidaily.com/directly-updating-windows-vista-drivers/"><u>Directly Updating Windows Vista Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-backgrounders-to-bannermen-elevating-your-fb-group/"><u>From Backgrounders to Bannermen: Elevating Your FB Group</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-tecno-pova-6-pro-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Tecno Pova 6 Pro 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Vivo Y100 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebook-in-charge-myth-busting-the-metaverse/"><u>Is Facebook In Charge? Myth-Busting the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-expenses-master-social-accounts-with-these-top-10-tools/"><u>No More Expenses? Master Social Accounts with These Top 10 Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/rest-in-peace-but-not-on-your-timeline-fb-guide/"><u>Rest in Peace, but Not on Your Timeline - FB Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/spot-stop-and-secure-yourself-from-these-14-social-network-tricks/"><u>Spot, Stop and Secure Yourself From These 14 Social Network Tricks</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-evolution-of-language-models-exploring-the-variances-between-gpt-4-gpt-4-turbo-and-gpt-e/"><u>The Evolution of Language Models - Exploring the Variances Between GPT-4, GPT-4 Turbo & GPT-E</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/wmv-archiefs-de-keuzeverdeling-en-voorinstellingen-voor-playback-lees-mee/"><u>WMV-Archiefs: De Keuzeverdeling En Voorinstellingen Voor Playback - Lees Mee</u></a></li>
+</ul></div>
 

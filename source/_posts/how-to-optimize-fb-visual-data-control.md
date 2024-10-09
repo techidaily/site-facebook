@@ -1,7 +1,7 @@
 ---
 title: How to Optimize Fb Visual Data Control
-date: 2024-10-01T19:22:23.349Z
-updated: 2024-10-03T22:47:17.989Z
+date: 2024-10-06T00:41:31.270Z
+updated: 2024-10-08T21:04:08.275Z
 tags:
   - facebook
 categories:
@@ -37,6 +37,13 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 * **Location:** Does your photo reveal where you are? If you're at home, have you just revealed your home address to the world?
 * **Embarrassment:** Has someone posted a snap of you in a compromising position? You probably don't want your family or your boss to see it.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook and Photo Privacy
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
@@ -61,13 +68,6 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
  Open the photo, and in the upper right-hand corner, you'll see the same dropdown menu as you see when setting inline privacy. Just choose your desired audience.
@@ -78,38 +78,39 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
 
  This covers your photos, but also your videos, wall posts, comments, Likes, and other content.
 
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Pro Tip: Use the Activity Log
 
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Photos You're Tagged In
@@ -132,13 +133,6 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
  In the latest version of Facebook, you need to disable the face recognition feature to prevent the suggestions from appearing. Go to**Settings and Privacy > Settings > Face Recognition** and make sure the setting displays**No** .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Does Facebook Photo Privacy Concern You?
 
  We hope this article has made you realize photo privacy is important and helped you to understand the steps you can take to ensure images of you aren't being exposed in the public realm. Because despite what tech companies would like you to believe, online privacy is important.
@@ -158,24 +152,21 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-shade-adjustments-simplified-learn-with-these-11-guides/"><u>[New] Shade Adjustments Simplified - Learn with These 11 Guides</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-elite-psd-blend-modes-showcase/"><u>2024 Approved Elite PSD Blend Modes Showcase</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-seamless-streaming-smarter-storing-top-51-exclusive-android-mobile-video-trimming-software/"><u>2024 Approved Seamless Streaming, Smarter Storing Top 51 Exclusive Android Mobile Video Trimming Software</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/hd-cartoon-downloads-without-cost-comprehensive-201-customer/"><u>HD Cartoon Downloads without Cost: Comprehensive 201 [Customer]</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-post-to-multiple-facebook-groups/"><u>How to Post to Multiple Facebook Groups</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-tecno-phantom-v-flip-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Tecno Phantom V Flip to PC? | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/hp-photosmart-7520-software-download-install-your-high-quality-printer-drivers-today/"><u>HP Photosmart 7520 Software Download: Install Your High-Quality Printer Drivers Today!</u></a></li>
-<li><a href="https://facebook.techidaily.com/in-search-of-real-connections-heres-why-you-should-stop-using-facebook/"><u>In Search of Real Connections? Here's Why You Should Stop Using Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-enhances-trust-with-american-users/"><u>Meta Enhances Trust with American Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/perfecting-your-high-definition-footage-and-pics-on-fb/"><u>Perfecting Your High-Definition Footage & Pics on Fb</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-vs-forum-the-rising-tide-of-engagement-platforms/"><u>Social vs Forum: The Rising Tide of Engagement Platforms</u></a></li>
-<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Xiaomi Mix Fold 3? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamline-your-feed-top-10-fb-app-tweaks-for-users/"><u>Streamline Your Feed: Top 10 FB App Tweaks for Users</u></a></li>
-<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-samsung-galaxy-s23-tactical-edition-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Samsung Galaxy S23 Tactical Edition ? Fix It Easily | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/swipe-through-facebook-downtime-real-time-monitoring-tips/"><u>Swipe Through Facebook Downtime: Real-Time Monitoring Tips</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-comprehensive-process-of-upgrading-your-fbx-models-to-obj-format-for-top-quality-3d-prints/"><u>The Comprehensive Process of Upgrading Your FBX Models to OBJ Format for Top-Quality 3D Prints</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-facebook-metaverse-explained-and-why-you-should-care/"><u>The Facebook Metaverse, Explained (And Why You Should Care)</u></a></li>
-<li><a href="https://facebook.techidaily.com/visualizing-conversations-facebook-avatars-in-whatsapp-use-ceiling-150-characters/"><u>Visualizing Conversations: Facebook Avatars in WhatsApp Use Ceiling: 150 Characters</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-poco-x5-pro-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Poco X5 Pro Device</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-clearsnapzoom7-master-your-photographic-scaling/"><u>[New] ClearSnapZoom7 Master Your Photographic Scaling</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-easy-color-techniques-for-professional-outputs/"><u>[New] Easy Color Techniques for Professional Outputs</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-top-screen-recording-software-compared-bandicam-vs-camtasia-for-2024/"><u>[Updated] Top Screen Recording Software Compared Bandicam Vs Camtasia for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-oculus-rifts-users-gain-access-post-hack/"><u>$300 Oculus Rifts, Users' Gain Access Post-Hack</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-best-practices-for-swiftly-deleting-offensive-content/"><u>8 Best Practices for Swiftly Deleting Offensive Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/abolish-all-fb-push-notifications/"><u>Abolish All FB Push Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-techs-battlefield-us-antitrust-law-adjustments/"><u>Big Tech's Battlefield: U.S. Antitrust Law Adjustments</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-compelling-online-story-with-your-business-profile-on-facebook/"><u>Crafting a Compelling Online Story with Your Business Profile on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-an-impactful-fb-profile-photograph/"><u>Creating an Impactful FB Profile Photograph</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/gpt-plus-vs-perplexity-the-ultimate-ai-battle/"><u>GPT Plus Vs. Perplexity: The Ultimate AI Battle</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-split-view-failures-in-os/"><u>Overcoming Split View Failures in OS</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147188934-preparing-for-the-decision-facebooks-oversight-court-on-trump/"><u>Preparing for the Decision: Facebook's Oversight Court on Trump.</u></a></li>
+<li><a href="https://app-tips.techidaily.com/simplified-approach-to-retrieve-lost-apps-from-your-ios-device/"><u>Simplified Approach to Retrieve Lost Apps From Your iOS Device</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/snap-your-way-up-quick-instagram-collage-ideas-for-2024/"><u>Snap Your Way Up Quick Instagram Collage Ideas for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unmatched-mounting-premier-photos-tripods/"><u>Unmatched Mounting Premier Photos Tripods</u></a></li>
 </ul></div>
 

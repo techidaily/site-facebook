@@ -1,7 +1,7 @@
 ---
 title: "Instagram Restrictions Under Consideration: Facebook's Upcoming Youth Initiative"
-date: 2024-09-15T23:06:47.089Z
-updated: 2024-09-22T00:50:39.535Z
+date: 2024-10-02T17:42:26.994Z
+updated: 2024-10-09T03:56:45.728Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ This feature could possibly address those concerns.
 
  Related:[Is an Instagram for Kids a Good or Bad Idea? The Pros and Cons](https://www.makeuseof.com/instagram-for-kids-pros-and-cons/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Nudging Teens Away From Potentially Harmful Content
 
  In addition to prompts to take a break, Facebook will nudge teens away from content that is potentially harmful. When Facebook's systems alert it that a young user is repeatedly viewing or engaging with content that is potentially harmful, Facebook will step in to "nudge" the teen away from that content and turn their attention towards other content.
@@ -49,6 +56,13 @@ Here's how Clegg explained it:
 > We're going to introduce something which I think will make a considerable difference, which is where our systems see that the teenager is looking at the same content over and over again and it's content which may not be conducive to their well-being, we will nudge them to look at other content.
 
  Related:[Why Instagram Is Forcing You to Add Your Birthday](https://www.makeuseof.com/instagram-forcing-you-add-birthday/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Is Facebook Introducing These Features?
 
@@ -61,10 +75,10 @@ Here's how Clegg explained it:
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
@@ -90,5 +104,26 @@ Here's how Clegg explained it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-fine-tuning-your-remote-visual-experience/"><u>[New] Fine-Tuning Your Remote Visual Experience</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-dynamic-dialogue-dance-decks/"><u>[Updated] Dynamic Dialogue Dance Decks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ideal-microphones-for-social-media-influencers/"><u>[Updated] Ideal Microphones for Social Media Influencers</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/a-step-by-step-guide-purchasing-video-games-for-your-oculus-quest-2/"><u>A Step-by-Step Guide: Purchasing Video Games for Your Oculus Quest 2</u></a></li>
+<li><a href="https://facebook.techidaily.com/creators-get-ready-instagram-adds-more-money-making-avenues/"><u>Creators, Get Ready: Instagram Adds More Money-Making Avenues</u></a></li>
+<li><a href="https://win-answers.techidaily.com/elden-ring-initial-boot-problem-solutions-for-clearing-the-darkness/"><u>Elden Ring Initial Boot Problem? Solutions for Clearing the Darkness</u></a></li>
+<li><a href="https://facebook.techidaily.com/ending-seamless-fb-navigation-via-browser/"><u>Ending Seamless FB Navigation via Browser</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tips-to-dodge-typical-social-media-buying-pitfalls/"><u>Essential Tips to Dodge Typical Social Media Buying Pitfalls</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-facebooks-new-privacy-center-and-why-you-should/"><u>How to Use Facebook's New Privacy Center (and Why You Should)</u></a></li>
+<li><a href="https://techtrends.techidaily.com/leading-internet-giants-a-look-at-the-worlds-top-10-high-traffic-websites/"><u>Leading Internet Giants: A Look at the World's Top 10 High-Traffic Websites</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/legal-considerations-when-uploading-videos-to-social-network-sites-for-2024/"><u>Legal Considerations When Uploading Videos to Social Network Sites for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-morality-correct-to-ban-trump-but-not-permanently/"><u>Online Morality: Correct to Ban Trump but Not Permanently</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/online-tool-for-gratis-conversion-from-3gp-video-codec-to-3g2-swiftconvert/"><u>Online Tool for Gratis Conversion From 3GP Video Codec to 3G2 - SwiftConvert</u></a></li>
+<li><a href="https://facebook.techidaily.com/pondering-over-the-ideal-time-to-update-avatar/"><u>Pondering Over the Ideal Time to Update Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-eradicating-fb-notification-alerts/"><u>Steps for Eradicating Fb Notification Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-competition-in-a-post-antitrust-world/"><u>The Future of Competition in a Post-Antitrust World</u></a></li>
+<li><a href="https://facebook.techidaily.com/together-through-technology-7-platforms-for-social-solidarity/"><u>Together Through Technology: 7 Platforms for Social Solidarity</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ultimate-tips-for-diagnosing-and-repairing-the-blue-screen-0x0000003d-problem/"><u>Ultimate Tips for Diagnosing and Repairing the Blue Screen 0X0000003D Problem</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mkvmpeg-movavi/"><u>オンラインで無料: MKVとMPEG形式を簡単に変換する - Movavi</u></a></li>
+</ul></div>
 

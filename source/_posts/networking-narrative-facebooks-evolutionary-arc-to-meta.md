@@ -1,7 +1,7 @@
 ---
 title: "Networking Narrative: Facebook's Evolutionary Arc to Meta"
-date: 2024-10-02T22:28:30.305Z
-updated: 2024-10-03T18:57:59.720Z
+date: 2024-10-06T23:29:08.471Z
+updated: 2024-10-08T16:53:51.805Z
 tags:
   - facebook
 categories:
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 
  Soon after, Facebook added more features to its website and the app, including Chat, Pages, Facebook Ads, and video support. But the most significant of them was the infamous Like button, introduced in February 2009.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2010–2012: Facebook Goes Public
 
 ![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
@@ -57,22 +64,15 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2013–2015: Facebook Enters New Territories
 
 ![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Image Credit: Temitiman/[Shutterstock](https://www.shutterstock.com/image-photo/magelang-central-java-indonesia-april-29-1383449651)
 
@@ -83,15 +83,22 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
  On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know[how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2016–2018: Controversies and Scandals
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
@@ -103,16 +110,22 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 
  The scandal led Zuckerberg and Facebook COO Sheryl Sandberg to testify before Congress. And the company paid a fine of £500,000 to the UK's Information Commissioner's Office for its part in the scandal.
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2019–2021: Rebranding to Meta Backfires
 
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
 
@@ -127,13 +140,6 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 ## 2022 and Beyond: Layoffs, Chaos, and Recovery
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
 
@@ -164,20 +170,19 @@ What comes next? Massive layoffs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-engineering-captivating-video-teasers-for-online-presence/"><u>[New] 2024 Approved Engineering Captivating Video Teasers for Online Presence</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-becoming-a-bull-or-bear-best-stock-vids-on-youtube/"><u>[New] Becoming a Bull or Bear Best Stock Vids on YouTube</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-syncopating-songs-implementing-fades-in-logic-pro-x/"><u>[Updated] Syncopating Songs Implementing Fades in Logic Pro X</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-dwindling-user-count-in-the-face-of-tiktoks-ascent/"><u>Facebook’s Dwindling User Count in the Face of TikTok’s Ascent</u></a></li>
-<li><a href="https://facebook.techidaily.com/filter-the-noise-turn-off-facebooks-algorithmic-tricks/"><u>Filter the Noise: Turn Off Facebook's Algorithmic Tricks</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-scrolling-to-serenity-the-top-10-reasons-to-leave-the-facebook-journey/"><u>From Scrolling to Serenity: The Top 10 Reasons to Leave the Facebook Journey</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/ideal-technique-to-embed-gopro-clips-in-panoramic-movies-for-2024/"><u>Ideal Technique to Embed GoPro Clips in Panoramic Movies for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-tactical-steps-to-download-securely-free-vlc-media-on-mac/"><u>In 2024, Tactical Steps to Download Securely Free VLC Media on MAC</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-the-compreenasional-path-to-post-perfection-instagram-video-upload-from-pcmac/"><u>In 2024, The Compreenasional Path to Post-Perfection Instagram Video Upload From PC/Mac</u></a></li>
-<li><a href="https://facebook.techidaily.com/intelligent-customization-of-url-pairings-on-facebook/"><u>Intelligent Customization of URL Pairings on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/notifying-teen-activity-on-the-web-platform-facebook/"><u>Notifying Teen Activity on the Web Platform, Facebook</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/streamlining-your-technique-for-better-home-recordings-for-2024/"><u>Streamlining Your Technique for Better Home Recordings for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveil-the-power-of-directed-posting-with-these-top-3-facebook-tags-methods/"><u>Unveil the Power of Directed Posting with These Top 3 Facebook Tags Methods</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-audio-anchors-advanced-mobile-apps-for-accurate-track-detection-in-the-android-realm-for-2024/"><u>Updated Audio Anchors Advanced Mobile Apps for Accurate Track Detection in the Android Realm for 2024</u></a></li>
-<li><a href="https://network-issues.techidaily.com/zoom-camera-repair-made-simple-your-2024-fix-guide/"><u>Zoom Camera Repair Made Simple: Your 2024 Fix Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-engaging-audienranz-with-solo-visual-content/"><u>[New] 2024 Approved Engaging Audienranz with Solo Visual Content</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-advanced-settings-for-uniform-stream-lighting/"><u>[Updated] Advanced Settings for Uniform Stream Lighting</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-smirk-sessions-humorous-content-for-all-events/"><u>[Updated] Smirk Sessions Humorous Content for All Events</u></a></li>
+<li><a href="https://facebook.techidaily.com/10000-fb-groups-face-potential-amazon-litigation/"><u>10,000 FB Groups Face Potential Amazon Litigation</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-itel-s23-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-compreenasional-journey-into-the-world-of-facebooks-emoji-communication/"><u>A Compreenasional Journey Into the World of Facebook's Emoji Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-current-platforms-exploring-the-impact-and-meaning-of-facebooks-metaverse/"><u>Beyond Current Platforms: Exploring the Impact and Meaning of Facebook’s Metaverse</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/experts-picks-highly-rated-qled-televisions-slashed-by-1000-for-labor-day-blowout-find-your-perfect-model-smarthomeguide/"><u>Experts' Picks: Highly Rated QLED Televisions Slashed by $1,000 for Labor Day Blowout - Find Your Perfect Model | SmartHomeGuide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-charting-a-course-for-growth-precise-youtube-stats-from-social-blades-hub/"><u>In 2024, Charting a Course for Growth Precise YouTube Stats From Social Blade's Hub</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Lava Yuva 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-saving-every-word-a-guide-to-fb-messenger-call-logs/"><u>In 2024, Saving Every Word A Guide to FB Messenger Call Logs</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152051646-outsmart-facebooks-tracking-mechanisms-now/"><u>Outsmart Facebook's Tracking Mechanisms Now!</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-the-missing-gpeditmsc-issue-in-windows-home-edition/"><u>Resolving the Missing gpedit.msc Issue in Windows Home Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151595091-securely-engage-with-friends-on-facebook-heres-how/"><u>Securely Engage with Friends on Facebook, Here’s How!</u></a></li>
 </ul></div>
 

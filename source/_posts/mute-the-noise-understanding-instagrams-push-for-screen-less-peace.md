@@ -1,7 +1,7 @@
 ---
 title: "'Mute the Noise': Understanding Instagram's Push for Screen-Less Peace"
-date: 2024-09-17T23:27:35.056Z
-updated: 2024-09-21T23:36:26.024Z
+date: 2024-10-06T23:43:23.529Z
+updated: 2024-10-08T20:46:04.326Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/9fc617880b7f763c252c5a9e983583a15e0501d81
 
  Mosseri says the Take a Break feature will be tested with a handful of users, with plans to roll it out in December 2021.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Instagram Wants You to "Take a Break"
 
  Meta has been facing increasing pressure from lawmakers to make its apps safer for users' mental health.
@@ -53,6 +60,19 @@ thumbnail: https://thmb.techidaily.com/9fc617880b7f763c252c5a9e983583a15e0501d81
  Haugen's claims added weight to those claims as she worked for the company and witnessed what she did firsthand.
 
  Meta’s Global Head of Security Antigone Davis also mentioned Instagram’s Take a Break feature in a Senate hearing over teen mental health back in September. At the hearing, Davis said the company aims to improve younger users' experience on the app by encouraging them to stop browsing after they'd been browsing too long.
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Will Instagram's Opt-In Feature Be Effective?
 
@@ -75,12 +95,20 @@ thumbnail: https://thmb.techidaily.com/9fc617880b7f763c252c5a9e983583a15e0501d81
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-unlock-youtubes-enigmentic-video-cache/"><u>[New] 2024 Approved How to Unlock YouTube’s Enigmentic Video Cache</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-discover-the-world-from-above-xiaomis-4k-flight-diary/"><u>[Updated] In 2024, Discover the World From Above - Xiaomi's 4K Flight Diary</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-secrets-to-crafting-winning-freefire-videos-for-2024/"><u>[Updated] Secrets to Crafting Winning FreeFire Videos for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-vegaspros-new-era-reviewed-2019/"><u>[Updated] VegasPro's New Era Reviewed (2019)</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-unlock-from-apple-iphone-13-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock From Apple iPhone 13? How to Fix it?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-fun-vs-security-whats-at-stake/"><u>Facebook Fun vs Security – What's at Stake?</u></a></li>
+<li><a href="https://facebook.techidaily.com/make-your-facebook-more-visually-comfortable/"><u>Make Your Facebook More Visually Comfortable</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-fb-invisibility/"><u>Mastering the Art of Fb Invisibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-anonymous-contribution-on-networks/"><u>Navigating Anonymous Contribution on Networks</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/need-access-to-chatgpt-heres-how-to-confirm-its-availability-today/"><u>Need Access to ChatGPT? Here's How to Confirm Its Availability Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/profit-through-privacy-intrusion/"><u>Profit Through Privacy Intrusion</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-ultimate-gathering-of-heartfelt-weddings-youtube-and-vimeo-edition/"><u>The Ultimate Gathering of Heartfelt Weddings - Youtube & Vimeo Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncover-these-14-typical-facebook-hoaxes-before-acting/"><u>Uncover These 14 Typical Facebook Hoaxes Before Acting</u></a></li>
+</ul></div>
 

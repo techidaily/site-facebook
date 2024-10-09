@@ -1,7 +1,7 @@
 ---
 title: Eureka! Identifying the Start of My Online Social Life
-date: 2024-09-29T16:05:28.540Z
-updated: 2024-10-03T21:34:39.821Z
+date: 2024-10-03T20:06:30.124Z
+updated: 2024-10-09T06:05:30.263Z
 tags:
   - facebook
 categories:
@@ -75,21 +75,22 @@ Close
 ![Use the welcome email to find your join date on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-welcome-email.png)
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  When you find the Facebook email that either asks you to confirm your email address or offers instructions on getting started with Facebook, that email’s date should be your Facebook account creation date.
 
  This is the best method if you no longer have access to your Facebook account or you recently created your account—meaning the welcome email is easily accessible. But if you regularly delete your emails, you won't be able to check your Facebook account creation date via this method.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Find How Old Your Facebook Account Is Using a Profile Picture
 
@@ -113,10 +114,10 @@ Close
  That date should be the day you made your Facebook profile or very close to that date.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
@@ -131,27 +132,20 @@ Close
 
 ![posts history on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/posts-history-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Now scroll down to the oldest post on the list. To make the list shorter, use the**Date** filter to select the oldest possible date for posts.
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
  However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Find Out When You Joined Facebook
 
@@ -174,16 +168,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-transform-your-photos-mastering-time-lapse-with-samsung-mobile/"><u>[New] Transform Your Photos Mastering Time Lapse with Samsung Mobile</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-filter-bubble-transparency-act-details/"><u>Examining Filter Bubble Transparency Act Details</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/fullscreen-not-showing-problem-with-monitor-and-win11/"><u>Fullscreen Not Showing, Problem with Monitor & Win11?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/handheld-happiness-on-a-budget-exploring-features-and-limitations-of-the-nintendo-switch-lite/"><u>Handheld Happiness on a Budget: Exploring Features and Limitations of the Nintendo Switch Lite</u></a></li>
-<li><a href="https://facebook.techidaily.com/modifying-your-social-media-login-info/"><u>Modifying Your Social Media Login Info</u></a></li>
-<li><a href="https://facebook.techidaily.com/redefining-relationships-beyond-facebook/"><u>Redefining Relationships Beyond Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-sensitivity-what-not-to-post-for-your-security/"><u>Social Sensitivity: What Not to Post for Your Security</u></a></li>
-<li><a href="https://fox-that.techidaily.com/tackle-ghost-touch-malfunctions-in-ios-devices-discover-10-methods-for-repair/"><u>Tackle Ghost Touch Malfunctions in iOS Devices: Discover 10 Methods for Repair</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/unlock-your-content-potential-best-ideas-for-youtube-themes/"><u>Unlock Your Content Potential Best Ideas for YouTube Themes</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/unveiling-top-quality-hdr-camera-brands-and-models/"><u>Unveiling Top-Quality HDR Camera Brands and Models</u></a></li>
-<li><a href="https://howto.techidaily.com/why-your-xiaomi-redmi-k70-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Xiaomi Redmi K70 Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-7-high-motion-dslrs-for-dynamic-live-content-creation/"><u>[New] In 2024, Best 7 High-Motion DSLRs for Dynamic Live Content Creation</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-nokia-130-music-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-why-a-user-may-disappear-from-chat-listings/"><u>Analyzing Why a User May Disappear From Chat Listings</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/comprehensive-collection-of-all-movavi-software-solutions-unrestricted-access/"><u>Comprehensive Collection of All Movavi Software Solutions - Unrestricted Access</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/vating-a-positive-mindset-against-cyberbullying/"><u>Cultivating a Positive Mindset Against Cyberbullying</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/enhancing-digital-reads-a-guide-to-embedding-flash-and-video-files-in-page-turning-ebooks-using-flipbuilder-technology/"><u>Enhancing Digital Reads: A Guide to Embedding Flash and Video Files in Page-Turning eBooks Using FlipBuilder Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-online-community-bonds-using-channels/"><u>Enhancing Online Community Bonds Using Channels</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722975507764-enhancing-your-brother-device-functionality-windows-compatible-driver-upgrades-available-now/"><u>Enhancing Your Brother Device Functionality: Windows-Compatible Driver Upgrades Available Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-secret-data-the-new-headline-maker/"><u>Facebook's Secret Data: The New Headline-Maker</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150171652-fb-status-active-or-offline-discover-and-track/"><u>FB Status: Active or Offline - Discover & Track!</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-vivo-y78plus-t1-edition-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Vivo Y78+ (T1) Edition to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-photo-update-a-step-by-step-guide/"><u>Mastering Facebook Photo Update: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-customer-service-a-facebook-refund-journey/"><u>Navigating Customer Service: A Facebook Refund Journey</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-your-phones-role-in-windows-recording/"><u>Navigating Your Phone's Role in Windows Recording</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-of-private-conversations-facebooks-encrypted-instagram-dms-messenger-calls-rollout/"><u>New Era of Private Conversations: Facebook's Encrypted Instagram DMs, Messenger Calls Rollout.</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/preserve-pristine-sound-during-the-conversion-of-m4v-videos-to-high-quality-mp3-format/"><u>Preserve Pristine Sound During the Conversion of M4V Videos to High-Quality MP3 Format</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-transfer-facebook-posts-and-notes-to-three-popular-services/"><u>You Can Now Transfer Facebook Posts and Notes to Three Popular Services</u></a></li>
 </ul></div>
 

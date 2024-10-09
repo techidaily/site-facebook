@@ -1,7 +1,7 @@
 ---
 title: "Waiting Game: When Will We See the Third-Gen Oculus Quest"
-date: 2024-09-30T19:40:00.814Z
-updated: 2024-10-03T18:53:38.092Z
+date: 2024-10-07T05:50:54.725Z
+updated: 2024-10-08T20:00:25.897Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/9cb9221a42cf990d1ead5f7525c2a2084bd45082f
  You can't really get much clearer than that. For now, the focus is on the Oculus Quest 2 (and the Quest 1, to a degree). Given that[Facebook has only just revealed the Air Link connectivity for Quest 2](https://www.makeuseof.com/oculus-quest-2-wireless-air-link/) , it makes sense that the most recent iteration of the VR platform is Facebook's focus.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will There Ever Be an Oculus Quest 3?
@@ -50,10 +50,10 @@ thumbnail: https://thmb.techidaily.com/9cb9221a42cf990d1ead5f7525c2a2084bd45082f
  We can expect the Oculus Quest 2 to be around for some time before we see any hint of an Oculus 3 or Pro model.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will You Be Investing in the Oculus Ecosystem?
@@ -61,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/9cb9221a42cf990d1ead5f7525c2a2084bd45082f
 ![person using oculus quest two in a virtual reality environment](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-using-oculus-quest-two-in-a-virtual-reality-environment.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You have to admit, it is a very exciting time for VR platforms, and Oculus is no exception (especially with the recent announcement that Resident Evil 4 will be coming to the platform as a first person VR exclusive title).
@@ -86,24 +86,16 @@ thumbnail: https://thmb.techidaily.com/9cb9221a42cf990d1ead5f7525c2a2084bd45082f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-capture-the-fun-three-techniques-for-lol-broadcasting/"><u>[New] Capture the Fun Three Techniques for LOL Broadcasting</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-make-your-instagram-posts-pop-with-correct-video-dimensions-for-2024/"><u>[New] Make Your Instagram Posts Pop with Correct Video Dimensions for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-optimize-social-media-visual-clarity-for-iphoneandroid-users/"><u>[New] Optimize Social Media Visual Clarity for iPhone/Android Users</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-truth-behind-instas-video-selfie-authenticity-check/"><u>[New] The Truth Behind Insta's Video Selfie Authenticity Check</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-the-complete-guide-to-crafting-engaging-and-effective-videos/"><u>[Updated] 2024 Approved The Complete Guide to Crafting Engaging and Effective Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-epic-playlist-over-a-hundred-top-tier-titles/"><u>[Updated] Epic Playlist Over a Hundred Top-Tier Titles</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-behind-the-headset-todays-vr-tomorrows-trials/"><u>[Updated] In 2024, Behind the Headset Today's VR, Tomorrow's Trials</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-cmo-carolyn-steps-down-marketing-leadership-change/"><u>Facebook's CMO Carolyn Steps Down - Marketing Leadership Change</u></a></li>
-<li><a href="https://facebook.techidaily.com/future-unveiled-2023-without-a-second-oculus-quest-launch/"><u>Future Unveiled: 2023 Without a Second Oculus Quest Launch</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Tecno Spark 10 4G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/initiating-stronger-privacy-facebooks-messenger-and-instagram-end-to-end-encryption-launched/"><u>Initiating Stronger Privacy: Facebook's Messenger & Instagram End-to-End Encryption Launched.</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/navigating-tiktok-media-on-chrome-devices-effortlessly-for-2024/"><u>Navigating TikTok Media on Chrome Devices Effortlessly for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-probe-whatsapp-legalizes-challenge-to-indian-legislation/"><u>Privacy Probe: WhatsApp Legalizes Challenge to Indian Legislation</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-id-credentials-at-meta/"><u>Social ID Credentials at Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networks-to-evaluate-your-news-consumption-patterns/"><u>Social Networks to Evaluate Your News Consumption Patterns</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/step-by-step-tutorial-seamless-audio-removal-and-retrieval-in-bak-formats/"><u>Step-by-Step Tutorial: Seamless Audio Removal and Retrieval in BAK Formats</u></a></li>
-<li><a href="https://facebook.techidaily.com/transcending-limits-how-meta-aims-to-reshape-social-media-landscape/"><u>Transcending Limits: How 'Meta' Aims to Reshape Social Media Landscape</u></a></li>
-<li><a href="https://facebook.techidaily.com/unleashing-wealth-discover-5-new-ways-to-make-money-on-instagram-and-facebook/"><u>Unleashing Wealth: Discover 5 New Ways to Make Money on Instagram & Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-social-web-remove-insta-fb-links/"><u>Unraveling the Social Web: Remove Insta-FB Links</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-premium-online-streams-convert-youtube-to-mp3-instantly/"><u>2024 Approved Premium Online Streams Convert YouTube to MP3 Instantly!</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-facebooks-name-switch-from-news-to-just-feed/"><u>A Closer Look at Facebook's Name Switch: From News to Just Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/acknowledging-whole-groups-with-a-single-facebook-update/"><u>Acknowledging Whole Groups with a Single Facebook Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/connect-or-date-understanding-facebooks-new-feature/"><u>Connect or Date? Understanding Facebook’s New Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/control-who-sees-your-on-this-day-reminisces/"><u>Control Who Sees Your On This Day Reminisces</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/dissonant-designs-mastering-on-a-mac-for-2024/"><u>Dissonant Designs Mastering on a Mac for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/in-2024-anthology-of-gargantuan-groans-and-howls/"><u>In 2024, Anthology of Gargantuan Groans and Howls</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-nokia-c12-plus-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Nokia C12 Plus to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/new-microsoft-excel-feature-automatic-image-data-integration-coming-soon-to-windows-users/"><u>New Microsoft Excel Feature: Automatic Image Data Integration Coming Soon to Windows Users</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Sony Xperia 1 V | Dr.fone</u></a></li>
 </ul></div>
 

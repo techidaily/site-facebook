@@ -1,7 +1,7 @@
 ---
 title: "Webworld Woe: All Big Social Platforms Go Dark"
-date: 2024-09-19T19:43:30.244Z
-updated: 2024-09-21T21:10:28.783Z
+date: 2024-10-03T04:00:48.711Z
+updated: 2024-10-08T20:07:38.063Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is Facebook Down? Is Facebook Up Yet?
 
  A DNS (Domain Name System) issue appears to be the culprit behind Facebook's massive outage.
@@ -47,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  As per the tweet linked in the previous section, even Facebook's internal services were down in what's described as "a pretty epic configuration error."
 
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What Are BGP Routes?
 
@@ -59,10 +73,10 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
@@ -76,10 +90,10 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
@@ -101,5 +115,18 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-in-a-flash-streamlined-techniques-for-cutting-images-online/"><u>[New] In a Flash Streamlined Techniques for Cutting Images Online</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-sony-xperia-5-v-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Sony Xperia 5 V Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-news-feed-unraveling-facebooks-truths-and-myths/"><u>Beyond the News Feed: Unraveling Facebook's Truths and Myths</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/harmonizing-chapters-the-secrets-to-seamless-inshot-edits/"><u>Harmonizing Chapters The Secrets to Seamless Inshot Edits</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-meta-is-helping-creators-make-money-through-reels/"><u>How Meta Is Helping Creators Make Money Through Reels</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-the-windows-update-error-code-0x80070002-simple-solutions/"><u>How to Fix the Windows Update Error Code 0X80070002: Simple Solutions!</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-optimizing-viewing-distance-youtube-tips/"><u>In 2024, Optimizing Viewing Distance YouTube Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-phase-pushing-oculus-quest-launch-to-later-date/"><u>Next Phase: Pushing Oculus Quest Launch to Later Date</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/redefining-high-performance-air-cooling-detailed-examination-and-comparative-analysis-of-the-id-cooling-frozn-series-a720-vs-a620/"><u>Redefining High-Performance Air Cooling: Detailed Examination and Comparative Analysis of the ID-Cooling FROZN Series (A720 Vs. A620)</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giant-introduces-enhanced-auditory-services/"><u>Social Media Giant Introduces Enhanced Auditory Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-conversation-are-phones-market-spies/"><u>The Silent Conversation: Are Phones Market Spies?</u></a></li>
+</ul></div>
 

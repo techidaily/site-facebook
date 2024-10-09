@@ -1,7 +1,7 @@
 ---
 title: "Textual Excellence in Messages: Beyond Basic Fonts"
-date: 2024-09-29T18:05:42.524Z
-updated: 2024-10-03T21:13:30.085Z
+date: 2024-10-06T00:41:40.872Z
+updated: 2024-10-08T18:14:29.891Z
 tags:
   - facebook
 categories:
@@ -34,9 +34,23 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
  Here are the symbols to use for different types of formatting, along with examples of how it looks when you send a message.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Add Bold Text in Messenger
 
 ![Bold text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/bold-text-demo-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To make a text bold, type an asterisk (\*) before and after the text. Bold text is most often used for strong emphasis on important phrases and keywords.
 
@@ -45,13 +59,6 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 ![Italicize text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/italicize-text-demo-messenger.jpg)
 
  To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Use Strikethrough Text in Messenger
 
@@ -62,28 +69,40 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Use Monospace Text in Messenger
 
 ![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
 
  Most texts you'll see online will have proportional spacing—where each character occupies only as much width as it needs. Monospaced text has each character occupying the same amount of space.
 
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Send Blocks of Code in Messenger
 
@@ -100,13 +119,6 @@ To send text in a block of code:
 5. Type three more backticks and send your text.
 
  This will send your text with code formatting. This is just one of the many[things you can do with Facebook Messenger](https://www.makeuseof.com/things-you-can-do-facebook-messenger-features/) .
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Customize Your Facebook Messages With Text Formatting
 
@@ -129,24 +141,22 @@ To send text in a block of code:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-comprehensive-insights-into-polarrs-photo-tools/"><u>[New] Comprehensive Insights Into Polarr's Photo Tools</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-captureking-high-definition-edition/"><u>[Updated] In 2024, CaptureKing High Definition Edition</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-profitable-content-creation-on-youtube-through-smart-adsense-use-for-2024/"><u>[Updated] Profitable Content Creation on YouTube Through Smart AdSense Use for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-vivo-t2-pro-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Vivo T2 Pro 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-itel-p40-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Itel P40 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/expert-screencast-wisdom-key-facts-and-strategies/"><u>Expert Screencast Wisdom Key Facts and Strategies</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/expert-tips-restoring-functionality-to-your-broken-or-silent-headset-microphone/"><u>Expert Tips: Restoring Functionality to Your Broken or Silent Headset Microphone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/gasp-and-guffaw-10-instagram-pages-where-laughter-meets-tears-for-2024/"><u>Gasp & Guffaw 10 Instagram Pages Where Laughter Meets Tears for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/google-facebook-twitter-face-presidential-censorship-suit/"><u>Google, Facebook, Twitter Face Presidential Censorship Suit</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-use-facebook-two-factor-authentication-and-mobile-code-generator/"><u>How to Use Facebook Two-Factor Authentication and Mobile Code Generator</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-google-pixel-fold-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Google Pixel Fold Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/leading-light-and-dark-shades-in-tech-world/"><u>Leading Light and Dark Shades in Tech World</u></a></li>
-<li><a href="https://techtrends.techidaily.com/live-streaming-made-easy-discover-the-power-of-manycam-webcam-software/"><u>Live Streaming Made Easy: Discover the Power of ManyCam Webcam Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-unknown-with-facebook-headlines/"><u>Navigating the Unknown with Facebook Headlines</u></a></li>
-<li><a href="https://facebook.techidaily.com/shield-your-identity-silent-posting-tactics/"><u>Shield Your Identity: Silent Posting Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-gatherings-of-freelance-professionals/"><u>Top 5 Gatherings of Freelance Professionals</u></a></li>
-<li><a href="https://facebook.techidaily.com/unblocking-recovering-lost-facebook-credentials/"><u>Unblocking: Recovering Lost Facebook Credentials</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-directs-the-social-media-empire-now/"><u>Who Directs the Social Media Empire Now?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-unplugging-makes-you-happier-and-healthier/"><u>Why Unplugging Makes You Happier and Healthier</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-imagination-to-life-self-animated-artistry-for-2024/"><u>[New] Bring Imagination to Life Self-Animated Artistry for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-decoding-the-mechanics-a-deep-dive-into-webcam-tech/"><u>[Updated] In 2024, Decoding the Mechanics A Deep Dive Into Webcam Tech</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-whatsapp-web-for-laptops-setting-up-remote-video-calls-step-by-step/"><u>2024 Approved WhatsApp Web for Laptops Setting Up Remote Video Calls Step by Step</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/compact-wonder-the-theta-sc2s-portable-vr-journey/"><u>Compact Wonder: The Theta SC2's Portable VR Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144841416-facebooks-vision-for-virtual-reality-the-call-for-10k-developers/"><u>Facebook's Vision for Virtual Reality: The Call for 10K Developers.</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-resuscitate-a-non-responsive-facebook-profile/"><u>How to Resuscitate a Non-Responsive Facebook Profile</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-successfully-fix-problems-with-configuring-your-windows-updates/"><u>How to Successfully Fix Problems with Configuring Your Windows Updates</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/leveraging-snap-functions-boosting-virtual-interaction-during-meets/"><u>Leveraging Snap Functions Boosting Virtual Interaction During Meets</u></a></li>
+<li><a href="https://facebook.techidaily.com/minimizing-visibility-of-post-endorsements/"><u>Minimizing Visibility of Post Endorsements</u></a></li>
+<li><a href="https://facebook.techidaily.com/monetize-masterfully-unveiling-5-innovative-earning-ideas-on-ig-and-fb/"><u>Monetize Masterfully: Unveiling 5 Innovative Earning Ideas on IG and FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/reflecting-on-2022s-biggest-tech-gaffes/"><u>Reflecting on 2022'S Biggest Tech Gaffes</u></a></li>
+<li><a href="https://extra-support.techidaily.com/resolving-common-windows-11-photo-app-problems-for-2024/"><u>Resolving Common Windows 11 Photo App Problems for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-for-correcting-gtfo-crash-issues/"><u>Troubleshooting Tips for Correcting GTFO Crash Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-verified-status-on-meta-us-platform/"><u>Unlock Verified Status on Meta US Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-past-connections-discovering-friends-timelines/"><u>Unveiling Past Connections: Discovering Friends' Timelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-the-endless-scroll-might-be-more-than-just-an-inconvenience-on-facebook/"><u>Why the 'Endless Scroll' Might Be More Than Just an Inconvenience on Facebook</u></a></li>
 </ul></div>
 

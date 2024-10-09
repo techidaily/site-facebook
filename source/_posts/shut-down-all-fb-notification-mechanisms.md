@@ -1,7 +1,7 @@
 ---
 title: Shut Down All FB Notification Mechanisms
-date: 2024-09-14T20:13:26.071Z
-updated: 2024-09-21T18:09:36.888Z
+date: 2024-10-05T03:14:14.806Z
+updated: 2024-10-08T17:21:52.108Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/ef833586db2eca1205112d6a13248317068108373
 
  Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Less Stress
 
  Work, family time, and financial responsibilities can get so tiresome that people need some time away from everything. In such a scenario, a simple notification with some news or message can ruin your mood.
@@ -39,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/ef833586db2eca1205112d6a13248317068108373
  Let’s face it—we run to grab our mobile phone the second its screen brightens for a notification. This can be really distracting if you’re trying to work or study.
 
  By stopping Facebook notifications on your mobile and desktop, it is possible to concentrate on the task at hand.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Healthy Lifestyle
 
@@ -52,6 +66,13 @@ thumbnail: https://thmb.techidaily.com/ef833586db2eca1205112d6a13248317068108373
 
 Users can block notifications from their desktops and mobile devices.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Blocking Mobile Notifications From Facebook
 
  First, let’s talk about blocking Facebook notifications from your mobile device. Since our phones are always at hand, it can be hard to avoid the notifications coming in.
@@ -60,23 +81,9 @@ Users can block notifications from their desktops and mobile devices.
 
 ![Go to Facebook settings and privacy mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-settings-and-privacy-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Tap Facebook notifications on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Tap-Facebook-notifications-on-mobile.jpg)
 
 ![What notifications you receive on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/What-notifications-you-receive.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Mute Facebook Push notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Mute-Facebook-Push-notifications.jpg)
 
@@ -99,10 +106,10 @@ Close
 ![Facebook-app-notification-in-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-app-notification-in-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Turn-off-Facebook-notifications-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-mobile.jpg)
@@ -129,10 +136,10 @@ Close
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 7. Click on the activity you wish to change the settings of. It opens different notification options that you can change.
@@ -140,14 +147,14 @@ Close
 ![Turn off Facebook notifications on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-desktop.jpg)
 9. Close the app, and the notifications won't appear on your taskbar.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  You can use the same method to block notifications using a Chromebook and the browser version of Facebook on mobile.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Focus on Your Tasks By Blocking Facebook Notifications
 
@@ -172,5 +179,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/updated-ideal-6-networks-for-thriving-business-ventures/"><u>[Updated] Ideal 6 Networks for Thriving Business Ventures</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-perfect-photos-effortless-best-10-screenshot-sticker-enhancers-for-smartphones/"><u>[Updated] In 2024, Perfect Photos, Effortless Best 10 Screenshot-Sticker Enhancers for Smartphones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-reestablishing-iphone-x-trust-restoring-biometric-lock/"><u>[Updated] In 2024, Reestablishing iPhone X Trust Restoring Biometric Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-ties-with-facebook-via-android-platform/"><u>Cut Ties with Facebook via Android Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-scope-of-facebooks-support-system/"><u>Discovering the Scope of Facebook's Support System</u></a></li>
+<li><a href="https://facebook.techidaily.com/erase-all-fb-activity-notices-effectively/"><u>Erase All Fb Activity Notices Effectively</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723341724260-experience-the-ultimate-sound-of-turtle-beachs-atlas-air-headphones-comfort-meets-acoustic-excellence/"><u>Experience the Ultimate Sound of Turtle Beach's Atlas Air Headphones – Comfort Meets Acoustic Excellence!</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-samsung-galaxy-a14-4g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Samsung Galaxy A14 4G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/how-to-craft-contagious-instagram-visuals/"><u>How to Craft Contagious Instagram Visuals</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-pinnacle-community-standards-on-youtube/"><u>In 2024, Pinnacle Community Standards on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-interaction-facebooks-enriched-auditory-experience/"><u>Innovating Interaction: Facebook’s Enriched Auditory Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/kensuns-compact-and-durable-tire-inflator-an-expert-product-evaluation/"><u>Kensun's Compact & Durable Tire Inflator - An Expert Product Evaluation</u></a></li>
+<li><a href="https://windows11.techidaily.com/resurrect-corrupted-files-win-11s-zip-fix-guide/"><u>Resurrect Corrupted Files: Win 11'S ZIP Fix Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-of-chat-app-usage-without-a-facebook-account/"><u>Secrets of Chat App Usage without a Facebook Account</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/share-smart-techniques-for-youtube-playlist-dispersal-for-2024/"><u>Share Smart Techniques for YouTube Playlist Dispersal for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-for-singles-deciphering-new-facebook-features/"><u>Social Networking for Singles: Deciphering New Facebook Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-enterprise-friendly-social-networks-today/"><u>Top 5 Enterprise-Friendly Social Networks Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-career-potential-the-power-of-facebook-engagement/"><u>Unlock Career Potential: The Power of Facebook Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-privacy-why-delete-facebook-watch-logs/"><u>Unlocking Privacy: Why Delete Facebook Watch Logs?</u></a></li>
+</ul></div>
 

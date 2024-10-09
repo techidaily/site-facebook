@@ -1,7 +1,7 @@
 ---
 title: "Fortify Your Pages: Adopting Additional Admins"
-date: 2024-09-14T16:48:56.807Z
-updated: 2024-09-21T17:15:01.373Z
+date: 2024-10-07T23:06:35.295Z
+updated: 2024-10-09T02:46:56.087Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ You actually have five roles to choose from on a Facebook page:
 
  If you are using Facebook in your desktop browser, follow these steps to make someone an admin on your page...
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Go to Your Facebook Page
 
  Sign in to Facebook and open the page that needs a new admin. On the**Manage Page** menu, you’ll see lots of options, a first indication of how much power and freedom you have as the page’s manager.
@@ -56,6 +63,13 @@ You actually have five roles to choose from on a Facebook page:
 
 ![Manage Page Tools on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/manage-page-tools-on-facebook.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Click on Settings
 
  Once in the**Settings** tab, you’ll find loads of other ways to change how the page performs, from letting visitors share and comment on your posts to censoring profanity and connecting Instagram and WhatsApp.
@@ -63,6 +77,13 @@ You actually have five roles to choose from on a Facebook page:
  In terms of how to make someone an admin on your Facebook page, you need to visit the**Page roles** tab on the**Page settings** menu.
 
 ![Page Settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/page-settings-on-facebook.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Click on Page Roles
 
@@ -81,17 +102,16 @@ You actually have five roles to choose from on a Facebook page:
 ![Setting Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/setting-page-roles-on-facebook.png)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Edit an Admin’s Page Role to Remove Them
@@ -101,13 +121,6 @@ You actually have five roles to choose from on a Facebook page:
  This opens a window where you can change their role or delete them completely from your team. To add someone else as an admin, just go through Facebook’s role assigning process again.
 
 ![Existing Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/existing-page-roles-on-facebook.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Add an Admin to Your Facebook Page on Mobile
 
@@ -119,14 +132,14 @@ Android and iOS platforms differ slightly as well.
 
 ![Facebook Page Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-page-settings.png)
 
-![Facebook Add Person to Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-add-person-to-page.png)
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Facebook Add Person to Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-add-person-to-page.png)
 
 ![Facebook Choose Role for Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-choose-role-for-person.png)
 
@@ -157,5 +170,18 @@ The app usually asks for your password to reach the final steps.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://blog-min.techidaily.com/qtmp4-movavi/"><u>網路直接無限制轉換QT到MP4 - 使用Movavi影片編輯工具</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-emails-ever-obsolete/"><u>Are Emails Ever Obsolete?</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-your-digital-footprint-with-multiple-app-login-through-facebook/"><u>Dissecting Your Digital Footprint with Multiple App Login Through Facebook</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/free-luts-showcase-10-standouts-with-direct-downloads-for-2024/"><u>Free LUTs Showcase 10 Standouts with Direct Downloads for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/goats-and-cryptos-zuckerbergs-unique-choice-for-a-pet/"><u>Goats and Cryptos? Zuckerberg’s Unique Choice for a Pet.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-it-feasible-to-extend-my-notebooks-existing-memory/"><u>Is It Feasible to Extend My Notebook's Existing Memory?</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-notifications-track-vanished-screenshots/"><u>Messenger Notifications: Track Vanished Screenshots</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-next-generation-arrives-introducing-the-latest-smartphones-from-samsung/"><u>The Next Generation Arrives: Introducing the Latest Smartphones From Samsung</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/top-18-4k-camcorders-for-2024/"><u>Top 18 4K Camcorders for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-activating-the-facebook-shield/"><u>Understanding and Activating the Facebook Shield</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-samsung-galaxy-m34-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Samsung Galaxy M34 Phone Network-Ready</u></a></li>
+</ul></div>
 

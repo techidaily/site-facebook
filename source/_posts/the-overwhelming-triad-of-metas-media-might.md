@@ -1,7 +1,7 @@
 ---
 title: The Overwhelming Triad of Meta's Media Might
-date: 2024-09-20T19:43:16.988Z
-updated: 2024-09-21T18:49:11.409Z
+date: 2024-10-07T01:04:23.397Z
+updated: 2024-10-08T22:42:37.709Z
 tags:
   - facebook
 categories:
@@ -44,9 +44,23 @@ thumbnail: https://thmb.techidaily.com/0911d971631dfd9a70ce54df48c6542f0fb3a0ed0
 
  Because Meta has dominated social media so exhaustively, we are stuck in a vicious cycle every time the company messes up. First, we get outraged. Then we become disappointed that there's nothing we can do about it. And finally, we resign to the fact that we really have nowhere else to go. It's a complete entrapment. Meta's monopoly is so exhaustive that we are literally left with no other option.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Meta Wields Too Much Power
 
 ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  With great monopoly comes great power. Meta's powers are enormous. Only a few private companies can measure up to its global influence. The company controls some of the world's most important digital communication tools. With over a quarter of the world's population using their apps, Meta holds a rare power over how the world communicates.
 
@@ -84,22 +98,29 @@ Not convinced?
 
 ![Screenshot_20211223-204847](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204847.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
 
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
  You might be surprised just how much information Meta is getting on you.
 
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the[New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Stay Conscious of Meta's Influence
 
@@ -122,5 +143,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-expert-tips-for-harnessing-the-power-of-top-9-free-youtube-makers/"><u>[New] 2024 Approved Expert Tips for Harnessing the Power of Top 9 Free YouTube Makers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-quick-start-setting-up-and-using-obs-on-a-mac-computer/"><u>[New] 2024 Approved Quick Start Setting Up and Using OBS on a Mac Computer</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/eading-audio-visual-artists-collaborating-photos-for-2024/"><u>[New] Leading Audio-Visual Artists Collaborating Photos for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-peeking-into-apeaksofts-2023-screen-recording-features/"><u>[Updated] Peeking Into Apeaksoft’s 2023 Screen Recording Features</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-unlock-your-storytelling-potential-for-2024/"><u>[Updated] Unlock Your Storytelling Potential for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-a38-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from A38</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-which-facebook-device-benefits-you-most/"><u>Deciphering Which Facebook Device Benefits You Most</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exploring-the-magic-behind-color-grading-with-luts-for-2024/"><u>Exploring the Magic Behind Color Grading with LUTs for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-tracking-you-heres-how-to-stop-it/"><u>Facebook Is Tracking You! Here's How to Stop It</u></a></li>
+<li><a href="https://facebook.techidaily.com/majority-shun-apples-in-app-tracking/"><u>Majority Shun Apple's In-App Tracking</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-oppo-reno-11-pro-5g-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Oppo Reno 11 Pro 5G Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/pivotal-platform-policies-strategically-managing-your-online-collectives-on-facebook/"><u>Pivotal Platform Policies: Strategically Managing Your Online Collectives on Facebook</u></a></li>
+<li><a href="https://win-forum.techidaily.com/topos-9-elegantes-para-optimizacion-de-imagenes-la-lista-ultima-2024/"><u>Topos 9 Elegantes Para Optimización De Imágenes: La Lista Ultima - 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-mail-service-safety-with-two-factor-authentication-techniques/"><u>Transforming Mail Service Safety with Two-Factor Authentication Techniques</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Secure Personal Space with Facebook Memory Blocking
-date: 2024-09-20T17:27:13.176Z
-updated: 2024-09-21T20:11:14.729Z
+date: 2024-10-04T01:52:29.669Z
+updated: 2024-10-08T22:04:17.559Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,19 @@ thumbnail: https://thmb.techidaily.com/ffb0273089dad909d1970227a2adf2a6505fbce5d
 
  As Meyer pointed out, there is an algorithm failing here, but there is also a human failing. The human failing was that Facebook pushed this to users without giving them a way to opt-out. But the social site has since introduced ways to do this.
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Block People in Facebook's 'On This Day'
 
 ![Screenshot of Memories on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/memories-home-facebook.jpg)
@@ -52,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/ffb0273089dad909d1970227a2adf2a6505fbce5d
 
  That's it, memories associated with that person won't show up in Facebook Memories anymore.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Block Dates or Date Ranges in Facebook Memories
 
 ![Screenshot Memories on Facebook hide date ranges](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/date-ranges.jpg)
@@ -65,16 +85,16 @@ thumbnail: https://thmb.techidaily.com/ffb0273089dad909d1970227a2adf2a6505fbce5d
 
  That's it, memories from that particular date range won't show up.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Turn Off Facebook Memories Notifications
 
 ![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can[get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
 
@@ -87,10 +107,10 @@ thumbnail: https://thmb.techidaily.com/ffb0273089dad909d1970227a2adf2a6505fbce5d
  If there are memories you would like to share however, click the Share button under your memories and show them to people. Remember, you don't need to share them publicly, Facebook's[Facebook's photo privacy options](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) let you select the audience.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Learn to Live with Your Past
@@ -110,5 +130,20 @@ thumbnail: https://thmb.techidaily.com/ffb0273089dad909d1970227a2adf2a6505fbce5d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-a-step-by-step-approach-to-mastering-360-video-edits-in-premiere-pro/"><u>[New] A Step-by-Step Approach to Mastering 360° Video Edits in Premiere Pro</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-chase-laughter-and-tears-on-instagram-with-these-10-feeds-for-2024/"><u>[New] Chase Laughter & Tears on Instagram with These 10 Feeds for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-top-5-ps2-emulation-apps-for-android-devices/"><u>[Updated] 2024 Approved Top 5 PS2 Emulation Apps for Android Devices</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-redefining-your-twitter-vibe-with-dynamic-video-thumbnails/"><u>[Updated] In 2024, Redefining Your Twitter Vibe with Dynamic Video Thumbnails</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-perfect-pals-and-plotlines-the-10-best-family-flicks/"><u>2024 Approved Perfect Pals and Plotlines The 10 Best Family Flicks</u></a></li>
+<li><a href="https://win-able.techidaily.com/best-ways-to-resolve-continuous-street-fighter-6-freezes-and-crashes-on-your-computer-guide/"><u>Best Ways to Resolve Continuous Street Fighter 6 Freezes and Crashes on Your Computer (Guide)</u></a></li>
+<li><a href="https://facebook.techidaily.com/earnings-mechanisms-on-social-grids/"><u>Earnings Mechanisms on Social Grids</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-a-different-hue-switching-facebook-themes/"><u>Embrace a Different Hue: Switching Facebook Themes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-pathway-to-visual-storytelling-through-gifs/"><u>In 2024, The Pathway to Visual Storytelling Through GIFs</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-passage-navigating-loved-ones-facebook-after-death-process/"><u>Safe Passage: Navigating Loved Ones' Facebook After Death Process</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unraveling-the-fabric-of-augmented-realities/"><u>Unraveling the Fabric of Augmented Realities</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unveiling-the-secrets-of-xstream-studios-a-complete-review/"><u>Unveiling the Secrets of XStream Studios - A Complete Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtualitys-next-step-defining-the-metaverse/"><u>Virtuality's Next Step: Defining the Metaverse</u></a></li>
+</ul></div>
 

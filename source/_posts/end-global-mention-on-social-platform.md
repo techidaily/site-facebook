@@ -1,7 +1,7 @@
 ---
 title: End Global Mention on Social Platform
-date: 2024-09-18T18:29:21.850Z
-updated: 2024-09-21T22:40:01.583Z
+date: 2024-10-06T01:06:34.809Z
+updated: 2024-10-08T18:47:24.486Z
 tags:
   - facebook
 categories:
@@ -43,6 +43,13 @@ Close
 
  That's all there is to it. You'll no longer receive notifications when someone uses the @everyone tag in a group post. You can further customize the notifications you receive on the**Notifications Settings** page to receive even fewer notifications.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why You Should Turn Off @everyone Tags on Facebook
 
  The @everyone feature is popular with Facebook groups because it allows admins to alert members of important news or events. It's also helpful when admins want to[start a discussion with everyone in a Facebook group](https://www.makeuseof.com/how-to-mention-all-members-facebook-group/) .
@@ -50,6 +57,13 @@ Close
  However, this feature can be abused by some admins. It can be used to send out unsolicited notifications, which can be disruptive and even spammy if done too often.
 
  Turning off the Batch @everyone mentions toggle can be a great way to take control of your notifications and stop getting spammed by overzealous group admins. You will still get notified of personal tags, so you won't miss any vital conversations.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Take Control of Your Facebook Tags
 
@@ -70,12 +84,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-tips-for-masterminding-memelore-on-9gag/"><u>[New] Expert Tips for Masterminding Memelore on 9GAG</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-streaming-success-latest-updates-on-earnings-guidelines/"><u>[Updated] 2024 Approved Streaming Success Latest Updates on Earnings Guidelines</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-professional-approaches-for-logging-youtube-streams/"><u>[Updated] In 2024, Professional Approaches for Logging YouTube Streams</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-inshot-vs-other-editors-a-comprehensive-analysis/"><u>[Updated] InShot vs Other Editors A Comprehensive Analysis</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unlocking-the-potential-of-multi-stream-video-on-microsoft-edge/"><u>[Updated] Unlocking the Potential of Multi-Stream Video on Microsoft Edge</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-sound-spectrum-listing-websites-for-legal-ringtones/"><u>In 2024, Sound Spectrum Listing Websites for Legal Ringtones</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-page-disconnection-on-facebook/"><u>Mastering Page Disconnection on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/off-the-grid-the-changes-in-quitting-social-networks/"><u>Off the Grid: The Changes in Quitting Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/pinpointing-unfriended-individuals-on-facebook/"><u>Pinpointing Unfriended Individuals on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/slowdown-at-social-media-governing-body-for-trump/"><u>Slowdown at Social Media Governing Body for Trump</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-next-evolution-exploring-facebooks-vr-frontier/"><u>The Next Evolution: Exploring Facebook's VR Frontier</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/troubleshooting-intel-optane-driver-updates-on-windows-a-comprehensive-guide-with-faqs-covered/"><u>Troubleshooting Intel Optane Driver Updates on Windows - A Comprehensive Guide with FAQs Covered</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-content-distribution-via-hashtags-on-a-popular-social-media-site-like-facebook/"><u>Understanding Content Distribution via Hashtags on a Popular Social Media Site Like Facebook</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Motorola G24 Power | Dr.fone</u></a></li>
+</ul></div>
 

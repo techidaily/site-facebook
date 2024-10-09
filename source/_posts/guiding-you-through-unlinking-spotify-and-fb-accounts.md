@@ -1,7 +1,7 @@
 ---
 title: Guiding You Through Unlinking Spotify and FB Accounts
-date: 2024-09-29T16:37:12.718Z
-updated: 2024-10-03T19:07:19.369Z
+date: 2024-10-08T03:06:47.737Z
+updated: 2024-10-09T00:33:10.701Z
 tags:
   - facebook
 categories:
@@ -36,13 +36,6 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Spotify password reset web page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/spotify-password-reset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Disconnect Your Spotify Account From Facebook
 
  Now, if you go to Spotify across the mobile app, web app, and desktop app, you'll notice that it doesn't mention anywhere about unlinking Facebook from your account. You can affect Facebook's permissions in terms of the data it receives from your Spotify account, but nothing about unlinking.
@@ -50,10 +43,10 @@ Here's what you should do to unlink Facebook from Spotify.
  So instead, you have to unlink Spotify directly from Facebook, and you can do it on the web app and the Facebook app.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Disconnect Your Spotify Account From Facebook (Desktop)
@@ -79,19 +72,19 @@ Here's what you should do to unlink Facebook from Spotify.
 ![The Settings and Privacy menu on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9601.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![The Permissions section of Settings on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9602.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![The Spotify connection tile on Facebook iOS app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9603.jpg)
@@ -99,6 +92,13 @@ Here's what you should do to unlink Facebook from Spotify.
 Close
 
  Whichever platform you do this on, you should have successfully unlinked Facebook from your Spotify account and can now log in without it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Enjoy Spotify Without Facebook
 
@@ -121,19 +121,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-exclusive-action-cam-colorization-top-15-luts-to-enhance-cinematography/"><u>[Updated] In 2024, Exclusive Action Cam Colorization Top 15 LUTs to Enhance Cinematography</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-the-essential-iphone-screen-recording-manual-for-2024/"><u>[Updated] The Essential iPhone Screen Recording Manual for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-quick-fix-efficient-use-of-the-eraser-in-psx/"><u>2024 Approved The Quick Fix Efficient Use of the Eraser in PSX</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-the-pros-and-cons-of-clearstreamlete-eclipse-antenna-excellent-power-in-minimalist-style/"><u>Discovering the Pros and Cons of ClearStream'lete Eclipse Antenna: Excellent Power in Minimalist Style</u></a></li>
-<li><a href="https://facebook.techidaily.com/enabling-discreet-exchange-of-ideas-on-facebook/"><u>Enabling Discreet Exchange of Ideas on Facebook</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-360-camera-rigsmounts-for-vr-video-production/"><u>In 2024, 360 Camera Rigs/Mounts for VR Video Production</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-a-comprerant-guide-to-enhanced-captioning-on-instagram-platforms/"><u>In 2024, A Compreran't Guide to Enhanced Captioning on Instagram Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/insider-reveals-privacy-concerns-exposed-on-fb/"><u>Insider Reveals, Privacy Concerns Exposed on FB</u></a></li>
-<li><a href="https://driver-install.techidaily.com/intel-management-engine-installer/"><u>Intel Management Engine Installer</u></a></li>
-<li><a href="https://facebook.techidaily.com/making-your-mark-a-guide-to-stellar-social-media-profiles/"><u>Making Your Mark: A Guide to Stellar Social Media Profiles</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-facebook-job-listing/"><u>Step-by-Step Guide: Facebook Job Listing</u></a></li>
-<li><a href="https://facebook.techidaily.com/twin-streaming-wnbas-social-media-revolution/"><u>Twin Streaming: WNBA's Social Media Revolution</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/unlimited-free-face-creation-top-online-resources-for-2024/"><u>Unlimited Free Face Creation Top Online Resources for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-amazon-is-suing-the-admins-of-10000-facebook-groups/"><u>Why Amazon Is Suing the Admins of 10,000 Facebook Groups</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-learn-about-free-recording-software-today/"><u>[New] 2024 Approved Learn About Free Recording Software Today</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-strategic-showcasing-10-essential-tips-to-improve-your-instagram-highlights/"><u>[Updated] 2024 Approved Strategic Showcasing 10 Essential Tips to Improve Your Instagram Highlights</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevating-your-instagram-presence-a-guide-to-smart-hashtag-use-for-2024/"><u>[Updated] Elevating Your Instagram Presence A Guide to Smart Hashtag Use for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-future-of-human-computer-conversation-systems/"><u>2024 Approved The Future of Human-Computer Conversation Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-alert-detect-and-deter-uninvited-social-media-access/"><u>Be Alert: Detect and Deter Uninvited Social Media Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/biden-leads-with-social-media-in-covid-19-vax-drive/"><u>Biden Leads with Social Media in COVID-19 Vax Drive</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-society-through-social-medias-top-7-impacts/"><u>Boosting Society Through Social Media's Top 7 Impacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-facebook-image-interpretation/"><u>Comprehensive Guide to Facebook Image Interpretation</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-overcoming-top-11-social-media-snags-on-fb/"><u>Comprehensive Guide to Overcoming Top 11 Social Media Snags on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/confirm-your-credibility-with-us-metacredentials/"><u>Confirm Your Credibility with U.S. Metacredentials</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/dynamic-film-transformation-premium-15-color-correction-tools-for-gopro/"><u>Dynamic Film Transformation Premium 15 Color Correction Tools for GOPRO</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effective-strategies-for-integrating-gpt-and-dalle-3-prompts-in-enhancing-midjourney-ai-results/"><u>Effective Strategies for Integrating GPT and DALL·E 3 Prompts in Enhancing MidJourney AI Results</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-world-of-prompt-engineering-in-ai-for-sustainable-careers/"><u>Exploring the World of Prompt Engineering in AI for Sustainable Careers</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151405205-facebooks-judicial-committee-prepares-to-rule-on-trump-exclusion/"><u>Facebook's Judicial Committee Prepares to Rule on Trump Exclusion.</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/jpg-to-mp4-video-conversion-top-online-and-desktop-tools/"><u>JPG to MP4 Video Conversion: Top Online & Desktop Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150810152-seamless-music-selection-spotify-miniplayer-on-fb/"><u>Seamless Music Selection - Spotify Miniplayer on FB!</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Future Social Spaces: The Potential of Facebook's Metaverse"
-date: 2024-09-19T17:54:21.088Z
-updated: 2024-09-21T20:12:19.835Z
+date: 2024-10-05T01:03:34.541Z
+updated: 2024-10-08T20:51:17.099Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/8e847bcd25e1bb956f9c0d5ed5c3e1ee40f922a7b
 
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Data Brokering and Targeted Ads
 
  When tech giants like Facebook create incredibly granular customer profiles, they don’t just have an idea of how you behave as a person. Companies can also understand, predict, and create trends for whole segments of a population.
@@ -58,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/8e847bcd25e1bb956f9c0d5ed5c3e1ee40f922a7b
 
  When it comes to social media, it’s important to remember that access to information on a curated newsfeed always comes with an agenda, even if it wasn’t the original intention.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Security Risks of Granular Data
 
  With this in mind, it’s necessary to understand that most governments still don’t have the full grasp of the social, economic, and psychological impact the internet has on people. In many ways, this lack of tech knowledge by governing bodies puts regulation on the back seat.
@@ -73,9 +73,23 @@ thumbnail: https://thmb.techidaily.com/8e847bcd25e1bb956f9c0d5ed5c3e1ee40f922a7b
 
  Because the regulation often inhibits progress, many would tout the lag of regulation around technology to be a boon. However, the regulation also works to protect end-users from exploitation, especially due to ignorance. For this reason, many data brokers think more about profit than they do about protecting their consumers.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## A Battle Among Giants
 
 ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In 2021, Apple declared war on Facebook and other tech giants by significantly reducing their ad revenue by enabling consumers to opt out of data collection from third-party providers. While this doesn’t mean that no one has access to your data, it did significantly hamper the effectiveness of ads everywhere, especially Facebook.
 
@@ -84,10 +98,16 @@ thumbnail: https://thmb.techidaily.com/8e847bcd25e1bb956f9c0d5ed5c3e1ee40f922a7b
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Perils of Being an Ordinary Person
@@ -111,5 +131,16 @@ thumbnail: https://thmb.techidaily.com/8e847bcd25e1bb956f9c0d5ed5c3e1ee40f922a7b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-create-captivating-music-reaction-videos-top-10-tips/"><u>[Updated] 2024 Approved How to Create Captivating Music Reaction Videos - Top 10 Tips</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-can-you-grow-without-buying-views-in-2024/"><u>[Updated] How Can You Grow Without Buying Views, In 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-depth-cost-analysis-for-new-podcasters/"><u>2024 Approved In-Depth Cost Analysis for New Podcasters</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/accelerating-sound-on-phones-best-free-apps-for-2024/"><u>Accelerating Sound on Phones Best Free Apps for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-out-facebooks-covert-user-countdown/"><u>Digging Out Facebook's Covert User Countdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/sick-of-politics-3-powerful-ways-to-clean-up-facebook/"><u>Sick of Politics? 3 Powerful Ways to Clean Up Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealth-mode-for-your-social-media-pics/"><u>Stealth Mode for Your Social Media Pics</u></a></li>
+<li><a href="https://driver-install.techidaily.com/swift-system-enhancement-efficient-update-of-acer-drivers-for-win10/"><u>Swift System Enhancement: Efficient Update of Acer Drivers for Win10</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-hidden-content-retrieving-lost-facebook-posts/"><u>Unlocking Hidden Content: Retrieving Lost Facebook Posts</u></a></li>
+</ul></div>
 

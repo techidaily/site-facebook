@@ -1,7 +1,7 @@
 ---
 title: Facebook’s Daily Archive – How to Explore & Enjoy Memories
-date: 2024-09-21T00:38:45.201Z
-updated: 2024-09-22T00:23:23.724Z
+date: 2024-10-03T05:29:10.445Z
+updated: 2024-10-08T23:08:27.018Z
 tags:
   - facebook
 categories:
@@ -54,6 +54,13 @@ To share a memory from the On This Day feature:
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
 
 Close
@@ -73,19 +80,25 @@ You can save your On This Day posts with the following steps:
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -100,18 +113,18 @@ To access your saved memories:
 
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
  To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can[download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
 
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. See What Your Friends Shared on Your Wall
 
@@ -133,6 +146,13 @@ Close
 
 Close
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Set the Time Duration of Memories
 
  In this section, users get to pick the number of times they receive the On This Day notification.
@@ -143,24 +163,18 @@ Close
 
  Select**None** if you do not want to use the On This Day feature of Facebook. You will not be notified about your memories in that case.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Hide Memories
 
  Facebook enables its users to hide memories from specific people. Under**Hide Memories** in the**Memory Settings** section, tap**People** and search for the names you do not wish to see memories from.
 
  Also, if you do not like to recall a specific date, tap**Dates** \> Mark**Start** and**End** dates > Tap**Save** . Facebook will stop showing you memories from those specific dates.
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Stay in Touch With Your Past Using Facebook’s On This Day Feature
 
@@ -181,5 +195,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/updated-exploring-the-possibilities-of-360-degree-fisheye-images/"><u>[Updated] Exploring the Possibilities of 360-Degree Fisheye Images</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pro-video-enhancers-for-social-media-platforms/"><u>2024 Approved Pro Video Enhancers for Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-hotspots-for-gaining-freelance-assignments/"><u>5 Hotspots for Gaining Freelance Assignments</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-contacts-files-on-spark-10c-by-fonelab-android-recover-contacts/"><u>Complete guide for recovering contacts files on Spark 10C.</u></a></li>
+<li><a href="https://facebook.techidaily.com/frugal-yet-effective-top-5-costless-methods-for-social-media-scheduling/"><u>Frugal Yet Effective: Top 5 Costless Methods for Social Media Scheduling</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-simplifying-visual-sharing-in-ms-teams-with-snap-camera/"><u>In 2024, Simplifying Visual Sharing in MS Teams with Snap Camera</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-snapshot-strategies-maintaining-consistent-snapstreaks/"><u>In 2024, Snapshot Strategies Maintaining Consistent Snapstreaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-tiktok-losing-its-ground-can-facebooks-reel-offer-relief/"><u>Is TikTok Losing Its Ground? Can Facebook's Reel Offer Relief?</u></a></li>
+<li><a href="https://facebook.techidaily.com/monitoring-tools-spotting-intruder-usage-quickly/"><u>Monitoring Tools: Spotting Intruder Usage Quickly</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/msi-z3t-pro-motherboard-driver-package-free-download-to-optimize-system-speed/"><u>MSI Z3t Pro Motherboard Driver Package – Free Download to Optimize System Speed</u></a></li>
+<li><a href="https://driver-download.techidaily.com/seamless-connectivity-with-newest-tp-link-tusb400-bluetooth-adapter-drivers-download-here/"><u>Seamless Connectivity with Newest TP-Link TUSB400 Bluetooth Adapter Drivers – Download Here</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solving-amazon-prime-video-malfunctions-for-uninterrupted-watching/"><u>Solving Amazon Prime Video Malfunctions for Uninterrupted Watching</u></a></li>
+</ul></div>
 

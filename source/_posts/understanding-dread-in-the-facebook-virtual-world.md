@@ -1,7 +1,7 @@
 ---
 title: Understanding Dread in the Facebook Virtual World
-date: 2024-09-17T17:35:48.805Z
-updated: 2024-09-21T17:16:12.962Z
+date: 2024-10-03T03:42:52.946Z
+updated: 2024-10-09T03:22:58.683Z
 tags:
   - facebook
 categories:
@@ -44,9 +44,23 @@ thumbnail: https://thmb.techidaily.com/3df80ed0f3ba1234db4e3fe9b6b618140f5c8ecbd
 
  Here are some reasons why a Meta-led metaverse is something we should be worried about.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. A Privacy Nightmare
 
 ![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Facebook's poor privacy practices](http://www.makeuseof.com/tag/facebook-security-privacy-nightmare/) have always been a subject of concern. One of the most high-profile examples was the Cambridge Analytica scandal of 2018.
 
@@ -59,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/3df80ed0f3ba1234db4e3fe9b6b618140f5c8ecbd
  In addition to the data Meta already has on you, the company will get even more private information about you through MR devices. Meta might be able to estimate your physical characteristics, how you walk, talk, and think, and more intrusive details on your persona.
 
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. Another Digital Addiction for Gen Z
 
@@ -76,16 +97,16 @@ thumbnail: https://thmb.techidaily.com/3df80ed0f3ba1234db4e3fe9b6b618140f5c8ecbd
 
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
@@ -96,13 +117,6 @@ thumbnail: https://thmb.techidaily.com/3df80ed0f3ba1234db4e3fe9b6b618140f5c8ecbd
  A Meta-dominated metaverse could also spell the death of independent innovation within the metaverse. Meta's business strategies are rooted in scaling and muscling out competitors. It acquired WhatsApp and Instagram, copied Snapchat features (after failing to buy it), and[launched Instagram Reels](https://www.makeuseof.com/tag/what-is-instagram-reels/) to put a check on TikTok.
 
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Meta's Vision of the Metaverse
 
@@ -125,5 +139,18 @@ thumbnail: https://thmb.techidaily.com/3df80ed0f3ba1234db4e3fe9b6b618140f5c8ecbd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-creating-captivating-content-for-instagram/"><u>[New] In 2024, Creating Captivating Content for Instagram</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-premiere-pro-vanishing-art/"><u>[Updated] 2024 Approved Premiere Pro Vanishing Art</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-self-portrait-journey-how-to-setup-your-facebook-cover-with-an-avatar-backdrop/"><u>A Self-Portrait Journey: How to Setup Your Facebook Cover with an Avatar Backdrop</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-metaverse-facebooks-revolution-in-digital-spaces/"><u>Decoding the Metaverse: Facebook's Revolution in Digital Spaces</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-honor-x9a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-effectively-use-sleep-mode-for-an-optimal-messenger-kids-experience/"><u>How to Effectively Use Sleep Mode for an Optimal Messenger Kids Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-page-blocking-unwanted-profiles/"><u>Mastering Facebook Page: Blocking Unwanted Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sphere-shift-understanding-the-metamate-identity/"><u>Social Sphere Shift: Understanding the Metamate Identity</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-benefits-and-limitations-a-comprehensive-review-of-webex-as-an-online-meeting-platform/"><u>The Benefits and Limitations: A Comprehensive Review of Webex as an Online Meeting Platform</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/trouble-with-your-logitech-g230-mic-heres-how-to-make-it-work-again/"><u>Trouble with Your Logitech G230 Mic? Here's How to Make It Work Again</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/xbox-one-audio-woes-discover-how-to-restore-headset-functionality-today/"><u>Xbox One Audio Woes? Discover How to Restore Headset Functionality Today</u></a></li>
+</ul></div>
 

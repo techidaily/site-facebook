@@ -1,7 +1,7 @@
 ---
 title: Restore Past Connections After Facebook Ban
-date: 2024-09-17T00:32:23.325Z
-updated: 2024-09-22T00:36:36.092Z
+date: 2024-10-01T22:58:11.627Z
+updated: 2024-10-08T19:09:39.877Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb11
 
  Use the right option for the situation and you shouldn't have to worry about unblocking and refriending people in the future. Follow our[guide to Facebook blocking](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) for more help.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Refriend Someone on Facebook After Unblocking Them
 
  Once you've unblocked someone using the instructions above, simply visit their profile on Facebook. You can get to it by searching with the bar at the top, clicking on a tag containing their name, or similar methods.
@@ -49,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb11
  On their profile page, you should see an**Add Friend** button as normal.
 
 ![Facebook Send Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/Facebook-Send-Friend-Request.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Click that to send them a new friend request; if they accept, you'll be friends again. However, keep in mind that if you've had a bad interaction with this person, they may delete your request. If they do, Facebook provides the**Mark as Spam** option to them, which prevents you from sending more friend requests.
 
@@ -59,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb11
  They may also have their Facebook account set to only accept friend requests from friends of friends. In this case, you'll need to have at least one mutual friend to refriend them. Check out[the unwritten rules regarding Facebook friend requests](https://www.makeuseof.com/tag/facebook-friend-requests-unwritten-rules-hidden-settings-weekly-facebook-tips/) for more help.
 
  Finally, there's also a chance that your former friend deactivated their Facebook account while you had them blocked. To find out if this is the case, try asking a mutual friend if they're still friends with the person you had blocked. If they aren't using Facebook anymore, you'll have to connect with them elsewhere.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Refriending on Facebook Is Possible, Even After Blocking
 
@@ -79,12 +100,26 @@ thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb11
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-audio-liberation-from-youtube-three-safe-methods/"><u>[New] 2024 Approved Audio Liberation From YouTube Three Safe Methods</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-complete-lowdown-on-io-image-recording-software/"><u>[New] In 2024, The Complete Lowdown on IO Image Recording Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-peeking-at-high-resolution-display-innovation-the-dell-p2715q-review/"><u>[Updated] Peeking at High-Resolution Display Innovation - The Dell P2715Q Review</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-today-to-tomorrow-the-drone-evolution-story/"><u>2024 Approved From Today to Tomorrow The Drone Evolution Story</u></a></li>
+<li><a href="https://win11.techidaily.com/discover-how-to-master-win11-photo-artistry-with-slide-show-crafting-and-flaw-correction/"><u>Discover How to Master Win11 Photo Artistry with Slide Show Crafting & Flaw Correction</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-freefire-hashtags-to-skyrocket-video-views-on-youtube/"><u>Essential FreeFire Hashtags to Skyrocket Video Views on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/fresh-laws-on-the-horizon-for-americas-big-tech-firms/"><u>Fresh Laws on the Horizon for America's Big Tech Firms</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-samsung-galaxy-a05s-lock-screen-password-by-drfone-android/"><u>How to Reset your Samsung Galaxy A05s Lock Screen Password</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-11-drfone-by-drfone-ios/"><u>How to Unlock iPhone 11? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrated-content-management-sharing-instagram-reels-with-fb-friends/"><u>Integrated Content Management: Sharing Instagram Reels with FB Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-a-blow-for-facebooks-data-collection/"><u>IOS 14.5: A Blow for Facebook's Data Collection?</u></a></li>
+<li><a href="https://facebook.techidaily.com/method-to-muffle-facebook-history-footprints/"><u>Method to Muffle Facebook History Footprints</u></a></li>
+<li><a href="https://facebook.techidaily.com/reflect-before-you-leave-a-trail-with-facebook-history/"><u>Reflect Before You Leave a Trail with Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-set-up-a-supportive-social-space-on-fb/"><u>Strategies to Set Up a Supportive Social Space on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/tap-into-newly-viewed-vids-on-social-network/"><u>Tap Into Newly Viewed Vids on Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-escalated-usage-in-the-face-of-facebook-blackout/"><u>Telegram's Escalated Usage in the Face of Facebook Blackout</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-leading-titans-of-social-media-interaction-facebook-twitter-instagram-and-youtube/"><u>The Leading Titans of Social Media Interaction: Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mystery-of-shadowbanning-definition-and-prevention/"><u>The Mystery of Shadowbanning: Definition & Prevention</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-ipad-video-editor-rankings-top-5-contenders/"><u>Updated In 2024, IPad Video Editor Rankings Top 5 Contenders</u></a></li>
+</ul></div>
 

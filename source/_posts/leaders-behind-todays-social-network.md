@@ -1,7 +1,7 @@
 ---
 title: Leaders Behind Today’s Social Network
-date: 2024-09-18T17:02:17.674Z
-updated: 2024-09-21T18:01:16.779Z
+date: 2024-10-03T16:43:38.791Z
+updated: 2024-10-08T16:47:02.333Z
 tags:
   - facebook
 categories:
@@ -34,9 +34,23 @@ thumbnail: https://thmb.techidaily.com/dcd52c68a0261301dc49a434565ff933798115ab3
 
  Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Who Owns Facebook Now?
 
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
 
@@ -48,6 +62,13 @@ thumbnail: https://thmb.techidaily.com/dcd52c68a0261301dc49a434565ff933798115ab3
 
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Did Facebook Rebrand to Meta?
 
  Facebook's rebrand happened because the brand outgrew the identity that it had come to be known for.
@@ -57,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/dcd52c68a0261301dc49a434565ff933798115ab3
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Zuckerberg Still (Largely) Owns Meta
@@ -82,5 +103,19 @@ thumbnail: https://thmb.techidaily.com/dcd52c68a0261301dc49a434565ff933798115ab3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-master-recorders-impact-on-efficient-screen-capturing/"><u>[Updated] 2024 Approved Master Recorder's Impact on Efficient Screen Capturing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-cutting-edge-optics-top-recommendations-for-best-4k-cinematography/"><u>2024 Approved Cutting-Edge Optics Top Recommendations for Best 4K Cinematography</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/mp4ogv-movavi-mp4ogv/"><u>在線無成本MP4至OGV導向影片改版服務 - Movavi MP4/OGV切換工具</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-glimpse-into-the-machinery-of-facebooks-policy-framework/"><u>A Glimpse Into the Machinery of Facebook's Policy Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-gaming-the-true-scope-of-the-metaverse/"><u>Beyond Gaming: The True Scope of the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-sunset-mastering-the-art-of-permanent-deletion-on-facebook/"><u>Digital Sunset: Mastering the Art of Permanent Deletion on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-web-locating-profile-and-group-links/"><u>Exploring Facebook's Web: Locating Profile & Group Links</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/fb-story-downloads-decoded-a-quick-and-convenient-guide-for-all-users/"><u>FB Story Downloads Decoded A Quick & Convenient Guide for All Users</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/stream-smart-explore-the-best-hitachi-4k-uhd-televisions-featuring-integrated-roku/"><u>Stream Smart: Explore the Best Hitachi 4K UHD Televisions Featuring Integrated Roku</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-tips-fixing-the-infamous-haldll-error-on-windows-11-10-8-and-vista/"><u>Troubleshooting Tips: Fixing the Infamous hal.dll Error on Windows 11, 10, 8, and Vista</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-take-your-videos-to-the-next-level-top-10-fcpx-plugins-you-need-now-for-2024/"><u>Updated Take Your Videos to the Next Level Top 10 FCPX Plugins You Need Now for 2024</u></a></li>
+</ul></div>
 

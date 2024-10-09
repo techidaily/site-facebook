@@ -1,7 +1,7 @@
 ---
 title: "Misinfo in Pandemic: Influencer Role Examined"
-date: 2024-09-19T19:21:05.790Z
-updated: 2024-09-22T00:00:31.658Z
+date: 2024-10-04T16:34:53.561Z
+updated: 2024-10-09T00:17:38.245Z
 tags:
   - facebook
 categories:
@@ -45,6 +45,19 @@ But what if, in reality, there are only 12 prime suspects?
 
  Even though the Disinformation Dozen has reportedly violated the Facebook, Instagram, and Twitter terms of service agreements on numerous occasions, only three of the 12 influencers have been removed from just one platform.
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Are Social Media Platforms Doing Enough to Fight Misinformation?
 
  The CCDH says that the best way to combat the spread of harmful information is to de-platform repeat offenders that have big audiences. Have Facebook, Instagram, and Twitter been doing that? Well... kind of.
@@ -70,12 +83,21 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/he-ultimate-guide-to-pre-recorded-yoga-on-youtube/"><u>[New] The Ultimate Guide to Pre-Recorded Yoga on YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-fbx-studio-guide-for-gamers-for-2024/"><u>[Updated] FBX Studio Guide for Gamers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-altered-connotations-on-facebook-pages/"><u>Demystifying the Altered Connotations on Facebook Pages</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-aesthetics-building-collage-content-online/"><u>Effortless Aesthetics: Building Collage Content Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-tips-on-choosing-the-perfect-fb-profile-photo/"><u>Expert Tips on Choosing the Perfect Fb Profile Photo</u></a></li>
+<li><a href="https://win-premium.techidaily.com/exploring-how-microsoft-windows-technology-is-driving-innovations-for-next-gen-hybrid-working-spaces-zdnet/"><u>Exploring How Microsoft Windows Technology Is Driving Innovations for Next-Gen Hybrid Working Spaces | ZDNet</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-13-mini-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 13 mini without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-step-by-step-guide-to-navigating-io-screener/"><u>In 2024, Step-by-Step Guide to Navigating IO Screener</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharing-instagram-reels-on-facebook-a-step-by-step-guide/"><u>Sharing Instagram Reels on Facebook: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explosion-of-telegrams-user-base-post-facebook-halt/"><u>The Explosion of Telegram's User Base Post-Facebook Halt</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-game-changing-reasons-mastery-of-chatgpt-in-your-career/"><u>The Game-Changing Reasons: Mastery of ChatGPT in Your Career</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-process-cleaning-up-your-social-sphere/"><u>Unveiling the Process: Cleaning up Your Social Sphere</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/windows-11-guide-deactivating-advanced-audio-features-for-a-cleaner-sound-experience/"><u>Windows 11 Guide: Deactivating Advanced Audio Features for a Cleaner Sound Experience</u></a></li>
+</ul></div>
 

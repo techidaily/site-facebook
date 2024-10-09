@@ -1,7 +1,7 @@
 ---
 title: "National Perspective on Platforms: Harmful Trends Prevail"
-date: 2024-09-28T18:11:09.279Z
-updated: 2024-10-03T16:03:12.559Z
+date: 2024-10-05T23:11:05.849Z
+updated: 2024-10-08T20:38:10.643Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Does Social Media Affect Your Life?
@@ -62,19 +62,19 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
@@ -100,18 +100,24 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-find-the-right-aspect-ratio-for-your-video/"><u>[New] 2024 Approved Find The Right Aspect Ratio For Your Video</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-best-for-videos-vlc-or-mx/"><u>[Updated] Best for Videos VLC or MX?</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-top-group-video-chat-apps-for-video-conferences-and-meetings/"><u>2024 Approved Top Group Video Chat Apps For Video Conferences and Meetings</u></a></li>
-<li><a href="https://facebook.techidaily.com/engage-with-ease-listen-to-spotifys-mini-player-on-facebook/"><u>Engage with Ease: Listen to Spotify’s Mini Player on Facebook</u></a></li>
-<li><a href="https://win-blog.techidaily.com/error-code-80cu70057-in-call-of-duty-black-ops-cold-war-masterful-fix-steps/"><u>Error Code 80Cu70057 in Call of Duty Black Ops Cold War - Masterful Fix Steps</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-users-turn-to-expensive-oculus-for-account-restoration/"><u>Facebook Users Turn to Expensive Oculus for Account Restoration</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-to-do-if-your-iphone-xs-has-bad-esn-or-blacklisted-imei-by-drfone-ios/"><u>In 2024, What to do if your iPhone XS has bad ESN or blacklisted IMEI?</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-your-digital-footprint-under-wraps/"><u>Keeping Your Digital Footprint Under Wraps</u></a></li>
-<li><a href="https://facebook.techidaily.com/outwitting-virtual-vultures-top-schemes-to-dodge/"><u>Outwitting Virtual Vultures: Top Schemes to Dodge</u></a></li>
-<li><a href="https://common-error.techidaily.com/searching-for-hidden-tool-to-manage-screen-contrast/"><u>Searching for Hidden Tool to Manage Screen Contrast</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-security-a-comparative-analysis/"><u>Social Media Security: A Comparative Analysis</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unleash-the-full-potential-of-your-chatbot-mastering-effective-prompt-crafting/"><u>Unleash the Full Potential of Your ChatBot: Mastering Effective Prompt Crafting</u></a></li>
-<li><a href="https://facebook.techidaily.com/world-class-uk-teams-banish-instagram-and-youtube-over-hate-speech/"><u>World-Class UK Teams Banish Instagram and YouTube over Hate Speech</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-understanding-facebooks-chat-language-through-its-blue-signature-marker/"><u>[Updated] 2024 Approved Understanding Facebook's Chat Language Through Its Blue Signature Marker</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-streamline-your-gaming-memories-easy-minecraft-recordings-on-macs/"><u>2024 Approved Streamline Your Gaming Memories Easy Minecraft Recordings on Macs</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/5-solutions-for-poco-c50-unlock-without-password-by-drfone-android/"><u>5 Solutions For Poco C50 Unlock Without Password</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-quick-guide-to-samsung-galaxy-a14-5g-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Samsung Galaxy A14 5G FRP Bypass Instantly</u></a></li>
+<li><a href="https://facebook.techidaily.com/cease-unwanted-general-member-tagging/"><u>Cease Unwanted General Member Tagging</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/cyberpower-cp685avrg-unit-assessment-essential-uninterruptable-power-supply-successfully-performs/"><u>Cyberpower CP685AVRG Unit Assessment: Essential Uninterruptable Power Supply Successfully Performs</u></a></li>
+<li><a href="https://facebook.techidaily.com/developing-your-graphical-social-identity/"><u>Developing Your Graphical Social Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-purpose-of-instagrams-unplugged-message/"><u>Discovering the Purpose of Instagram's 'Unplugged' Message</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-tactics-for-obtaining-a-refund-on-fb/"><u>Effective Tactics for Obtaining a Refund on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/hold-your-breath-for-oculus-quest-iii-schedule-change/"><u>Hold Your Breath for Oculus Quest III Schedule Change</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-exploring-no-cost-cam-screens-reviews-and-high-alternatives/"><u>In 2024, Exploring No-Cost Cam Screens Reviews & High Alternatives</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-mastering-video-posts-on-tiktok-your-guide-for-mac-and-pc-users/"><u>In 2024, Mastering Video Posts on TikTok Your Guide for MAC & PC Users</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-polishing-video-journeys-inshots-segmentation-excellence/"><u>In 2024, Polishing Video Journeys Inshot's Segmentation Excellence</u></a></li>
+<li><a href="https://win-able.techidaily.com/navigating-through-geforce-experience-hiccups-effective-solutions-for-error-free-gaming-enhancements/"><u>Navigating Through GeForce Experience Hiccups: Effective Solutions for Error-Free Gaming Enhancements</u></a></li>
+<li><a href="https://facebook.techidaily.com/opting-out-the-emerging-consensus-among-iphone-owners/"><u>Opting Out: The Emerging Consensus Among iPhone Owners</u></a></li>
+<li><a href="https://facebook.techidaily.com/rumors-swirl-over-facebooks-ethical-commerce-stance/"><u>Rumors Swirl Over Facebook's Ethical Commerce Stance</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-squashed-3-foreign-lands-without-it/"><u>Social Media Squashed: 3 Foreign Lands Without It</u></a></li>
+<li><a href="https://facebook.techidaily.com/trouble-brewing-as-trust-fades-in-giant-internet-firms/"><u>Trouble Brewing as Trust Fades in Giant Internet Firms</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/unlimited-gaming-recordability-the-best-free-apps-of-2024/"><u>Unlimited Gaming Recordability The Best Free Apps of 2024</u></a></li>
 </ul></div>
 

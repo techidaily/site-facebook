@@ -1,7 +1,7 @@
 ---
 title: "End of the Line: Germany Blocks Facebook's WhatsApp Data Collection Efforts"
-date: 2024-09-20T20:23:19.760Z
-updated: 2024-09-21T17:25:54.880Z
+date: 2024-10-06T21:41:05.349Z
+updated: 2024-10-08T23:05:58.564Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/d2538de48c05d03d5115f0d6f4197d40a4705facf
 
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Where Does Facebook Go From Here?
 
  Facebook already delayed the rollout of WhatsApp's new privacy policy after an online backlash against it. With the policy once again being called into question, perhaps it would be wise for Facebook to reconsider WhatsApp's new privacy policy.
@@ -47,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/d2538de48c05d03d5115f0d6f4197d40a4705facf
  However, in an email statement, WhatsApp called Caspar's claims "wrong", and made it clear that the ban won't stop the rollout of the new privacy policy. Continuing, the platform said that the actions the German regulator is taking are "based on a fundamental misunderstanding" of the purpose of the new policy.
 
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
 
@@ -67,18 +81,26 @@ thumbnail: https://thmb.techidaily.com/d2538de48c05d03d5115f0d6f4197d40a4705facf
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-best-overlay-strategies-for-videographers/"><u>[New] Best Overlay Strategies for Videographers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-pickup-vs-the-rest-which-dominates-in-androids-photo-editing-field/"><u>[New] In 2024, PickUp Vs. The Rest Which Dominates in Android's Photo Editing Field</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-inside-the-world-of-facetune-a-comprehensive-photography-tool/"><u>[Updated] In 2024, Inside the World of Facetune A Comprehensive Photography Tool</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-mp3-mastery-in-motion-prime-10-youtube-to-mp3-transformers/"><u>[Updated] In 2024, MP3 Mastery in Motion Prime 10 YouTube to Mp3 Transformers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/best-cross-platform-dvd-decode-tools-for-seamless-media-playback-on-pc-and-mac/"><u>Best Cross-Platform DVD Decode Tools for Seamless Media Playback on PC & Mac</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-fixes-to-solve-apple-iphone-13-randomly-asking-for-apple-id-password-drfone-by-drfone-ios/"><u>Complete Fixes To Solve Apple iPhone 13 Randomly Asking for Apple ID Password | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-vivo-y77t-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Vivo Y77t Device SIM</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-video-journey-beginnings-start-with-windows-11s-movie-maker/"><u>In 2024, Video Journey Beginnings Start with Windows 11'S Movie Maker</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-solutions-for-its-most-frequent-glitches/"><u>Mastering FaceBook: Solutions for Its Most Frequent Glitches</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-image-making-in-a-profile/"><u>Mastering the Art of Image Making in a Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/mission-complete-when-will-e2ee-roll-out-in-fb-messenger/"><u>Mission Complete? When Will E2EE Roll Out in FB Messenger?</u></a></li>
+<li><a href="https://media-tips.techidaily.com/save-big-on-ultra-hd-viewing-why-opting-for-4k-player-applications-over-hardware-is-a-smart-choice/"><u>Save Big on Ultra HD Viewing: Why Opting for 4K Player Applications Over Hardware Is a Smart Choice!</u></a></li>
+<li><a href="https://facebook.techidaily.com/shifting-social-identity-new-name-same-network-on-fb/"><u>Shifting Social Identity: New Name, Same Network on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-communication-adding-users-to-socialize-on-messenger/"><u>Streamline Communication: Adding Users to Socialize on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-triad-of-friend-recognition-master-three-efficient-tagging-techniques-on-facebook/"><u>The Triad of Friend Recognition: Master Three Efficient Tagging Techniques on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfriend-the-unknowns-a-guide-to-safe-social-media-conduct/"><u>Unfriend the Unknowns: A Guide to Safe Social Media Conduct</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-facebooks-operational-secrets-with-a-new-hub/"><u>Unraveling Facebook's Operational Secrets with a New Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-a-facebook-cloning-scam/"><u>What Is a Facebook Cloning Scam?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/your-voice-their-favorite-show-solo-podcasting-101/"><u>Your Voice, Their Favorite Show Solo Podcasting 101</u></a></li>
+</ul></div>
 

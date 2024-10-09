@@ -1,7 +1,7 @@
 ---
 title: Reviving Frozen Facebook Alerts Display
-date: 2024-09-28T23:12:16.548Z
-updated: 2024-10-03T17:54:56.807Z
+date: 2024-10-04T01:51:10.543Z
+updated: 2024-10-09T00:44:47.722Z
 tags:
   - facebook
 categories:
@@ -54,6 +54,13 @@ Close
 
 ![iPhone Focus Mode](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-Focus-Mode.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![iPhone Do Not Disturb mode](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-Do-Not-Disturb-mode.JPG)
 
 Close
@@ -66,6 +73,13 @@ Close
 
 Close
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Check Notification Permissions for Facebook
 
  Another reason you may not be receiving alerts is that you might not have granted the required permissions after logging into Facebook the first time. To allow Facebook to send notifications on your iOS device:
@@ -77,13 +91,6 @@ Close
 ![Searching Facebook in iPhone settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Searching-Facebook-in-iPhone-settings.JPG)
 
 ![Facebook notifications in iPhone settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Faacebook-notifications-in-iPhone-settings.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Allow notifications for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Allow-notifications-for-Facebook.JPG)
 
@@ -100,15 +107,28 @@ For an Android device, follow these steps:
 ![Android Software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/android-software-update.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook Storage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/facebook-storage.jpg)
 
 ![Turn on Show notifications option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/turn-on-show-notifications-option.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -143,13 +163,6 @@ On Android, follow these steps to enable Facebook notifications:
 
 ![Facebook menu on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/01-facebook-menu-page-with-settings-android.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Settings an privacy page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/02-facebook-settings-privacy-page-android.jpg)
 
 ![Notification settings on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/03-facebook-notification-settings-android.jpg)
@@ -161,13 +174,6 @@ Close
  If you're not receiving Facebook notifications because you've disabled the app from sending them in your phone's Settings app, you'll see a**Turn On Push Notifications** option instead when you tap**Push** . Tap**Turn On Push Notifications,** and on the next page, allow Facebook to send notifications.
 
  The Facebook app will load all the pending alerts as soon as you refresh.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Restart Your Phone
 
@@ -195,13 +201,6 @@ To clear your Facebook cache on your iOS device:
 
 ![Offload Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Offload-Facebook-app.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
 
 If you have an Android device, follow these steps:
@@ -216,13 +215,6 @@ If you have an Android device, follow these steps:
 
 ![Clear cache of Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/clear-cache-of-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
 
 ## 7\. Update the Facebook App on iOS or Android
@@ -233,22 +225,23 @@ Close
 
 ![Open Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/open-facebook-1.JPG)
 
-![Open Facebook on Android device](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/open-facebook-on-android-device.jpg)
-
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+![Open Facebook on Android device](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/open-facebook-on-android-device.jpg)
+
 Close
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. Update Your Android or iPhone
 
@@ -269,10 +262,10 @@ Close
 ![Tap Download and install](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/tap-download-and-install.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Software is up to date](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/software-is-up-to-date.jpg)
@@ -284,6 +277,13 @@ Close
 ## 9\. Reinstall Facebook on Your Smartphone
 
  If nothing seems to work, try reinstalling the app. Delete Facebook from your phone. When you reinstall Facebook, the fresh start may resolve the problem of notifications not loading.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fix Your Facebook Notifications With Simple Steps
 
@@ -308,24 +308,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-full-assessment-razers-hd-webcam/"><u>[New] Full Assessment Razer's HD Webcam</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-no-fuss-streaming-technique-for-podcasts/"><u>[New] No-Fuss Streaming Technique for Podcasts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-perfect-your-youtube-clips-essential-editing-techniques-unveiled/"><u>[Updated] In 2024, Perfect Your YouTube Clips Essential Editing Techniques Unveiled</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-perfecting-gameplay-capture-on-the-newest-windows-11/"><u>[Updated] In 2024, Perfecting Gameplay Capture on the Newest Windows 11</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-smooth-privacy-tear-away-facial-features/"><u>[Updated] Smooth Privacy Tear Away Facial Features</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-breaking-down-instagrams-per-video-ceiling/"><u>2024 Approved Breaking Down Instagram's Per-Video Ceiling</u></a></li>
-<li><a href="https://games-able.techidaily.com/breathing-life-back-into-your-gps-reclaiming-signal-in-pokemon-go-adventures/"><u>Breathing Life Back Into Your GPS: Reclaiming Signal in Pokémon Go Adventures</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/elevate-instagram-creativity-with-musical-elements-for-2024/"><u>Elevate Instagram Creativity with Musical Elements for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-shatters-boundaries-in-online-shopping-fridays/"><u>Facebook Shatters Boundaries in Online Shopping Fridays</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-pause-to-playback-a-new-era-for-instagram/"><u>From Pause to Playback: A New Era for Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-restricted-to-total-freedom-the-impact-of-facebooks-oculus-go-decision/"><u>From Restricted to Total Freedom: The Impact of Facebook's Oculus Go Decision</u></a></li>
-<li><a href="https://facebook.techidaily.com/hack-alert-recognize-these-9-social-network-dangers/"><u>Hack Alert! Recognize These 9 Social Network Dangers</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Realme 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-your-privacy-on-display-in-every-push-notification/"><u>Is Your Privacy on Display in Every Push Notification?</u></a></li>
-<li><a href="https://facebook.techidaily.com/national-survey-on-sns-more-harm-than-good/"><u>National Survey on SNS: More Harm Than Good</u></a></li>
-<li><a href="https://facebook.techidaily.com/reasons-for-the-decline-social-vs-forum-dynamics/"><u>Reasons for the Decline: Social vs Forum Dynamics</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-pages-with-strategic-admins/"><u>Securing Your Pages with Strategic Admins</u></a></li>
-<li><a href="https://facebook.techidaily.com/ungrouping-techniques-on-the-social-giant-facebook/"><u>Ungrouping Techniques on the Social Giant, Facebook</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/vtech-kidizoom-duo-camera-review-endless-entertainment/"><u>VTech Kidizoom Duo Camera Review: Endless Entertainment</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollowing-the-strategy-behind-instagrams-take-away-campaign/"><u>'Unfollowing': The Strategy Behind Instagram’s Take-Away Campaign</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-decoding-the-visual-language-of-live-videos-on-youtube/"><u>[New] 2024 Approved Decoding the Visual Language of Live Videos on YouTube</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-android-masterclass-the-leading-15-simulations/"><u>[New] In 2024, Android Masterclass The Leading 15 Simulations</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-step-by-step-to-smiles-and-laughter-your-snapchat-gif-tutorial/"><u>[New] In 2024, Step-by-Step to Smiles and Laughter Your Snapchat Gif Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-compelling-reasons-to-unfollow-the-online-world/"><u>5 Compelling Reasons to Unfollow the Online World</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-reasons-why-you-should-delete-facebook/"><u>6 Reasons Why You Should Delete Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/a-blueprint-for-success-three-core-writing-principles-for-compelling-fb-ad-content-for-2024/"><u>A Blueprint for Success Three Core Writing Principles for Compelling FB Ad Content for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-user-exodus-from-the-worlds-largest-network/"><u>Deciphering the User Exodus From the World’s Largest Network</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-free-download-for-amds-gpio-interface-software/"><u>Get the Latest [Free Download] for AMD's GPIO Interface Software</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-call-back-a-private-number/"><u>How to Call Back a Private Number</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-sony-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Sony</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-fb-memories-private-exclusion-tactics/"><u>Keeping Your FB Memories Private: Exclusion Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/president-challenges-social-media-policies-in-courtroom-fights/"><u>President Challenges Social Media Policies in Courtroom Fights</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-ambiguity-a-close-look-at-vague-storytelling/"><u>Social Media Ambiguity: A Close Look at Vague Storytelling</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/strategic-content-creation-four-slip-ups-to-skip-in-chatgpt/"><u>Strategic Content Creation: Four Slip-Ups to Skip in ChatGPT</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/toms-tech-insights-and-computer-reviews/"><u>Tom's Tech Insights and Computer Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/unintended-sharing-of-phone-numbers-on-fb-chat/"><u>Unintended Sharing of Phone Numbers on FB Chat?</u></a></li>
 </ul></div>
 

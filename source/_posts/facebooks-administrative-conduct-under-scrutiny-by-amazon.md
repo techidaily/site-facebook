@@ -1,7 +1,7 @@
 ---
 title: Facebook’s Administrative Conduct Under Scrutiny by Amazon
-date: 2024-09-27T16:12:33.421Z
-updated: 2024-10-03T23:15:55.061Z
+date: 2024-10-07T19:34:49.989Z
+updated: 2024-10-08T20:21:42.914Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Amazon Filed the Case
@@ -50,16 +50,10 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
@@ -71,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -88,10 +82,10 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -115,19 +109,15 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-premier-index-affordable-flexible-image-sources/"><u>[New] Premier Index Affordable, Flexible Image Sources</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-best-youtube-livestreaming-screen-recorders/"><u>[Updated] Best YouTube Livestreaming Screen Recorders</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-from-playtime-to-peak-time-top-gaming-women-in-the-digital-space-for-2024/"><u>[Updated] From Playtime to Peak Time Top Gaming Women in the Digital Space for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-the-art-of-precision-introducing-an-obs-countdown-timer/"><u>[Updated] In 2024, The Art of Precision Introducing an OBS Countdown Timer</u></a></li>
-<li><a href="https://driver-download.techidaily.com/enhance-your-typing-with-the-official-steelseries-engine-control-for-keyboards-available-for-free-download/"><u>Enhance Your Typing with the Official SteelSeries Engine Control for Keyboards, Available for Free Download</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-benefits-and-risks-of-using-facebook-for-other-app-access/"><u>Exploring the Benefits and Risks of Using Facebook for Other App Access</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-asmr-magic-made-simple-high-performance-at-economic-prices/"><u>In 2024, ASMR Magic Made Simple High Performance at Economic Prices</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-xiaomi-redmi-k70-pro-easily-by-drfone-android/"><u>In 2024, How To Unlock a Xiaomi Redmi K70 Pro Easily?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-xiaomi-13-ultra-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Xiaomi 13 Ultra Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/quick-guide-to-solving-common-social-media-troubles-on-fb/"><u>Quick Guide to Solving Common Social Media Troubles on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/stay-tuned-why-twitters-user-tracking-supports-uninterrupted-live-streams/"><u>Stay Tuned: Why Twitter’s User Tracking Supports Uninterrupted Live Streams</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/step-by-step-guide-to-seamlessly-replace-backgrounds-on-instagram-for-2024/"><u>Step-by-Step Guide to Seamlessly Replace Backgrounds on Instagram for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-image-mashups-on-instagram-and-facebook/"><u>The Art of Image Mashups on Instagram & Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unveiling-of-oculus-gos-true-potential-through-facebooks-move/"><u>The Unveiling of Oculus Go's True Potential Through Facebook's Move</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-top-6-virtual-reality-vr-gloves-to-check-out/"><u>[New] Top 6 Virtual Reality (VR) Gloves to Check Out</u></a></li>
+<li><a href="https://facebook.techidaily.com/adjusting-your-little-ones-online-presence-in-messenger/"><u>Adjusting Your Little One’s Online Presence in Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/anonymous-advantages-avoid-privacy-popping-apps/"><u>Anonymous Advantages: Avoid Privacy-Popping Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-newsfeed-post-fb-existence/"><u>Beyond the Newsfeed: Post-FB Existence</u></a></li>
+<li><a href="https://facebook.techidaily.com/complete-uncoupling-from-the-social-media-giant/"><u>Complete Uncoupling From the Social Media Giant</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-realme-11-proplus-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Realme 11 Pro+ to iPhone | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Vivo V29 Pro | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-honor-x7b-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Honor X7b Phones with/without a PC</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-overcoming-the-hurdles-of-windows-update-1903/"><u>Troubleshooting Guide: Overcoming the Hurdles of Windows Update 1903</u></a></li>
 </ul></div>
 

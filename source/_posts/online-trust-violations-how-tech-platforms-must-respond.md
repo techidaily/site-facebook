@@ -1,7 +1,7 @@
 ---
 title: "Online Trust Violations: How Tech Platforms Must Respond"
-date: 2024-09-17T18:56:28.039Z
-updated: 2024-09-21T17:51:19.671Z
+date: 2024-10-05T00:05:48.817Z
+updated: 2024-10-08T22:44:53.935Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ Adam French, Consumer Rights Expert at Which?, said:
 
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Response by Facebook and Google
 
 Facebook and Google both responded to the report by Which?
@@ -69,12 +76,21 @@ Facebook further stated:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-how-to-activate-a-virtual-grid-display-for-meet-users/"><u>[New] In 2024, How to Activate a Virtual Grid Display for Meet Users</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-game-captures-of-lol-tips-for-three-techniques/"><u>[New] In-Game Captures of LOL Tips for Three Techniques</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-trivia-trek-exploring-yts-fascinating-figures-and-infographics/"><u>[Updated] Trivia Trek Exploring YT's Fascinating Figures and Infographics</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-unlocking-stream-efficiency-obs-meets-zoom/"><u>2024 Approved Unlocking Stream Efficiency OBS Meets Zoom</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/driving-into-the-future-mercedes-voice-and-chatgpt-fusion/"><u>Driving Into the Future: Mercedes Voice & ChatGPT Fusion</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-tecno-pova-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-your-facebook-followers/"><u>Identifying Your Facebook Followers</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-microphone-windows-11-recording-guide/"><u>Mastering Microphone: Windows 11 Recording Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-to-a-safer-online-experience-without-facebook-history/"><u>Navigating to a Safer Online Experience Without Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-connectivitys-surprising-benevolence-7-aspects/"><u>Social Connectivity’s Surprising Benevolence: 7 Aspects</u></a></li>
+<li><a href="https://some-skills.techidaily.com/streamlining-content-sharing-between-pc-and-iphone-for-2024/"><u>Streamlining Content Sharing Between PC and iPhone for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dangers-of-keeping-your-fb-history/"><u>The Hidden Dangers of Keeping Your FB History</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-imperative-for-more-stringent-online-fraud-control-by-tech-firms/"><u>The Imperative for More Stringent Online Fraud Control by Tech Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/upcoming-verdict-from-facebooks-governance-board-on-trump-ban/"><u>Upcoming Verdict From Facebook's Governance Board on Trump Ban</u></a></li>
+</ul></div>
 

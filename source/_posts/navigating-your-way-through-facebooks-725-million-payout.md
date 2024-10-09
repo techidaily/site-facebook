@@ -1,7 +1,7 @@
 ---
 title: Navigating Your Way Through Facebook's $725 Million Payout
-date: 2024-09-14T18:27:52.366Z
-updated: 2024-09-21T18:09:34.693Z
+date: 2024-10-03T22:18:09.089Z
+updated: 2024-10-08T19:59:46.604Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
 
 ![The Facebook settlement homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/wm/2023/04/facebook-settlement-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Fill out the form, ensuring that you add important information, such as the date you deleted your Facebook count if applicable. Be sure to add at least one email address, phone number, and username associated with your Facebook account. If it has been a while since you last logged into your Facebook account and you lost your credentials somewhere along the way, you'll need to[recover your Facebook account](http://www.makeuseof.com/tag/recover-facebook-account-longer-log/) to find your username before filing a claim.
 
  Finally, choose your payment option. You have several options, including:
@@ -51,11 +58,25 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
 
  Do keep in mind[how Zelle scams work](https://www.makeuseof.com/how-zelle-scams-work/) if you choose this payment option. It’s not out of the realm of possibility to suggest that bad actors could send fake emails encouraging you to “claim” your settlement via Zelle between now and when you receive your payout. Be vigilant, and know the[signs of a phishing scam](https://www.makeuseof.com/top-signs-phishing-scams/) .
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Will Your Claim Be Settled?
 
 [The New York Times](https://www.nytimes.com/2023/04/20/business/facebook-settlement-apply.html) reports that users eligible for a cash settlement are assigned approximately one point for every month their Facebook account was activated (but not necessarily active). Even if you didn’t log into your Facebook account for years, as long as you didn't deactivate the account, one month still equals one point.
 
 ![An image of the Facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/wm/2023/04/facebook-homepage.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  After the claim deadline has passed (August 25, 2023), the settlement administrator overseeing the class-action settlement will decide the monetary value of each point. They'll do this by:
 
@@ -66,10 +87,10 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
  This final number will determine the monetary value for each point. The monetary value will then be multiplied by the number of points assigned to each user filing a claim, determining each individual user’s entitled compensation. For example, if one point is worth $1 and you didn't deactivate your Facebook account for the entire 15.5-year timeframe of the lawsuit, you would receive $186.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook May Owe You, but Don’t Expect Life Changing Cash
@@ -91,5 +112,23 @@ thumbnail: https://thmb.techidaily.com/10b343d090bf904bc6bf8fe5ac35deb164bc4c886
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-record-and-share-every-victory-in-obs/"><u>[Updated] 2024 Approved Record & Share Every Victory in OBS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-how-to-convert-youtube-tracks-to-mp3-safely-the-3-best-ways/"><u>[Updated] In 2024, How To Convert YouTube Tracks to MP3 Safely - The 3 Best Ways</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-proven-methods-to-excellence-in-srt-file-design/"><u>[Updated] In 2024, Proven Methods to Excellence in SRT File Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/echoes-of-anonymity-permanently-retiring-from-facebook/"><u>Echoes of Anonymity: Permanently Retiring From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-news-feed-a-new-era-simplified/"><u>Facebook's News Feed: A New Era Simplified</u></a></li>
+<li><a href="https://facebook.techidaily.com/imminent-facebook-upgrade-introducing-reels-and-rooms-to-stories/"><u>Imminent Facebook Upgrade: Introducing Reels and Rooms to Stories</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-captivating-images-mastering-the-art-of-motion-blur-in-ps/"><u>In 2024, Captivating Images Mastering the Art of Motion Blur in PS</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-honor-play-7t-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Honor Play 7T to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-phone-a-covert-marketer-in-disguise-truth-exposed/"><u>Is Your Phone a Covert Marketer in Disguise? Truth Exposed!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigating-the-digital-space-with-ease-via-onestream-platform/"><u>Navigating the Digital Space with Ease via OneStream Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/pause-in-process-facebooks-governing-body-on-trump/"><u>Pause in Process: Facebook's Governing Body on Trump</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/resolving-pc-malfunctions-in-football-manager-2021-expert-tips-for-gamers/"><u>Resolving PC Malfunctions in Football Manager 2021 - Expert Tips for Gamers</u></a></li>
+<li><a href="https://facebook.techidaily.com/speak-stylized-not-bulk-essential-smart-words-for-effective-communication/"><u>Speak Stylized, Not Bulk: Essential SMART Words for Effective Communication</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-itel-s23-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Itel S23? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/the-quick-start-method-for-combining-obs-and-zoom/"><u>The Quick-Start Method for Combining OBS & Zoom</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-privacy-at-risk-detecting-facebook-hacks-early/"><u>Your Privacy at Risk? Detecting Facebook Hacks Early</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facial ID's Downfall? Meta’ Writes the New Chapter for FB
-date: 2024-09-14T18:07:00.256Z
-updated: 2024-09-22T01:12:38.717Z
+date: 2024-10-04T00:19:16.911Z
+updated: 2024-10-08T22:02:10.760Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,23 @@ thumbnail: https://thmb.techidaily.com/6152b7c969d91f2eaae0be3b9bf8b8ec86f6a4683
 
  Related:[How Dark Patterns Mislead You Into Making Bad Privacy Choices](https://www.makeuseof.com/tag/dark-patterns-bad-privacy-choices/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is Meta Disabling Facial Recognition on Facebook?
 
 ![blonde woman taking photo with phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/blonde-woman-pixabay.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The official reason, given in a[Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
 
@@ -55,6 +69,19 @@ thumbnail: https://thmb.techidaily.com/6152b7c969d91f2eaae0be3b9bf8b8ec86f6a4683
  At the time of writing, Meta is battling yet another major controversy after whistleblower, Frances Haugen, released[internal documents dubbed “the Facebook papers”](https://www.makeuseof.com/what-are-facebook-papers/) alleging that Facebook prioritizes profits over truth.
 
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Will Meta's Disabling of Facebook's Facial Recognition Enhance Privacy?
 
@@ -79,18 +106,22 @@ thumbnail: https://thmb.techidaily.com/6152b7c969d91f2eaae0be3b9bf8b8ec86f6a4683
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-superstar-creators-the-highest-paid-ones/"><u>[New] 2024 Approved Superstar Creators The Highest Paid Ones</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-universal-guide-hulu-recording-on-pc-apple-ios-and-android/"><u>[New] In 2024, Universal Guide Hulu Recording on PC, Apple, iOS & Android</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-online-oasis-media-mashup/"><u>[New] Online Oasis Media Mashup</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-shaking-up-the-status-quo-unique-naming-tips-for-filmmakers/"><u>[Updated] 2024 Approved Shaking Up the Status Quo Unique Naming Tips for Filmmakers</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-artfully-crafted-online-ruses/"><u>Avoiding Artfully Crafted Online Ruses</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/effortless-transformation-of-mka-videos-to-avi-format-with-movavis-no-cost-tool/"><u>Effortless Transformation of MKA Videos to AVI Format with Movavi's No-Cost Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-use-of-facebook-in-event-scheduling/"><u>Evaluating the Use of Facebook in Event Scheduling</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-30plus-ways-to-convert-instagram-videos-onto-your-computer-iphone-or-android/"><u>In 2024, 30+ Ways To Convert Instagram Videos Onto Your Computer, iPhone or Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-virtual-reunions-leveraging-your-facebook-portal-tv/"><u>Initiating Virtual Reunions: Leveraging Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-privacy-how-to-avoid-facebooks-stalking/"><u>Reclaim Privacy: How to Avoid Facebook's Stalking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/revolutionizing-analog-playback-the-at-lp60xbt-story/"><u>Revolutionizing Analog Playback: The AT-LP60XBT Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-online-interactions-which-sites/"><u>Safe Online Interactions: Which Sites?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platforms-and-user-emotional-responses/"><u>Social Platforms and User Emotional Responses</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-security-stress-navigating-the-signals-9-warnings-of-account-breach/"><u>Social Security Stress: Navigating the Signals (9 Warnings) of Account Breach</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-the-latest-gadgets-with-toms-electronic-guides/"><u>Unveiling the Latest Gadgets with Tom's Electronic Guides</u></a></li>
+</ul></div>
 

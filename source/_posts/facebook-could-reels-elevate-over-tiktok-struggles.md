@@ -1,7 +1,7 @@
 ---
 title: Facebook, Could Reels Elevate over TikTok Struggles?
-date: 2024-09-20T18:09:26.596Z
-updated: 2024-09-22T00:35:35.146Z
+date: 2024-10-01T23:45:41.166Z
+updated: 2024-10-09T03:14:04.255Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/fd4e779227951f738339902ec6bf865ee57c2e0e8
 
  In less than five years, TikTok has achieved over three million downloads and more than a billion monthly active users. Here is how the platform is causing problems for Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. A Drop in Daily and Monthly Active Users
 
  Facebook experienced a first-ever drop in daily active users as competitors like TikTok gained ground. As reported by[Forbes](https://www.forbes.com/sites/roberthart/2022/02/03/facebook-loses-daily-active-users-for-the-first-time--heres-where-theyre-going/) , roughly half a million users stopped using their accounts on a daily basis.
@@ -55,10 +62,10 @@ thumbnail: https://thmb.techidaily.com/fd4e779227951f738339902ec6bf865ee57c2e0e8
  The decline in Facebook’s engagement level and the subsequent drop in revenue are adding up to a significant plunge in the company’s stock price. Meta, Facebook’s parent company, saw a stock drop of over $200 billion after a dismal quarterly earnings report.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Facebook Plans to Regain Momentum
@@ -70,13 +77,6 @@ thumbnail: https://thmb.techidaily.com/fd4e779227951f738339902ec6bf865ee57c2e0e8
  The problem for Facebook, and the entire Meta family of apps, is that its business is largely based on user engagement and serving ads. So, any service that occupies user time and engagement—such as TikTok—can threaten its growth.
 
  Zuckerberg realizes the growing demand for short-form video content. Following the drop in stock price, he accepted the company is up against an “unprecedented level of competition” from TikTok. He asked Meta employees to focus on Reels, which has had significant success on Instagram.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Can Reels Save Facebook?
 
@@ -103,10 +103,10 @@ thumbnail: https://thmb.techidaily.com/fd4e779227951f738339902ec6bf865ee57c2e0e8
  Some analysts believe that Facebook had underestimated the threat of TikTok by prioritizing other projects, and now it’s too late to win back younger users.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Monetization Issues
@@ -118,10 +118,10 @@ thumbnail: https://thmb.techidaily.com/fd4e779227951f738339902ec6bf865ee57c2e0e8
  Meta is testing ways for creators to monetize their content, including the[Reels Play bonus program](https://www.makeuseof.com/instagram-reels-bonuses/) , but its viability is yet to be seen. The challenge for Facebook is to incorporate less intrusive ads into Reels without impacting user experience.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Reels vs. TikTok: The Final Verdict
@@ -143,5 +143,26 @@ thumbnail: https://thmb.techidaily.com/fd4e779227951f738339902ec6bf865ee57c2e0e8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-flight-dynamics-unveiling-bebops-parrot-capabilities/"><u>[New] In 2024, Flight Dynamics Unveiling Bebop’s Parrot Capabilities</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-mastering-tiktok-a-mac-users-quickstart-list/"><u>[New] In 2024, Mastering TikTok A Mac User's Quickstart List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-breaking-down-the-process-of-adding-fonts-to-ae-projects-for-2024/"><u>[Updated] Breaking Down the Process of Adding Fonts to AE Projects for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/addressing-faulty-alerts-from-windows-10s-shield/"><u>Addressing Faulty Alerts From Windows 10'S Shield</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-brother-business-profit-from-peering/"><u>Big Brother Business: Profit From Peering</u></a></li>
+<li><a href="https://facebook.techidaily.com/breeze-and-boost-rapid-android-app-surges/"><u>Breeze and Boost: Rapid Android App Surges</u></a></li>
+<li><a href="https://facebook.techidaily.com/facing-the-tide-facebook-spends-5-million-to-diversify-from-substacks-authorship-model/"><u>Facing the Tide: Facebook Spends $5 Million to Diversify From Substack's Authorship Model</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-a-full-review-for-itools-virtual-location-and-top-5-alternatives-for-apple-iphone-6s-plusipad-drfone-by-drfone-virtual-ios/"><u>In 2024, A Full Review for iTools Virtual Location and Top 5 Alternatives For Apple iPhone 6s Plus/iPad | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-about-oppo-k11x-frp-bypass-by-drfone-android/"><u>In 2024, About Oppo K11x FRP Bypass</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-16-from-vivo-v29-pro-to-other-android-devices-data-transfer-apps-to-switch-phone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 16 from Vivo V29 Pro to Other Android Devices Data Transfer Apps to Switch Phone Easily | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-apple-iphone-xs-max-without-passcode-easily-by-drfone-ios/"><u>In 2024, Unlock Apple iPhone XS Max Without Passcode Easily</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/navigating-the-ins-and-outs-of-using-chatgpt-for-freelance-writing-tasks/"><u>Navigating the Ins and Outs of Using ChatGPT for Freelance Writing Tasks</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-a-frozen-facebook-profile-step-by-step/"><u>Recovering a Frozen Facebook Profile: Step by Step</u></a></li>
+<li><a href="https://facebook.techidaily.com/revealing-newest-videos-on-social-media-hub/"><u>Revealing Newest Videos on Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-marking-oneself-safe-in-social-media/"><u>Steps to Marking Oneself Safe in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-from-standard-bot-to-metaai/"><u>The Evolution: From Standard Bot to MetaAI</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-facebooks-operations-a-guide-through-the-transparency-center/"><u>Unraveling Facebook's Operations: A Guide Through the Transparency Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/visionaries-earning-vistas-creators-journey-with-metrics-and-money-through-reels/"><u>Visionaries Earning Vistas: Creators' Journey with Metrics & Money Through Reels</u></a></li>
+</ul></div>
 

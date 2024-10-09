@@ -1,7 +1,7 @@
 ---
 title: Proper Method to Disconnect Spotify on Facebook
-date: 2024-09-18T22:20:46.570Z
-updated: 2024-09-21T18:32:07.770Z
+date: 2024-10-07T05:41:52.497Z
+updated: 2024-10-08T22:20:44.697Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Spotify password reset web page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/spotify-password-reset.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Disconnect Your Spotify Account From Facebook
 
  Now, if you go to Spotify across the mobile app, web app, and desktop app, you'll notice that it doesn't mention anywhere about unlinking Facebook from your account. You can affect Facebook's permissions in terms of the data it receives from your Spotify account, but nothing about unlinking.
@@ -53,6 +60,13 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Apps and websites page on the Facebook web app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-apps-websites.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Disconnect Your Spotify Account From Facebook (Mobile)
 
  You can also manage the apps and websites connected to your Facebook. Here's how:
@@ -64,14 +78,14 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Settings and Privacy menu on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9601.jpg)
 
-![The Permissions section of Settings on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9602.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![The Permissions section of Settings on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9602.jpg)
 
 ![The Spotify connection tile on Facebook iOS app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9603.jpg)
 
@@ -80,10 +94,10 @@ Close
  Whichever platform you do this on, you should have successfully unlinked Facebook from your Spotify account and can now log in without it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Enjoy Spotify Without Facebook
@@ -105,5 +119,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-inside-the-core-operations-of-youtubes-content-creators/"><u>[New] 2024 Approved Inside the Core Operations of YouTube’s Content Creators</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-charting-a-course-through-public-domain-landmarks/"><u>[Updated] 2024 Approved Charting a Course Through Public Domain Landmarks</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effortlessly-resolve-no-battery-found-issue-swift-solutions/"><u>Effortlessly Resolve 'No Battery Found' Issue – Swift Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/english-sports-teams-begin-their-boycott-of-social-media/"><u>English Sports Teams Begin Their Boycott of Social Media</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-tips-for-repairing-the-inoperative-mic-on-an-oculus-quest-2-device/"><u>Expert Tips for Repairing the Inoperative Mic on an Oculus Quest 2 Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-calls-for-caution-younger-generations-stepping-back-from-instagram/"><u>Facebook Calls for Caution: Younger Generations Stepping Back From Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-actions-signal-big-changes-for-oculus-go-owners/"><u>Facebook's Actions Signal Big Changes for Oculus Go Owners</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-how-to-make-vimeo-videos/"><u>In 2024, How to Make Vimeo Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-pristine-palette-aligner/"><u>In 2024, Pristine Palette Aligner</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-webm-from-youtube-videos-for-2024/"><u>Mastering WebM From YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-nirvana-discovering-the-top-20-social-sites-and-apps/"><u>Network Nirvana: Discovering the Top 20 Social Sites & Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-evolution-the-maturing-bond-of-fb-and-insta/"><u>Online Evolution: The Maturing Bond of FB and Insta</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/strategies-for-optimal-featured-channels-in-youtubes-algorithm-for-2024/"><u>Strategies for Optimal Featured Channels in YouTube's Algorithm for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-clash-amazon-vs-social-media-group-leaders/"><u>The Clash: Amazon Vs. Social Media Group Leaders</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-importance-of-selectivity-in-facebook-friendships/"><u>The Importance of Selectivity in Facebook Friendships</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-oppo-a1-5g-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Oppo A1 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-impact-of-enabling-facebooks-browsing-archive/"><u>Understanding the Impact of Enabling Facebook’s Browsing Archive</u></a></li>
+</ul></div>
 

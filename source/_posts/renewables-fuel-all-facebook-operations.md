@@ -1,7 +1,7 @@
 ---
 title: Renewables Fuel All Facebook Operations
-date: 2024-09-19T19:22:42.713Z
-updated: 2024-09-21T20:44:28.964Z
+date: 2024-10-07T21:00:50.841Z
+updated: 2024-10-09T03:06:51.509Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,35 @@ thumbnail: https://thmb.techidaily.com/d27bd20369a0206f3a047b7bb4f9e0b9ec6c2aca3
 
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Has Already Set Its Next Environmental Target
 
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
 
@@ -67,18 +93,21 @@ So, things may, finally, be moving in the right direction.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-cutting-edge-camera-technology-for-youtube-stars/"><u>[New] 2024 Approved Cutting-Edge Camera Technology For YouTube Stars</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-googles-enhanced-technique-for-flawless-speech-transcription-for-2024/"><u>[New] Google's Enhanced Technique for Flawless Speech Transcription for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-how-to-begin-your-google-meet-on-devices-in-2024/"><u>[New] How to Begin Your Google Meet on Devices, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-discover-the-leading-tools-for-fb-video-downloads-in-minutes/"><u>2024 Approved Discover the Leading Tools for FB Video Downloads in Minutes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-asus-rog-phone-8-pro-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Asus ROG Phone 8 Pro to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-the-art-of-aerial-broadcasting-a-dji-drone-guide-for-facebook/"><u>In 2024, The Art of Aerial Broadcasting A DJI Drone Guide for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-rolls-out-reel-ads-fb-trials-story-stickers/"><u>Instagram Rolls Out Reel Ads, FB Trials Story Stickers</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-total-digital-detox-delete-facebook/"><u>Navigating Through Total Digital Detox: Delete Facebook</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-the-best-text-to-video-ai-generator-tools-alternative-to-sora/"><u>New 2024 Approved The Best Text-to-Video AI Generator Tools Alternative to Sora</u></a></li>
+<li><a href="https://facebook.techidaily.com/positive-posts-avoiding-unintentional-insults-on-fb/"><u>Positive Posts: Avoiding Unintentional Insults on FB</u></a></li>
+<li><a href="https://win-help.techidaily.com/seamless-video-capture-from-now-tv-streaming-service-for-both-windows-and-macos/"><u>Seamless Video Capture From Now TV Streaming Service for Both Windows & macOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-engagement-social-gains/"><u>Social Engagement, Social Gains</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-the-mystery-of-sudden-facebook-profile-hibernation/"><u>Tackling the Mystery of Sudden Facebook Profile Hibernation</u></a></li>
+<li><a href="https://facebook.techidaily.com/underestimating-metas-social-tyranny/"><u>Underestimating Meta’s Social Tyranny</u></a></li>
+</ul></div>
 

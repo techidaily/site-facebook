@@ -1,7 +1,7 @@
 ---
 title: Spotlight on Today's Popular FB Video Sessions
-date: 2024-09-26T21:46:06.750Z
-updated: 2024-10-03T19:39:59.919Z
+date: 2024-10-03T00:02:51.220Z
+updated: 2024-10-08T22:17:11.802Z
 tags:
   - facebook
 categories:
@@ -46,10 +46,10 @@ That's it. Here you will find all the recently watched videos.
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Filter Facebook Watched Videos by Date on the Web
@@ -63,26 +63,26 @@ That's it. Here you will find all the recently watched videos.
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to View Recently Watched Facebook Videos on Android and iOS
 
  It's very easy to view recently watched Facebook videos on an Android or iOS device. Here are the steps you need to follow:
 
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
@@ -99,13 +99,6 @@ Close
 
  You'll now see all the videos you recently watched on your Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Filter Facebook Watched Videos by Date on Android and iOS
 
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
@@ -113,6 +106,13 @@ Close
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -140,15 +140,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-developing-dynamic-instagram-highlight-summaries/"><u>[New] In 2024, Developing Dynamic Instagram Highlight Summaries</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-top-10-photo-grid-apps-to-make-your-pictures-stand-out/"><u>[New] Top 10 Photo Grid Apps to Make Your Pictures Stand Out</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-choose-your-perfect-wedding-tales-youtubes-finest-8/"><u>2024 Approved Choose Your Perfect Wedding Tales - Youtube's Finest 8</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-subscription-model-disrupts-tech-norm-surpassing-apples-app-store/"><u>Facebook’s Subscription Model Disrupts Tech Norm, Surpassing Apple's App Store</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-extensive-analysis-the-complete-gear-360-camera-experience/"><u>In 2024, Extensive Analysis The Complete Gear 360 Camera Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-dispersed-posting-in-social-networks/"><u>Mastering the Art of Dispersed Posting in Social Networks</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/pushing-the-limits-with-text-warping-effects-for-2024/"><u>Pushing the Limits with Text Warping Effects for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlined-control-managing-applications-and-sites-on-your-facebook-profile/"><u>Streamlined Control: Managing Applications and Sites on Your Facebook Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-insights-of-facebooks-local-communities/"><u>Unveiling the Insights of Facebook's Local Communities</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-enhance-visual-storytelling-techniques-for-seamless-audio-integration-in-adobe-after-effects/"><u>Updated 2024 Approved Enhance Visual Storytelling Techniques for Seamless Audio Integration in Adobe After Effects</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-blend-mp3s-with-presentation-content-in-ppt-for-2024/"><u>[New] Blend MP3s with Presentation Content in PPT for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-clipcutting-masterwin8/"><u>[Updated] ClipCutting MasterWin8</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-restore-natural-tones-reviving-overexposed-iphone-hdr-videos-in-premiere-pro/"><u>[Updated] Restore Natural Tones Reviving Overexposed iPhone HDR Videos in Premiere Pro</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-vr-frontier-who-holds-the-crown-for-2024/"><u>[Updated] The VR Frontier Who Holds the Crown for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-detailed-walkthrough-for-renaming-yourself-on-facebook/"><u>A Detailed Walkthrough for Renaming Yourself on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-brand-ambassador-online/"><u>Becoming a Brand Ambassador Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/before-you-disconnect-key-steps-to-consider-for-your-fb-exit/"><u>Before You Disconnect: Key Steps to Consider for Your FB Exit</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-bridges-between-games-and-growth-integrating-social-accounts-on-xbox/"><u>Building Bridges Between Games and Growth: Integrating Social Accounts on Xbox</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/discover-easy-methods-to-identify-your-videos-codec-top-3-solutions-inside/"><u>Discover Easy Methods to Identify Your Video's Codec – Top 3 Solutions Inside</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-mastering-audible-content-conversion-into-slide-ready-format-with-powerpoint/"><u>In 2024, Mastering Audible Content Conversion Into Slide-Ready Format with PowerPoint</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pro-video-editing-compatible-software-across-windows-systems-for-2024/"><u>Pro Video Editing Compatible Software Across Windows Systems for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-a-non-charging-surface-is-it-really-plugged-in/"><u>Troubleshooting a Non-Charging Surface: Is It Really Plugged In?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Asus ROG Phone 7 | Dr.fone</u></a></li>
 </ul></div>
 

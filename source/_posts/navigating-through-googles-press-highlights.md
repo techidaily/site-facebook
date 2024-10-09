@@ -1,7 +1,7 @@
 ---
 title: Navigating Through Google's Press Highlights
-date: 2024-09-14T17:06:58.232Z
-updated: 2024-09-21T17:40:21.785Z
+date: 2024-10-06T16:18:46.811Z
+updated: 2024-10-08T18:31:08.381Z
 tags:
   - facebook
 categories:
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/37be59bd79492103146c553d037e355365677b206
 ![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Both Sonos and Google produce smart speaker products, such as the Sonos One SL and[various Google Nest devices](https://www.makeuseof.com/google-nest-device-comparison/) . But in 2020, these two companies clashed heads when Sonos filed a lawsuit against Google for allegedly violating its audio technology patents. Sonos claimed in this suit that Google was copying its audio technology in the development of its smart speakers.
@@ -75,21 +75,35 @@ thumbnail: https://thmb.techidaily.com/37be59bd79492103146c553d037e355365677b206
 
 ![elemental block showing fb facebook abbreviation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/fb-block-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Google and[Facebook (now known as Meta)](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) are undoubtedly giants in the tech industry, with their combined worth coming to over a trillion dollars. But in early 2022, rumors began circulating about a possible secret deal existing between the two companies.
 
  This deal was reportedly proposed to consolidate the online advertising market and was formed in 2018, with suspicions arising around its possible existence back in 2020\. The CEO of Facebook, as it was then called, Mark Zuckerberg, and Google CEO Sundar Pichai allegedly formed the deal, though it was originally thought that the signature was solely provided by Facebook COO Sheryl Sandberg.
 
  What was particularly controversial about this deal, dubbed "Jedi Blue", is that it allegedly sought to benefit Google and Facebook in the online ad space by granting platform privileges to Facebook in Google's ad-buying auctions. In return, Facebook was asked by Google to pull back in its ad competitiveness.
 
-## 6\. The FTC Pixel Lawsuit
-
-![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
-
 <!-- affiliate ads begin -->
 <a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
   <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
 <img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## 6\. The FTC Pixel Lawsuit
+
+![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  In late 2022, it was revealed that the US Federal Trade Commission was suing Google and iHeartMedia Inc. for airing almost 30,000 deceptive endorsements for the Pixel 4\. These endorsements contained the voices of radio hosts discussing their positive experiences with the Pixel 4 phone when in reality they had never used it.
@@ -100,16 +114,22 @@ thumbnail: https://thmb.techidaily.com/37be59bd79492103146c553d037e355365677b206
 
 ![birds eye shot of court hammer on marbled surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/court-hammer-1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  In September 2022, it was reported by numerous news outlets that Google was facing a $25 billion fine via two separate lawsuits being filed in both the UK and Netherlands. The two suits alleged that Google took part in unfair or anti-competitive ad practices which negatively affected publishers.
 
  While Google has criticized these lawsuits, it remains to be seen whether the tech giant will have to fork out this $25 billion in compensation in 2023.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Google Has Gone Through a Lot in 2022
 
@@ -128,5 +148,20 @@ thumbnail: https://thmb.techidaily.com/37be59bd79492103146c553d037e355365677b206
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-elevate-your-visual-content-a-guide-to-videoleap-zooming/"><u>[New] 2024 Approved Elevate Your Visual Content A Guide to Videoleap Zooming</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-time-stamping-your-photographs-efficiently/"><u>[New] 2024 Approved Time Stamping Your Photographs Efficiently</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-premium-picks-recommended-spots-for-procuring-snapchat-chime-for-2024/"><u>[New] Premium Picks Recommended Spots for Procuring Snapchat Chime for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-infinite-possibilities-with-ai-generating-viral-video-titles/"><u>[Updated] Infinite Possibilities with AI Generating Viral Video Titles</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-nokia-c300-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Nokia C300 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-moment-to-update-your-fb-avatar/"><u>Best Moment to Update Your FB Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebook-using-the-transparency-hub-for-greater-understanding/"><u>Decoding Facebook: Using the Transparency Hub for Greater Understanding</u></a></li>
+<li><a href="https://facebook.techidaily.com/erasing-facial-recognition-data-a-security-risk-for-social-platform-users/"><u>Erasing Facial Recognition Data – A Security Risk for Social Platform Users?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-says-it-isnt-dying-heres-why/"><u>Facebook Says It Isn't Dying: Here's Why</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-vivo-x100-by-fonelab-android-recover-data/"><u>How to recover lost data from Vivo X100?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlink-apple-id-from-apple-iphone-xs-max-by-drfone-ios/"><u>In 2024, How To Unlink Apple ID From Apple iPhone XS Max</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-landscapes-reimagined-by-facebook/"><u>Networking Landscapes Reimagined by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-triple-nation-bans-facebook-find-out/"><u>Which Triple Nation Bans Facebook? Find Out</u></a></li>
+</ul></div>
 

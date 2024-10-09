@@ -1,7 +1,7 @@
 ---
 title: Mastering Hidden Feedback Mechanisms in FB Communities
-date: 2024-10-01T16:01:28.629Z
-updated: 2024-10-03T21:44:07.651Z
+date: 2024-10-02T00:47:16.337Z
+updated: 2024-10-08T23:14:07.255Z
 tags:
   - facebook
 categories:
@@ -61,10 +61,10 @@ Close
  All anonymous posts are subject to approval from admins and moderators, even if you don’t have post approval turned on for your group. As an admin, you’ll also be able to see the identity of users who wish to post anonymously on the pending posts page.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Might You Want to Enable Anonymous Posts on Facebook?
@@ -76,10 +76,10 @@ Close
  Enabling anonymous posts will encourage people who are shy or worried about expressing themselves publicly to share their thoughts with everyone else. This will increase your group engagement and reduce the chances of people[leaving the group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Should You Enable Anonymous Posting in Your Facebook Group?
@@ -103,16 +103,14 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-advanced-techniques-for-capturing-vr-content-on-iphone/"><u>[New] 2024 Approved Advanced Techniques for Capturing VR Content on iPhone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-delving-deep-into-dji-inspire-2s-design/"><u>[New] 2024 Approved Delving Deep Into DJI Inspire 2'S Design</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-ios-gamers-top-5-ps2-emulators-unveiled/"><u>[New] 2024 Approved IOS Gamers' Top 5 PS2 Emulators Unveiled</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-expert-guide-to-mastering-zero-cost-timer-functionality/"><u>[New] Expert Guide to Mastering Zero Cost Timer Functionality</u></a></li>
-<li><a href="https://facebook.techidaily.com/hear-and-engage-more-facebooks-updated-audio-platform/"><u>Hear and Engage More: Facebook's Updated Audio Platform</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-tecno-spark-10-pro-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Tecno Spark 10 Pro to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/innovative-approach-breaking-down-videos-into-chapters-for-youtube-for-2024/"><u>Innovative Approach Breaking Down Videos Into Chapters for YouTube for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-the-marketplace-the-best-4-business-analytics-resources/"><u>Master the Marketplace: The Best 4 Business Analytics Resources</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-privacy-a-comprehensive-fb-guide/"><u>Mastering the Art of Privacy: A Comprehensive FB Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/smart-steps-to-avoid-burnout-with-facebook-timers/"><u>Smart Steps to Avoid Burnout with Facebook Timers</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-removing-regretful-status-updates/"><u>The Ultimate Guide to Removing Regretful Status Updates</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-selective-edits-blurring-images-in-ps/"><u>[New] Mastering Selective Edits Blurring Images in PS</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-proven-steps-to-create-high-impact-facebook-video-ads-for-2024/"><u>[New] Proven Steps to Create High-Impact Facebook Video Ads for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-transform-your-tech-for-successful-social-media-livestreams/"><u>[Updated] In 2024, Transform Your Tech for Successful Social Media Livestreams</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-revolutionizing-home-broadcasts-with-advanced-webcams/"><u>2024 Approved Revolutionizing Home Broadcasts with Advanced WebCams</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-practical-approach-to-ending-a-fb-assembly/"><u>A Practical Approach to Ending a Fb Assembly</u></a></li>
+<li><a href="https://facebook.techidaily.com/bracing-for-impact-expecting-tough-news-on-fb/"><u>Bracing for Impact: Expecting Tough News on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-a-cloaked-space-for-online-dialogues/"><u>Creating a Cloaked Space for Online Dialogues</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-profile-information-emailphone-switch/"><u>Customizing Profile Information: Email/Phone Switch</u></a></li>
+<li><a href="https://fox-links.techidaily.com/top-30-screen-selections-for-xbox-series-x-gamers-enhance-every-playtime/"><u>Top 30 Screen Selections for Xbox Series X Gamers - Enhance Every Playtime</u></a></li>
 </ul></div>
 

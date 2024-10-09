@@ -1,7 +1,7 @@
 ---
 title: The Threefold Menace of Meta's Dominance
-date: 2024-09-16T18:07:54.779Z
-updated: 2024-09-21T19:13:02.267Z
+date: 2024-10-07T01:12:56.953Z
+updated: 2024-10-08T20:05:30.083Z
 tags:
   - facebook
 categories:
@@ -60,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/3d4f10ff7575c64862599f681c5c76c2a7860b568
 
 ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
 
  However, Meta's privacy practices are particularly problematic. Meta stands out because of the nature of data it has access to. Based on its user base, the company is the single largest non-government collector of intrusive personal information in corporate history.
@@ -69,6 +76,13 @@ thumbnail: https://thmb.techidaily.com/3d4f10ff7575c64862599f681c5c76c2a7860b568
  If you use Facebook services, Meta has a complete history of where you've been for at least the last year. Once you've signed up with any of Meta's products, you become tracked indefinitely. Facebook, for instance, tracks you even when you're not actively using any of its products. It does this through data-sharing agreements with hundreds of tech companies whose apps you're likely using as well.
 
 ![Off Facebook Activity lets you view and control what facebook knows about you through third party websites and apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/05/facebook-privacy-off-facebook-activity.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ​​​​​​
 
@@ -86,20 +100,27 @@ Not convinced?
 
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
  You might be surprised just how much information Meta is getting on you.
 
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the[New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Stay Conscious of Meta's Influence
 
@@ -122,5 +143,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-exploring-free-animation-methods-onlineoffline-for-2024/"><u>[New] Exploring Free Animation Methods Online/Offline for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-from-pro-to-max-the-evolutionary-journey-in-apples-m-chips/"><u>[Updated] 2024 Approved From Pro to Max The Evolutionary Journey in Apple's M Chips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-transforming-viewership-a-proven-guide-to-implementing-youtubes-featured-listings/"><u>[Updated] Transforming Viewership A Proven Guide to Implementing Youtube's Featured Listings</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-social-medias-biggest-loser-facebooks-users/"><u>Analyzing Social Media's Biggest Loser: Facebook’s Users</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/comprehensive-instructions-revamp-your-pc-with-the-latest-corsair-headset-driver-patches-for-windows/"><u>Comprehensive Instructions: Revamp Your PC with the Latest Corsair Headset Driver Patches for Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-avatars-amplifying-friendship-in-whatsapp-exchanges/"><u>Facebook Avatars: Amplifying Friendship in WhatsApp Exchanges</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/free-download-ultimate-guide-to-installing-intel-usb-30-drivers-on-windows-10/"><u>Free Download: Ultimate Guide to Installing Intel USB 3.0 Drivers on Windows 10</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-gt-5-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Realme GT 5 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/listing-everyone-who-likes-you/"><u>Listing Everyone Who Likes You</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/quick-fixes-for-privacy-concerns-in-piscart-images-for-2024/"><u>Quick Fixes for Privacy Concerns in PiscArt Images for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-twelve-spreading-misinformation-about-covid/"><u>The Top Twelve Spreading Misinformation About COVID</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-photodna-a-comparative-analysis-tool/"><u>Unveiling PhotoDNA: A Comparative Analysis Tool</u></a></li>
+</ul></div>
 

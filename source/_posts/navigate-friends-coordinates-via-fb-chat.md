@@ -1,7 +1,7 @@
 ---
 title: Navigate Friend's Coordinates via FB Chat
-date: 2024-09-30T18:02:44.423Z
-updated: 2024-10-03T16:10:51.921Z
+date: 2024-10-07T21:30:16.446Z
+updated: 2024-10-08T20:26:39.924Z
 tags:
   - facebook
 categories:
@@ -51,10 +51,10 @@ Close
  Once you reach your destination or you want to stop sharing your live location, click on**Stop Sharing Location** .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Share a Pinned Location in Facebook Messenger
@@ -71,22 +71,22 @@ Follow these simple instructions to send a pinned location:
 
 ![Location Option to Pin a Specific Location In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/5-Location-Option-to-Pin-a-Specific-Location-In-Facebook-Messenger.jpg)
 
-![Pinning a Specific Location By Dragging In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/6-Pinning-a-Specific-Location-By-Dragging-In-Facebook-Messenger.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Pinning a Specific Location By Dragging In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/6-Pinning-a-Specific-Location-By-Dragging-In-Facebook-Messenger.jpg)
 
 ![Searching a Specific Location To Pin In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/7-Searching-a-Specific-Location-To-Pin-In-Facebook-Messenger.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -94,10 +94,10 @@ Close
  This is how you can easily share your live location or pin a random one easily. After sharing your location, make a habit of[deleting your Facebook location history](https://www.makeuseof.com/tag/view-delete-location-history-facebook/) so that Facebook won't be able to spy on you for too long.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Share Live Location or Pin It Through Facebook Messenger
@@ -121,24 +121,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-avoiding-malpractice-how-to-safely-grow-a-million-fanbase/"><u>[New] Avoiding Malpractice How to Safely Grow a Million Fanbase</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-essential-techniques-for-funimate-video-extraction/"><u>[New] In 2024, Essential Techniques for Funimate Video Extraction</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-maximizing-mobile-video-quality-in-tweets-for-2024/"><u>[Updated] Maximizing Mobile Video Quality in Tweets for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-uncomplicated-techniques-reverse-playback-in-vlc-media-player-for-2024/"><u>[Updated] Uncomplicated Techniques Reverse Playback in VLC Media Player for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-effortless-audio-transfer-on-iphone-pick-top-6-tools-to-convert-youtube/"><u>2024 Approved Effortless Audio Transfer on iPhone Pick Top 6 Tools to Convert YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dawn-of-auditory-enhanced-ar-apps/"><u>Dawn of Auditory-Enhanced AR Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-the-social-media-soundtrack-with-spotify-integration/"><u>Enhancing the Social Media Soundtrack with Spotify Integration</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723206758917-errtoomanyredirects-get-instant-solutions-now/"><u>ERR_TOO_MANY_REDIRECTS? Get Instant Solutions Now!</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/euro-truck-simulator-2-troubleshooting-pc-crash-issues-solved/"><u>Euro Truck Simulator 2: Troubleshooting PC Crash Issues - Solved</u></a></li>
-<li><a href="https://facebook.techidaily.com/pause-or-play-trumps-platform-prospects/"><u>Pause or Play? Trump's Platform Prospects</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/simplify-your-workflow-10-essential-timecode-calculators-for-filmmakers/"><u>Simplify Your Workflow 10 Essential Timecode Calculators for Filmmakers</u></a></li>
-<li><a href="https://facebook.techidaily.com/status-syndicate-which-platform-claims-the-highest-honor-meta-or-twitter/"><u>Status Syndicate: Which Platform Claims the Highest Honor, Meta or Twitter?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-digital-frontier-understanding-the-6-differences-in-metaverse-and-vr/"><u>The Digital Frontier: Understanding the 6 Differences in Metaverse & VR</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-explorers-blueprint-recording-reviewing-every-fb-engagement-you-have-made/"><u>The Explorer's Blueprint: Recording, Reviewing Every Fb Engagement You Have Made</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-insiders-tactic-blocking-all-comments-on-fb/"><u>The Insider's Tactic: Blocking All Comments on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unseen-criteria-in-your-social-media-feed/"><u>The Unseen Criteria in Your Social Media Feed</u></a></li>
-<li><a href="https://facebook.techidaily.com/tune-into-music-effortlessly-spotify-and-the-miniplayer-in-facebook-app/"><u>Tune Into Music Effortlessly - Spotify and the Miniplayer in Facebook App</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-most-effective-body-cams-on-the-market/"><u>Ultimate Guide to the Most Effective Body Cams on the Market</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveil-the-14-typical-traps-on-facebook-first-aid/"><u>Unveil the 14 Typical Traps on Facebook First Aid</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-playful-pioneers-the-kids-game-bazaar-for-2024/"><u>[New] Playful Pioneers The Kids' Game Bazaar for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-masterclass-in-selecting-prime-hdr-cameras/"><u>[Updated] 2024 Approved Masterclass in Selecting Prime HDR Cameras</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-guide-to-mac-videos-for-snapchat/"><u>[Updated] The Ultimate Guide to Mac Videos for Snapchat</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-apple-iphone-11-pro-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>4 Methods to Turn off Life 360 On Apple iPhone 11 Pro without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-key-calendar-software-for-consistent-posting-cycles/"><u>8 Key Calendar Software for Consistent Posting Cycles</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-step-by-step-strategy-for-dominating-the-digital-marketing-arena-for-2024/"><u>A Step-by-Step Strategy for Dominating the Digital Marketing Arena for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-usefulness-and-pitfalls-in-facebook-based-events-organization/"><u>Assessing the Usefulness and Pitfalls in Facebook-Based Events Organization</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-connectivity-six-arguments-for-leaving-facebook-behind/"><u>Beyond Connectivity - Six Arguments for Leaving Facebook Behind</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-misinformation-on-platforms-during-pandemic/"><u>Breaking Down Misinformation on Platforms During Pandemic</u></a></li>
+<li><a href="https://facebook.techidaily.com/childhood-activity-report-on-social-media-sites-like-fb/"><u>Childhood Activity Report on Social Media Sites Like FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/commerce-through-observation-a-deep-dive/"><u>Commerce Through Observation: A Deep Dive</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-apple-id-from-apple-iphone-15-pro-max-without-password-by-drfone-ios/"><u>How to Remove Apple ID from Apple iPhone 15 Pro Max without Password?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-vivo-y27-4g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Vivo Y27 4G online without jailbreak</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-realme-gt-neo-5-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Realme GT Neo 5 to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>iPogo will be the new iSpoofer On Apple iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719146313065-simplify-syncing-cross-platform-transfer-of-facebook-items/"><u>Simplify Syncing: Cross-Platform Transfer of Facebook Items</u></a></li>
 </ul></div>
 

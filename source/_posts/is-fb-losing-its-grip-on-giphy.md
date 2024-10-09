@@ -1,7 +1,7 @@
 ---
 title: Is FB Losing Its Grip on Giphy?
-date: 2024-09-14T20:30:50.219Z
-updated: 2024-09-21T20:24:20.701Z
+date: 2024-10-07T16:11:34.909Z
+updated: 2024-10-08T20:55:00.837Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,23 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Meta's Appeal to Keep Giphy
 
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
 
@@ -55,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
  Unfortunately, the investigation has not been going smoothly for Meta. According to a[press release by the CMA](https://www.gov.uk/government/news/cma-fines-facebook-over-enforcement-order-breach) , Meta has repeatedly failed to provide the required updates regarding its compliance, which resulted in a $70 million fine.
 
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
 
@@ -77,12 +98,21 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-video-to-mp3-converting-hacks/"><u>[Updated] 2024 Approved Instagram Video-to-MP3 Converting Hacks</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-no-fuss-guide-to-recording-virtual-classes-on-windowsmacos/"><u>[Updated] 2024 Approved No-Fuss Guide to Recording Virtual Classes on Windows/macOS</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-couch-to-chart-topper-skyrocketing-your-channels-views/"><u>[Updated] In 2024, From Couch to Chart-Topper Skyrocketing Your Channel's Views</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/connecting-smart-streaming-services-to-your-home-theater-setup/"><u>Connecting Smart Streaming Services to Your Home Theater Setup</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-yt-marketing-essential-tips-for-higher-rankings-for-2024/"><u>Elevate Your YT Marketing Essential Tips for Higher Rankings for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-metaais-edge-in-ai-dialogue-arena/"><u>Evaluating MetaAI's Edge in AI Dialogue Arena</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-sharefake-location-on-whatsapp-for-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/infinite-pathways-chronicling-every-click-like-share-in-your-facebook-story/"><u>Infinite Pathways: Chronicling Every Click, Like, Share in Your Facebook Story</u></a></li>
+<li><a href="https://program-issues.techidaily.com/optimizing-gaming-experience-tackling-reduced-frames-per-second-in-farming-simulator-22-pc/"><u>Optimizing Gaming Experience: Tackling Reduced Frames per Second in Farming Simulator 22 (PC)</u></a></li>
+<li><a href="https://facebook.techidaily.com/pre-deletion-self-assessment-are-you-ready-for-an-unplugged-life/"><u>Pre-Deletion Self-Assessment: Are You Ready for an Unplugged Life?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-removing-a-facebook-community/"><u>The Ultimate Guide to Removing a Facebook Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/whens-the-ideal-time-to-swap-your-fb-image/"><u>When's the Ideal Time to Swap Your Fb Image?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-are-you-seeing-certain-ads-on-facebook/"><u>Why Are You Seeing Certain Ads on Facebook?</u></a></li>
+</ul></div>
 

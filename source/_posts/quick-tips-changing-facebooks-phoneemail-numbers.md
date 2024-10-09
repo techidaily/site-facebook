@@ -1,7 +1,7 @@
 ---
 title: "Quick Tips: Changing Facebook's Phone/Email Numbers"
-date: 2024-09-15T17:24:36.009Z
-updated: 2024-09-21T21:36:07.874Z
+date: 2024-10-07T04:14:29.890Z
+updated: 2024-10-08T16:24:56.513Z
 tags:
   - facebook
 categories:
@@ -44,9 +44,23 @@ To change your email address on the Facebook app, follow these steps:
 
 ![screenshot showing facebook main menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-main-menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![screenshot showing facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-menu.jpg)
 
 ![screenshot showing personal information page on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-personal-information-page-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
@@ -69,6 +83,13 @@ Here's how to do this:
 
 ![screenshot showing how to remove phone number from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-how-to-remove-phone-number-from-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
 1. Tap on the email or phone number on the**Manage Contact Info** page.
@@ -84,10 +105,10 @@ Close
 3. Click on**Settings & Privacy** \>**Settings** .  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![screenshot showing account settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-account-settings-page-on-Facebook.jpg)
@@ -96,20 +117,14 @@ Close
 ![screenshot showing edit email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-edit-email-address-page.jpg)
 6. Enter your new email address in the provided field and click**Add** or click on**Add your phone number?** .
 
-![screenshot showing enter email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-enter-email-address-page.jpg)
-
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![screenshot showing enter email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-enter-email-address-page.jpg)
 
 ## Updating Your Contact Information on Facebook
 
@@ -128,5 +143,17 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-8-best-screen-capture-tools-for-linux/"><u>[New] In 2024, 8 Best Screen Capture Tools for Linux</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-create-a-3d-text-art-effect-in-adobe-illustrator/"><u>[Updated] How to Create a 3D Text Art Effect in Adobe Illustrator</u></a></li>
+<li><a href="https://games-able.techidaily.com/akko-mod007b-hall-effect-keyboard-review-for-serious-gamers/"><u>Akko MOD007B Hall Effect Keyboard Review: For Serious Gamers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/customizing-video-assets-for-instagram-mastery/"><u>Customizing Video Assets for Instagram Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/epic-failures-in-digital-worlds-biggest-players/"><u>Epic Failures in Digital World's Biggest Players</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-from-iphone-15-pro-max-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even From iPhone 15 Pro Max If Youve Tried Everything</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-messenger-kids-sleep-mode-a-step-by-step-guide/"><u>Mastering Messenger Kids' Sleep Mode: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-envisions-a-new-era-potentially-undermining-facebookinsta-eu-status/"><u>Meta Envisions a New Era, Potentially Undermining Facebook/Insta EU Status</u></a></li>
+<li><a href="https://article-helps.techidaily.com/the-insiders-guide-to-altering-your-iphone-ringtones/"><u>The Insider's Guide to Altering Your iPhone Ringtones</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-crafting-descriptive-facebook-posts/"><u>Tips for Crafting Descriptive Facebook Posts</u></a></li>
+</ul></div>
 

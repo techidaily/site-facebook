@@ -1,7 +1,7 @@
 ---
 title: Facebook's Reputation at Risk Amidst Public Skepticism of Big Tech
-date: 2024-09-14T20:26:57.757Z
-updated: 2024-09-21T18:37:50.370Z
+date: 2024-10-06T18:21:29.257Z
+updated: 2024-10-09T03:26:03.795Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/181c9294f45ce68f5f0d47527972b22bf8dde75db
 
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Is the Least Trusted
 
  About 44% of Americans trust Apple and Microsoft. Google does better with 48% trust. Amazon does really well comparatively, as it has the trust of a majority 53% of users (Amazon and Washington Post are both owned by Jeff Bezos). Other users either distrust these four companies or have no opinion.
@@ -46,9 +53,23 @@ thumbnail: https://thmb.techidaily.com/181c9294f45ce68f5f0d47527972b22bf8dde75db
 
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is Facebook So Distrusted?
 
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
 
@@ -65,10 +86,10 @@ thumbnail: https://thmb.techidaily.com/181c9294f45ce68f5f0d47527972b22bf8dde75db
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -94,5 +115,24 @@ thumbnail: https://thmb.techidaily.com/181c9294f45ce68f5f0d47527972b22bf8dde75db
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-captivating-clicks-the-top-8-yt-thumbnails-to-use-for-2024/"><u>[New] Captivating Clicks The Top 8 YT Thumbnails to Use for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-ideal-fix-for-immersive-experiences/"><u>[New] Ideal Fix for Immersive Experiences</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-navigating-facebook-sharing-twitter-video-integration/"><u>[New] In 2024, Navigating Facebook Sharing Twitter Video Integration</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-tv-broadcasts-repeating-youtube-videos-effortlessly/"><u>[New] Mastering TV Broadcasts Repeating YouTube Videos Effortlessly</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-your-wireless-domain-with-netgears-ex6200-range-expander-a-comprehensive-review-of-the-ac1200-revolution/"><u>Enhance Your Wireless Domain with Netgear's EX6200 Range Expander - A Comprehensive Review of the AC1200 Revolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/harness-your-platforms-5-revenue-generating-strategies-for-fb-and-insta/"><u>Harness Your Platforms: 5 Revenue-Generating Strategies for FB and Insta</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-nokia-g310-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Nokia G310 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-look-how-social-media-pros-became-social-innovators/"><u>Inside Look: How Social Media Pros Became 'Social Innovators'</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-update-introduces-new-problems-for-facebook/"><u>IOS 14.5 Update Introduces New Problems for Facebook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/obs-studio-vs-fraps-performance-showdown-for-2024/"><u>OBS Studio vs Fraps Performance Showdown for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-facebook-presence-after-unauthorized-access/"><u>Secure Your Facebook Presence After Unauthorized Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-the-removal-of-fb-news-updates/"><u>Simplifying the Removal of FB News Updates</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-6-enhancements-seamless-gpt-and-vs-code-synergy/"><u>Top 6 Enhancements: Seamless GPT & VS Code Synergy</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitters-approach-sparks-facebooks-info-share-initiative/"><u>Twitter's Approach Sparks Facebook's Info-Share Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-dynamics-of-facebook-neighborhoods/"><u>Understanding the Dynamics of Facebook Neighborhoods</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlocking-expressions-with-emojis-on-ios-devices-tips-and-tricks-for-iphone-users/"><u>Unlocking Expressions with Emojis on iOS Devices – Tips & Tricks for iPhone Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-facebook-even-when-codes-are-gone/"><u>Unlocking Your Facebook, Even When Codes Are Gone</u></a></li>
+</ul></div>
 

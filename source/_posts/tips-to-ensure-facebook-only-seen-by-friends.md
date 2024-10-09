@@ -1,7 +1,7 @@
 ---
 title: Tips to Ensure Facebook Only Seen by Friends
-date: 2024-09-26T21:23:15.180Z
-updated: 2024-10-03T21:11:18.632Z
+date: 2024-10-05T20:37:16.160Z
+updated: 2024-10-09T00:25:50.395Z
 tags:
   - facebook
 categories:
@@ -39,6 +39,13 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Lock Your Facebook Profile Down
 
  Facebook's lock feature is a safety feature that allows users, specifically women, in specific regions to lock their profiles from outsiders. The goal is to limit access to your account and give you more control over your experience. Accounts with the lock feature enabled have a**lock icon** in the profile. Here's what it prevents non-friends from doing:
@@ -63,16 +70,10 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Change Your Facebook Profile Discovery Settings
@@ -90,17 +91,17 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Change Your Facebook Post Settings
@@ -115,13 +116,6 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 4. Choose the**Friends** option in the**drop-down menu** . You can also choose**Specific friends** or exclude some people by selecting the**Friends except** option. Click**Close** when you're done.
 
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Keep a Low Profile on Facebook
 
@@ -144,24 +138,22 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-easy-steps-for-stellar-youtube-thumbnails/"><u>[New] 2024 Approved Easy Steps for Stellar YouTube Thumbnails</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-pros-picks-6-superior-background-cleaners-for-your-photos/"><u>[New] Pro's Picks – 6 Superior Background Cleaners for Your Photos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-streaming-wars-the-digital-platform-showdown-for-2024/"><u>[New] Streaming Wars The Digital Platform Showdown for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-balance-of-serene-visuals/"><u>[New] The Balance of Serene Visuals</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-86-cracking-the-code-tiktok-riddles-and-jokes/"><u>[Updated] 86 Cracking the Code TikTok Riddles & Jokes</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-iphones-blueprint-for-extended-frame-mastery/"><u>[Updated] In 2024, IPhone's Blueprint for Extended Frame Mastery</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-honor-x50i-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Honor X50i | Dr.fone</u></a></li>
-<li><a href="https://driver-error.techidaily.com/addressing-deviceid-33a0-acpi-issues/"><u>Addressing DEVICE_ID 33A0 Acpi Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-online-safety-with-facebooks-defensive-measures/"><u>Enhancing Online Safety with Facebook's Defensive Measures</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-launches-a-new-transparency-center-detailing-its-policies/"><u>Facebook Launches a New Transparency Center Detailing Its Policies</u></a></li>
-<li><a href="https://facebook.techidaily.com/fastened-profile-shifting-for-independent-facebook-screens/"><u>Fastened Profile Shifting for Independent Facebook Screens</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-chat-frontier-facebook-enhances-sound-interaction/"><u>New Chat Frontier: Facebook Enhances Sound Interaction</u></a></li>
-<li><a href="https://facebook.techidaily.com/post-fb-world-informations-pathway/"><u>Post-FB World: Information’s Pathway</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-capturing-the-full-scope-of-your-facebook-footsteps/"><u>Step-by-Step Guide to Capturing the Full Scope of Your Facebook Footsteps</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/step-by-step-guide-to-master-gratuitous-timer-software-for-2024/"><u>Step-by-Step Guide to Master Gratuitous Timer Software for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-10-personalization-options-to-maximize-your-fb/"><u>Top 10 Personalization Options to Maximize Your FB</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/top-ultra-short-timelapse-capture-methods-for-2024/"><u>Top Ultra-Short Timelapse Capture Methods for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-access-strategies-for-facebookinsta-profile-management/"><u>Unraveling Access Strategies for Facebook/Insta Profile Management</u></a></li>
-<li><a href="https://facebook.techidaily.com/wave-bye-bye-to-fb-on-android-devices-a-simple-guide/"><u>Wave Bye-Bye to FB on Android Devices - A Simple Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-building-brand-identity-with-instagram-video-content/"><u>[Updated] Building Brand Identity with Instagram Video Content</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-streamline-your-virtual-adventure-with-kinemaster-tips-and-competitor-analysis/"><u>[Updated] Streamline Your Virtual Adventure with KineMaster Tips & Competitor Analysis</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-snippet-screenplay-guide/"><u>2024 Approved Snippet Screenplay Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-versatile-intro-editing-app-for-your-device-repertoire/"><u>2024 Approved Versatile Intro Editing App for Your Device Repertoire</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-visionary-logo-designs-that-define-your-podcast-brand/"><u>2024 Approved Visionary Logo Designs that Define Your Podcast Brand</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/5-tips-for-picking-your-dream-cellphone-case-with-ease/"><u>5 Tips for Picking Your Dream Cellphone Case with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/act-now-restore-control-over-a-stolen-social-media-account/"><u>Act Now! Restore Control Over a Stolen Social Media Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-productivity-on-facebook-using-shortcuts/"><u>Boosting Productivity on Facebook Using Shortcuts</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/digital-game-chronicles-for-2024/"><u>Digital Game Chronicles for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/embarking-on-a-global-journey-the-ups-and-downs-of-fb-expat-circles/"><u>Embarking on a Global Journey: The Ups and Downs of FB Expat Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/groups-mobilize-push-1-star-rating-on-social-media-platforms/"><u>Groups Mobilize: Push 1-Star Rating on Social Media Platforms</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/maximizing-value-comprehensive-review-of-the-portable-yet-mighty-acer-predator-triton-amoled-se/"><u>Maximizing Value: Comprehensive Review of the Portable Yet Mighty Acer Predator Triton Amoled SE</u></a></li>
+<li><a href="https://program-issues.techidaily.com/optimizing-play-how-to-enhance-avatar-frontiers-of-pandora-load-times/"><u>Optimizing Play: How to Enhance Avatar: Frontiers of Pandora Load Times</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-image-posts-with-built-in-descriptions-on-fb/"><u>Seamless Image Posts with Built-In Descriptions on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-instagram-live-experience/"><u>Streamline Your Instagram Live Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-tech-fails-an-exploration-of-22/"><u>The Biggest Tech Fails: An Exploration of '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-technological-missteps-unveiled/"><u>Top 5 Technological Missteps Unveiled</u></a></li>
 </ul></div>
 

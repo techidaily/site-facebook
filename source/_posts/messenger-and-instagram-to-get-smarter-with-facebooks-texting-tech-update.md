@@ -1,7 +1,7 @@
 ---
 title: Messenger and Instagram to Get Smarter with Facebook's Texting Tech Update
-date: 2024-09-20T20:37:56.511Z
-updated: 2024-09-21T16:26:23.201Z
+date: 2024-10-08T00:33:09.062Z
+updated: 2024-10-08T21:54:02.062Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/6816402dd23c56a105ec64bc0a33bec17942a9ec3
 
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hands-Free Audio Messaging in Messenger
 
  Facebook acknowledged the popularity of audio messaging on Messenger and to make it easier, it has added a tap-to-record feature. Using this, users will no longer have to hold down the record button when sending audio messages.
@@ -43,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/6816402dd23c56a105ec64bc0a33bec17942a9ec3
  Facebook states that this new feature will allow users to focus on other tasks while simultaneously recording an audio message.
 
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## New Inbox Management Features
 
@@ -69,18 +83,21 @@ Both Messenger and Instagram have received some inbox-centric changes.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-quick-tips-streamlined-processes-for-iphones-screening/"><u>[New] Quick Tips Streamlined Processes for Iphone's Screening</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-tailored-tv-experience-via-social-media-content-for-2024/"><u>[New] Tailored TV Experience via Social Media Content for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-uploading-and-embedding-srt-text-in-social-media-videos/"><u>[New] Uploading and Embedding SRT Text in Social Media Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-finalizing-your-video-with-a-bold-statement-for-2024/"><u>[Updated] Finalizing Your Video with a Bold Statement for 2024</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/1-ultimate-collection-of-30plus-premium-nextjs-designs-from-creative-tim/"><u>1. Ultimate Collection of 30+ Premium Next.js Designs From Creative Tim</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-rapid-share-tactics-for-youtube-lists/"><u>2024 Approved Rapid Share Tactics for YouTube Lists</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/eradicating-unplayable-file-error-224003/"><u>Eradicating Unplayable File: Error 224003</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagram-witnessing-trumps-return/"><u>Facebook & Instagram, Witnessing Trump’s Return</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-interactive-communities-with-facebooks-channels/"><u>Fostering Interactive Communities with Facebook's Channels</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/rapid-video-filming-techniques-for-tiktok-success-for-2024/"><u>Rapid Video Filming Techniques for TikTok Success for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-social-network-events-with-facebook/"><u>Streamlining Your Social Network Events with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-audio-expressions-in-fb-messenger/"><u>The Art of Audio Expressions in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-emergence-of-metaai-and-its-impact-on-bots/"><u>The Emergence of MetaAI and Its Impact on Bots</u></a></li>
+</ul></div>
 

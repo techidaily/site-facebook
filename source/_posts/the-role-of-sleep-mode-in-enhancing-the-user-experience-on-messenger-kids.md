@@ -1,7 +1,7 @@
 ---
 title: The Role of Sleep Mode in Enhancing the User Experience on Messenger Kids
-date: 2024-09-18T21:13:10.097Z
-updated: 2024-09-21T23:41:56.443Z
+date: 2024-10-06T23:58:15.669Z
+updated: 2024-10-08T21:13:24.362Z
 tags:
   - facebook
 categories:
@@ -51,22 +51,24 @@ thumbnail: https://thmb.techidaily.com/f5bde08083c297970b9e93f509911df9c27588c39
 4. Tap on**Controls** to open a new menu with various settings.  
 ![Click on Messenger Kids controls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids-controls.jpg)
 5. Click on**Sleep Mode** to open a customizable calendar. You have an option to alter the weekday and weekend use. For instance, most parents prefer handing out gadgets for screen time longer on weekends compared to weekdays.  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Adjust the time on Sleep Mode](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Adjust-the-time-of-Sleep-Mode.jpg)
 6. Adjust the time to your requirements and click**Save** .
 
  You can follow the same process if you are logged in from a Chromebook. Similarly, it doesn't matter whether you're using a Linux, Windows, or Mac computer. The steps are similar once you are logged in to Facebook.
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Setting Up Sleep Mode on Mobile
@@ -77,11 +79,32 @@ thumbnail: https://thmb.techidaily.com/f5bde08083c297970b9e93f509911df9c27588c39
 
 ![Open Facebook Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Facebook-Menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Open Messenger Kids on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Messenger-Kids-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Parental Controls on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Parental-Controls-on-Messenger-Kids.jpg)
 
 ![Sleep Mode on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Sleep-Mode-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -97,27 +120,20 @@ Close
 
 **Download:** Facebook App on[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012755/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/facebook/id284882215) (Free)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why It’s a Good Idea to Use the Sleep Mode
 
 There are several perks of using Messenger Kids Sleep Mode.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Better Focus on Other Activities
 
 ![Children performing various activities](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Children-performing-various-activities.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Kids are energetic and should participate in physical activities and sports. With technology becoming common, it is hard to motivate them.
 
@@ -131,23 +147,9 @@ There are several perks of using Messenger Kids Sleep Mode.
 
  Allow your kids to cherish stress-free time by restricting their social media use. It helps them understand that the world does not revolve around social media only.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Reduce Worries About Social Media Addiction
 
  Social media addiction is a continuing concern for parents. Messenger Kids Sleep Mode allows your children to discover other sources of entertainment until the app is available for use again.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Encourages a Schedule
 
@@ -172,5 +174,18 @@ There are several perks of using Messenger Kids Sleep Mode.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-solo-spotlight-crafting-a-chart-topping-podcast/"><u>[New] 2024 Approved Solo Spotlight Crafting a Chart-Topping Podcast</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-top-10-most-immersive-youtube-vr-films/"><u>[New] 2024 Approved Top 10 Most Immersive YouTube VR Films</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-mobile-photography-note-taking-tools/"><u>2024 Approved Best Mobile Photography Note-Taking Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-concealed-regulations-for-acquaintanceship/"><u>Facebook's Concealed Regulations for Acquaintanceship</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-realme-c55-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Realme C55 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-google-pixel-7a-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-seas-of-social-medias-past-highlights/"><u>Navigating the Seas of Social Media’s Past Highlights</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/paving-the-path-for-auto-gpt-installation/"><u>Paving the Path for Auto-GPT Installation</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-standstill-facebook-and-cos-6-hour-pause/"><u>Social Media Standstill: Facebook & Co.'s 6-Hour Pause</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-instant-fix-purge-your-facebook-broadcast-history/"><u>The Instant Fix: Purge Your Facebook Broadcast History</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-covert-norms-of-online-networking-on-fb/"><u>Unveiling the Covert Norms of Online Networking on FB</u></a></li>
+</ul></div>
 

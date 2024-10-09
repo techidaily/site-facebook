@@ -1,7 +1,7 @@
 ---
 title: Expanding Your Conversation Realm with Messenger
-date: 2024-09-18T19:16:07.626Z
-updated: 2024-09-21T21:21:02.467Z
+date: 2024-10-01T22:16:36.349Z
+updated: 2024-10-09T03:36:00.206Z
 tags:
   - facebook
 categories:
@@ -50,16 +50,16 @@ thumbnail: https://thmb.techidaily.com/ed5e683d03ce80f42203b25af8dacdf35686ccffe
 
  You can also open Messenger and navigate to**People** . You’ll see a list of friends who are currently active. Tap the address book symbol on the top-right of your screen; this will show you the people who are in your phone contacts list and who use Facebook. Click on any of them to start chatting.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Can I Add Someone on Messenger but Not Facebook?
 
 ![accepting friends on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-Friend-requests-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![How to add a friend on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Message-a-friend-on-Facebook-1.jpg)
 
@@ -77,15 +77,28 @@ Close
 
  Essentially, anyone can use Messenger as long as they have had a Facebook account at some point and haven’t deleted it. In this case, you should be able to add them as you would anyone else, i.e. via your contact list if you have them in your address book, or by clicking on**Message** [on their deactivated profile](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Can’t I Add Someone on Messenger?
 
 ![Facebook app in mobile](https://thmb.techidaily.com/d3c3a020a8c3e31354179c514456d8a6b689ea566aeb576eef913d65398f2493.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  This is likely because they’re simply not on Messenger! Another possibility, if you’re searching for them using their phone number, is that they’ve not added it to Facebook. Messenger can’t connect with something it doesn’t know exists.
@@ -98,13 +111,6 @@ Close
 
  In most cases, though, Facebook should link people up without their phone numbers, so if you can’t find someone, you should just talk to them and ask if you can connect on the app. If they don’t use it, they’ll tell you. If they do, they’ll let you know the best way to connect with them.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Do I Delete Chats From Messenger?
 
  Let’s say you’ve got loads of chat threads open on Messenger now and want to close some. You have a few options to delete the conversations. In case you’re wondering, blocking someone won’t delete the chats on Messenger, but they won’t be able to send new messages from that account.
@@ -114,6 +120,13 @@ So how can you delete old messages on Messenger?
  Open Messenger then tap and hold on the conversation thread you want to get rid of. A box will open underneath with numerous options. From here, you can**Mute** , meaning you won’t get notifications from that person, **Delete** , or**Archive** .
 
  You can find the latter by going on your profile photo then tapping**Archived chats** . This is probably the better option as these conversations won’t litter your feed, but are still just a couple of taps away.
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Add Friends on Messenger With Ease
 
@@ -132,5 +145,18 @@ So how can you delete old messages on Messenger?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-real-life-quantum-mechanics-on-the-silver-screen/"><u>[New] In 2024, Real-Life Quantum Mechanics on the Silver Screen</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-unleashing-photography-potential-with-lightroom-hdrs/"><u>[New] Unleashing Photography Potential with Lightroom HDRs</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-the-apple-iphone-15-plus-icloud-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing the Apple iPhone 15 Plus iCloud Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-hidden-messages-from-social-media-archives/"><u>Dissecting the Hidden Messages From Social Media Archives</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-commanding-circle/"><u>Facebook's Commanding Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-poll-on-facebook-in-pages-groups-and-stories/"><u>How to Create a Poll on Facebook (in Pages, Groups, and Stories)</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-conversation-privacy-on-fb-upheld/"><u>Is Conversation Privacy on FB Upheld?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/movavi-3gpp-m4a/"><u>Movavi: 가상 공간을 이용한 3GPP M4A 비주얼 자동화 - 무료</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-social-media-presence-with-effective-backgrounds/"><u>Transform Your Social Media Presence with Effective Backgrounds</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-to-reconnect-your-media-on-a-windows-pc/"><u>Troubleshooting Steps to Reconnect Your Media on a Windows PC</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/upgrade-your-journey-with-the-must-have-magsafe-3-in-1-charging-wizard-qi2-supported/"><u>Upgrade Your Journey with the Must-Have MagSafe 3-in-1 Charging Wizard | Qi2 Supported</u></a></li>
+</ul></div>
 

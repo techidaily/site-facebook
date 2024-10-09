@@ -1,7 +1,7 @@
 ---
 title: The Biggest Blunders of the Tech World This Year
-date: 2024-09-20T19:45:49.230Z
-updated: 2024-09-21T23:51:41.521Z
+date: 2024-10-05T05:55:55.583Z
+updated: 2024-10-08T20:48:07.687Z
 tags:
   - facebook
 categories:
@@ -34,9 +34,23 @@ thumbnail: https://thmb.techidaily.com/ba36ce8581d9aeca4885040164c69b231f981ce3e
 
  Overall, Google Stadia's launch greatly disappointed gamers and tech enthusiasts. Despite its lofty ambitions, the service failed to live up to expectations and ultimately flopped in 2022.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Elon Musk's Twitter Takeover
 
 ![elon musk at conference](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/elon-musk-pic.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: Heisenberg Media/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Elon%5FMusk%5F-%5FThe%5FSummit%5F2013.jpg)
 
@@ -60,6 +74,13 @@ thumbnail: https://thmb.techidaily.com/ba36ce8581d9aeca4885040164c69b231f981ce3e
 
 ![green celsius graphic](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/green-celsius-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit: Satheesh Sankaran/[Flickr](https://www.flickr.com/photos/justanothercreativesoul/52455459544/in/)
 
  Like Celsius, BlockFi closed its doors after it could not meet its obligations to customers who had lent their money through the platform. 3AC made several large bets on specific cryptocurrencies, which ultimately didn't pan out, leaving them with huge losses they couldn't recover from.
@@ -68,16 +89,16 @@ thumbnail: https://thmb.techidaily.com/ba36ce8581d9aeca4885040164c69b231f981ce3e
 
  These events have been an important lesson for investors and developers alike: nothing is guaranteed in this highly volatile market, and caution should always be exercised when investing in digital currencies.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Meta
 
 ![Meta homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Meta-homepage.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Meta saw some of the steepest declines in 2022\. For the first time since its inception, the company saw revenue drops in the second quarter of 2022\. Based on[Meta's 2022 Q3 earnings report](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2022/q3/Meta-09.30.2022-Exhibit-99.1-FINAL.pdf) \[PDF\], the company plunged 46% to earn $5.6 billion from operations against $10.4 billion in Q3 2021.
 
@@ -86,19 +107,6 @@ thumbnail: https://thmb.techidaily.com/ba36ce8581d9aeca4885040164c69b231f981ce3e
 [Facebook became Meta Platforms](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) in October 2021 to convey its commitment to[establishing the metaverse](https://www.makeuseof.com/what-is-the-metaverse/) , a virtual reality environment that connects all its products. However, it's unclear how this metaverse will assist the average person.
 
  Meta has spent billions of dollars and tons of resources on this ambitious initiative, but it doesn't appear that people are interested. In the past, Meta (then Facebook) dominated headlines with record-breaking revenue, but in 2022, it trended on the crash of tech stock and layoffs.
-
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Amazon Alexa
 
@@ -131,5 +139,18 @@ thumbnail: https://thmb.techidaily.com/ba36ce8581d9aeca4885040164c69b231f981ce3e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-behind-the-scenes-how-much-creators-earn-from-youtube-shorts/"><u>[New] 2024 Approved Behind the Scenes How Much Creators Earn From YouTube Shorts</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-finding-out-if-someone-hides-you-on-snapchat/"><u>[New] Finding Out if Someone Hides You on Snapchat</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-slapstick-selection-twitters-funny-threads/"><u>[Updated] Slapstick Selection Twitter's Funny Threads</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-how-to-use-virtual-reality-tours/"><u>2024 Approved How to Use Virtual Reality Tours</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminating-facebook-push-notifications/"><u>Eliminating Facebook Push Notifications</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/in-search-of-excellence-notion-ai-versus-chatgpt-evaluation/"><u>In Search of Excellence: Notion AI Versus ChatGPT Evaluation</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/oneplus-ace-2-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>OnePlus Ace 2 Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-safe-stay-private-reasons-to-ignore-facebook-pools/"><u>Stay Safe, Stay Private: Reasons to Ignore Facebook Pools</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-road-ahead-for-silicon-valley-after-antitrust-overhaul/"><u>The Road Ahead for Silicon Valley After Antitrust Overhaul</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-choice-software-transforming-pics-to-videos/"><u>Top Choice Software Transforming Pics to Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-a-more-curated-social-experience-for-businesses-on-facebook/"><u>Unveiling a More Curated Social Experience for Businesses on Facebook</u></a></li>
+</ul></div>
 

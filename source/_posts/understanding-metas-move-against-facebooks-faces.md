@@ -1,7 +1,7 @@
 ---
 title: Understanding Meta's Move Against Facebook's Faces
-date: 2024-09-18T00:34:50.600Z
-updated: 2024-09-21T19:55:52.846Z
+date: 2024-10-01T16:17:58.608Z
+updated: 2024-10-08T18:14:00.225Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,29 @@ thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74
 
  Related:[How Dark Patterns Mislead You Into Making Bad Privacy Choices](https://www.makeuseof.com/tag/dark-patterns-bad-privacy-choices/)
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is Meta Disabling Facial Recognition on Facebook?
 
 ![blonde woman taking photo with phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/blonde-woman-pixabay.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The official reason, given in a[Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
 
@@ -55,6 +75,13 @@ thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74
  At the time of writing, Meta is battling yet another major controversy after whistleblower, Frances Haugen, released[internal documents dubbed “the Facebook papers”](https://www.makeuseof.com/what-are-facebook-papers/) alleging that Facebook prioritizes profits over truth.
 
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Will Meta's Disabling of Facebook's Facial Recognition Enhance Privacy?
 
@@ -79,12 +106,22 @@ thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-gain-twitter-gifs-for-pc-download-made-simple/"><u>[New] In 2024, Gain Twitter Gifs for PC - Download Made Simple</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-live-feed-obs-on-instagram-app-for-2024/"><u>[New] Live Feed OBS on Instagram App for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastery-of-color-grading-premiere-pros-lut-capabilities/"><u>[New] Mastery of Color Grading Premiere Pro's LUT Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-pitfalls-techniques-for-legitimate-video-acquisition/"><u>Avoiding Pitfalls: Techniques for Legitimate Video Acquisition</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dissent-whatsapp-questions-legality-of-new-privacy-laws/"><u>Digital Dissent: WhatsApp Questions Legality of New Privacy Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-social-networking-experience-on-facebook-mobile/"><u>Elevate Your Social Networking Experience on Facebook Mobile</u></a></li>
+<li><a href="https://facebook.techidaily.com/filtering-public-access-to-online-check-ins/"><u>Filtering Public Access to Online Check-Ins</u></a></li>
+<li><a href="https://facebook.techidaily.com/finding-lost-social-media-conversations-on-fb/"><u>Finding Lost Social Media Conversations on FB</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-vivo-v27-pro-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Vivo V27 Pro If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-samsung-galaxy-m54-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Samsung Galaxy M54 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-poco-c55-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Poco C55 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-iphone-6s-plus-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My iPhone 6s Plus when Phone is Broken?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-nostalgic-portraits-retold-transforming-old-prints-to-digital/"><u>In 2024, Nostalgic Portraits Retold Transforming Old Prints to Digital</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-unseen-factors-in-determining-a-videos-view-count-on-youtube/"><u>In 2024, The Unseen Factors in Determining a Video’s View Count on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154481696-unleash-content-potential-transfer-fb-posts-and-notes-among-leading-apps/"><u>Unleash Content Potential: Transfer Fb Posts & Notes Among Leading Apps</u></a></li>
+</ul></div>
 

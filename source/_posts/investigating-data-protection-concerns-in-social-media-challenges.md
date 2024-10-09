@@ -1,7 +1,7 @@
 ---
 title: Investigating Data Protection Concerns in Social Media Challenges
-date: 2024-09-17T16:28:27.154Z
-updated: 2024-09-21T20:44:03.638Z
+date: 2024-10-02T04:37:15.625Z
+updated: 2024-10-08T18:30:59.798Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
 
  These quizzes are[a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What to Do if You’ve Taken Facebook Quizzes
 
  It’s natural to be concerned if you realize you may have taken a malicious Facebook quiz. If this happens, don’t panic. You can take action to protect yourself and make sure others don’t fall for the same trap.
@@ -54,20 +61,27 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
 
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Take Screenshots and Notes
 
 ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 
  Screenshot or write down your answers to the quiz next. If possible, delete your quiz response from the post. In most cases, this won't be possible and information might have already been gathered before you press "Submit".
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Report the Scam Quiz
 
@@ -79,13 +93,6 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
 
  Finally,[submit a report](https://www.identitytheft.gov/#/) to the Federal Trade Commission to alert them to a potential identity theft risk. This will help protect you and others from identity theft if the quiz gave away sensitive information to a fraudster or scammer. If you have an identity protection service or insurance plan, contact those representatives, as well.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Change Your Security Question Answers
 
  It might be a hassle, but it’s a good idea to go through all of your important accounts and change your security question answers. Use the list or screenshot of your answers from the quiz to guide your changes. Don’t reuse any answers you gave away on the quiz.
@@ -93,6 +100,13 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
  In most cases, you can choose another question. But if you’re struggling to find security question options that weren’t compromised by the quiz answers, you can even use fake answers. Just keep track of what you said.
 
  Some websites or services may allow you to secure your account without using security questions. If this is an option, it is worth using. For example, you might be able to use one-time codes sent to your phone or email instead of answering security questions to reset your password, i.e.[two-factor authentication (2FA)](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) .
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Staying Safe on Facebook
 
@@ -111,5 +125,20 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-direct-to-the-bottom-of-the-feed-no-watermark-on-iphone/"><u>[New] Direct to the Bottom of the Feed, No Watermark on iPhone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-fix-the-green-screen-on-youtube-on-mac/"><u>[New] In 2024, How to Fix the Green Screen on YouTube on Mac?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-enhancing-visuals-iphone-magnification-hacks/"><u>[Updated] Enhancing Visuals IPhone Magnification Hacks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-hearth-warming-hear-from-happy-customers/"><u>[Updated] Hearth-Warming Hear From Happy Customers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-art-of-cross-promotion-twitters-to-facebooks/"><u>[Updated] In 2024, The Art of Cross-Promotion Twitters to Facebooks</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-banishing-past-searches-from-facebook/"><u>Clean Slate: Banishing Past Searches From Facebook</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-the-startup-glitch-in-dead-space-remake-expert-advice-for-2n4-players/"><u>Fixing the Startup Glitch in Dead Space Remake: Expert Advice for 2N4 Players</u></a></li>
+<li><a href="https://facebook.techidaily.com/flexible-fonts-for-friendly-forums-messenger-tips/"><u>Flexible Fonts for Friendly Forums: Messenger Tips</u></a></li>
+<li><a href="https://article-helps.techidaily.com/how-to-choose-the-background-music-for-the-trailer-for-2024/"><u>How to Choose the Background Music for the Trailer for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-fbs-shared-memories-together/"><u>Revisiting FB's Shared Memories Together</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-relationships-best-networking-sites-for-business/"><u>Revolutionizing Relationships: Best Networking Sites for Business</u></a></li>
+<li><a href="https://facebook.techidaily.com/solving-popular-facebook-problems-quick-fixes-for-11-errors/"><u>Solving Popular Facebook Problems: Quick Fixes for 11 Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-refreshing-your-facebook-visual-representation/"><u>Swiftly Refreshing Your Facebook Visual Representation</u></a></li>
+</ul></div>
 

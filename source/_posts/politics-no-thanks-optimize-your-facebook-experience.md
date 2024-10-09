@@ -1,7 +1,7 @@
 ---
 title: Politics? No Thanks! Optimize Your Facebook Experience
-date: 2024-09-20T19:40:35.729Z
-updated: 2024-09-21T20:33:06.137Z
+date: 2024-10-02T21:18:55.645Z
+updated: 2024-10-09T01:22:42.242Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
 
  Then to top it off, Facebook keeps suggesting trending posts on your page while you scroll, which gets dominated by politics and whatever the Kardashians are up to lately. There's no way to turn these suggestions off. However, Facebook does let you tell it which stories you don't want to see.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Filter Politics Out of Your Facebook Feed
 
  If you find yourself regularly being sucked into long political Facebook arguments with friends-of-friends, you probably need to take control of your Facebook. Ditto if you're constantly annoyed by celebrity news or friends who can't function without constantly marinating in sympathy and attention.
@@ -61,10 +68,10 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
 ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  When you create your Facebook profile, it asks you about your political views, among other things. If you do add your views, however, Facebook uses this information to suggest political posts and ads to you. Adding this piece of information to your profile is not really necessary, unless you are affiliated with a political party, and you have to put your views on display.
@@ -80,10 +87,10 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
 ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You can use a browser extension called[FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
@@ -91,6 +98,13 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
  This is a really versatile plugin, and you can spend a long-time tweaking all the options. It even lets you rank posts in sequential order, instead of letting Facebook guess what you most want to see. This fixes another common complaint about the site.
 
  FB Purity is basically an intelligent filter that lets you get rid of anything you don't like. It's also updated frequently to adapt to changes to Facebook's UI and features. Our only complaint is that the graphic design clashes with Facebook a little, and its interface can be hard to navigate.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Creating a Facebook Feed You Enjoy
 
@@ -109,5 +123,22 @@ thumbnail: https://thmb.techidaily.com/6c068dd9c7ff9ad108362423509c28dd6ffe162b7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-communicating-confidently-on-google-meet/"><u>[New] 2024 Approved Communicating Confidently on Google Meet</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-quick-guide-to-optimized-and-streamlined-mac-screenshots-via-keyboard-shortcuts/"><u>[New] 2024 Approved Quick Guide to Optimized and Streamlined Mac Screenshots via Keyboard Shortcuts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-mobile-magnification-premium-highlights-for-iphonesandroids/"><u>2024 Approved Mobile Magnification Premium Highlights for IPhones/Androids</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ergonomic-excellence-and-office-dynamics-for-peak-performance/"><u>Ergonomic Excellence and Office Dynamics for Peak Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tactics-for-producing-attention-grabbing-video-stories-in-60-seconds/"><u>Essential Tactics for Producing Attention-Grabbing Video Stories in 60 Seconds</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-touch-screen-on-tecno-spark-10-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-join-and-whats-inside-facebook-local-spots/"><u>How to Join and What's Inside Facebook Local Spots?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-honor-x50-gt-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Honor X50 GT in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-quick-engagement-techniques-for-zooms-camera-shots/"><u>In 2024, Quick Engagement Techniques for Zoom’s Camera Shots</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-the-powerful-and-versatile-apc-back-ups-pro-1500va-with-ample-outlets-and-hot-swap-technology/"><u>In-Depth Review: The Powerful and Versatile APC Back-UPS Pro 1500VA with Ample Outlets & Hot-Swap Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebooks-today-memory-recollection/"><u>Leveraging Facebook's Today Memory Recollection</u></a></li>
+<li><a href="https://facebook.techidaily.com/lockout-ledger-cleared-simple-steps-to-regain-fb-entry/"><u>Lockout Ledger Cleared: Simple Steps to Regain FB Entry</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-teen-fb-privacy-safeguards-a-step-by-step-guide/"><u>Mastering Teen FB Privacy Safeguards: A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/understanding-public-sector-approaches-to-regulating-advanced-intelligence-tools/"><u>Understanding Public Sector Approaches to Regulating Advanced Intelligence Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-role-of-telegram-in-facebooks-down-time/"><u>Understanding the Role of Telegram in Facebook's Down-Time</u></a></li>
+</ul></div>
 

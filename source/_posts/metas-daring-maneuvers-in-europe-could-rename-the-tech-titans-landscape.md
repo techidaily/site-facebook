@@ -1,7 +1,7 @@
 ---
 title: Meta’s Daring Maneuvers in Europe Could Rename the Tech Titans Landscape
-date: 2024-09-19T19:11:34.212Z
-updated: 2024-09-21T17:57:23.088Z
+date: 2024-10-04T19:53:06.355Z
+updated: 2024-10-09T00:11:19.481Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
 
  Meta's primary business is selling advertising spaces based upon the data it collects on its users. Instagram and Facebook account for somewhere between 400 million and 500 million users. Losing out on this data would be extremely damaging to Meta's targeted advertising (despite Meta claiming to the contrary).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is the Privacy Shield No Longer Legal?
 
  So, back in 2011, Austrian lawyer Maximillian Schrems analyzed 1,222 pages of information Facebook held about him after requesting the data from the company. He found that Facebook held onto information he believed he had deleted from the service along with other information that had been shared without his permission. Schrems lodged a complaint with the Irish data protection commissioner, where Facebook was registered for tax purposes.
@@ -43,6 +50,13 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
  Roll forwards to 2020, and the EU Court of Justice found that Privacy Shield, the law that enables US companies and authorities to collect information on EU citizens, was fundamentally flawed. Privacy Shield did not provide enough safeguarding for EU user data (in the EU, user data protection laws are more stringent than the US) and it did not provide adequate means for EU citizens to content issues with the US government regarding personal data privacy breaches.
 
  With the data transfer vehicle of the Privacy Shield no longer lawful, companies like Meta, Google, Amazon, and Microsoft will all have to consider their European operations. Considering that the cloud computing services offered by Google, Amazon, and Microsoft make up a huge chunk of the internet as we know it, Meta is far from the only major tech company facing a major data headache.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Will Meta Pull Facebook and Instagram?
 
@@ -69,18 +83,26 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-auditory-artistry-access-to-excellent-dj-video-samples/"><u>[Updated] In 2024, Auditory Artistry Access to Excellent DJ Video Samples</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-complete-wm-maker-playbook-for-youtube-clips-perfection-for-2024/"><u>[Updated] The Complete WM Maker Playbook for YouTube Clips Perfection for 2024</u></a></li>
+<li><a href="https://discover-help.techidaily.com/1-dvd-drive-error-persistent-issue-of-automatic-tray-activation/"><u>1. DVD Drive Error: Persistent Issue of Automatic Tray Activation</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-effortless-webcam-recording-with-vlc-streaming-capabilities/"><u>2024 Approved Effortless Webcam Recording with VLC Streaming Capabilities</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effective-strategies-to-resolve-user32dll-file-absence-issues/"><u>Effective Strategies to Resolve User32.dll File Absence Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-crowdflower-tech-for-enhanced-analytics/"><u>Essential CrowdFlower Tech for Enhanced Analytics</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-oppo-reno-11-5g-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Oppo Reno 11 5G.</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/mobilizing-a-passive-gpu-fan/"><u>Mobilizing a Passive GPU Fan</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-digital-lands-market-for-professional-advancement/"><u>Navigating the Digital Lands Market for Professional Advancement</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-sonic-landscape-of-modern-chats-on-fb/"><u>Navigating the Sonic Landscape of Modern Chats on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/rapid-routes-through-distinct-facebook-user-sessions/"><u>Rapid Routes Through Distinct Facebook User Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/report-facebook-and-google-should-do-more-to-remove-scam-ads/"><u>Report: Facebook and Google Should Do More to Remove Scam Ads</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/stepping-through-the-art-of-subtle-volume-lowering-in-audacity-for-2024/"><u>Stepping Through the Art of Subtle Volume Lowering in Audacity for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-for-truth-on-platforms-during-a-global-crisis/"><u>The Battle for Truth on Platforms During a Global Crisis</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dark-side-3-issues-with-facebooks-virtual-reality/"><u>The Dark Side: 3 Issues with Facebook's Virtual Reality</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-future-is-here-with-teslas-driverless-taxi-unveiling-details-on-pricing-release-date-and-tech-specs/"><u>The Future Is Here with Tesla's Driverless Taxi - Unveiling Details on Pricing, Release Date & Tech Specs.</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-your-social-media-experience-with-todays-feature/"><u>Transforming Your Social Media Experience with Today’s Feature</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/unwind-in-a-world-of-top-stress-busters-for-2024/"><u>Unwind in a World of Top Stress Busters for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/upgrade-to-gold-tier-buy-your-way-in-meta/"><u>Upgrade to Gold Tier: Buy Your Way in Meta</u></a></li>
+</ul></div>
 

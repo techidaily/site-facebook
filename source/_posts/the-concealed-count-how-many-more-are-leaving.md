@@ -1,7 +1,7 @@
 ---
 title: "The Concealed Count: How Many More Are Leaving?"
-date: 2024-09-30T16:46:06.179Z
-updated: 2024-10-03T16:10:58.368Z
+date: 2024-10-06T21:44:53.249Z
+updated: 2024-10-08T17:15:09.165Z
 tags:
   - facebook
 categories:
@@ -38,16 +38,22 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 
  Talking about other metrics, the monthly active users saw a rise of two million—which is again negligible. Meta’s revenue grew from $29.01 billion in Q3 2021 to $33.67 billion in the next quarter. But the lower-than-expected net income and forecast caused Meta's share price to plunge.
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Mark Zuckerberg's Statement on Losing Users
 
 ![mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Credits:[Anthony Quintano via Flickr](https://www.flickr.com/photos/quintanomedia/47774197691)
 
@@ -58,10 +64,10 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
  But TikTok is not the only[reason for Facebook's declining users](https://www.makeuseof.com/why-facebook-is-losing-users/) . Lack of interest among the younger population, no markets to expand into, and its controversial privacy and tracking policies have all contributed to this trend.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is Facebook’s End Near?
@@ -69,10 +75,10 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 ![facebook logo fallen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-logo-fallen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  A negligibly-small drop in the number of daily users, and that too for the first time, doesn’t mean that Facebook will fade away anytime soon. The Meta’s expansion into the metaverse will definitely help its flagship product, Facebook.
@@ -86,16 +92,10 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
  As it aggressively promotes Horizon Worlds, VR devices, and Reels, Facebook might regain the interest of young adults—a step which is essential to increase its user base. Moreover, a change in its privacy program and ads infrastructure can also help the platform.
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's User Loss Is Not as Big as It Seems
@@ -121,19 +121,20 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/2024-approved-framing-photos-and-videos-playing-with-text-deformation/"><u>2024 Approved Framing Photos & Videos Playing With Text Deformation</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Motorola Moto G34 5G | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-the-ultimate-guide-to-apples-top-5-navigation-apps/"><u>Discover the Ultimate Guide to Apple's Top 5 Navigation Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-change-your-childs-information-in-messenger-kids/"><u>How to Change Your Child's Information in Messenger Kids</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-xiaomi-redmi-note-13-proplus-5g-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Xiaomi Redmi Note 13 Pro+ 5G</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-straightforward-steps-upside-down-video-with-vlc-software/"><u>In 2024, Straightforward Steps Upside-Down Video with VLC Software</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/inside-toms-computer-store-in-depth-hardware-analysis-and-guides/"><u>Inside Tom's Computer Store: In-Depth Hardware Analysis and Guides</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-verification-are-the-benefits-justifiable/"><u>Meta Verification: Are The Benefits Justifiable?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/al-mobile-photography-and-videography-on-ios-and-android-for-2024/"><u>Optimal Mobile Photography and Videography on iOS & Android for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/syncopating-success-stories-facebook-and-spotifys-upcoming-boombox-feat/"><u>Syncopating Success Stories: Facebook & Spotify's Upcoming Boombox Feat</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/the-humor-in-highlights-best-mobile-edits-compared-for-2024/"><u>The Humor in Highlights Best Mobile Edits Compared for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-digital-footprints-changing-your-facebook-account-name/"><u>Transforming Digital Footprints: Changing Your Facebook Account Name</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-instagrams-and-facebooks-ad-innovations/"><u>Unveiling Instagram's and Facebook's Ad Innovations</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-governments-seek-to-curtail-the-power-of-technology-titans/"><u>Why Governments Seek to Curtail the Power of Technology Titans</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-snap-happy-with-hero5-black-tips-for-stunning-visuals/"><u>[New] In 2024, Snap-Happy with Hero5 Black Tips for Stunning Visuals</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-guffaw-gazette-twitters-funniest-threads/"><u>[Updated] In 2024, Guffaw Gazette Twitter's Funniest Threads</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-investment-in-headsets-post-breach-user-data-recovery/"><u>$300 Investment in Headsets, Post-Breach User Data Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-direct-browser-within-fb-app/"><u>Controlling Direct Browser Within FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptos-climb-in-online-advertising-landscape/"><u>Crypto's Climb in Online Advertising Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-latest-the-mobility-driven-portal-go-model/"><u>Facebook's Latest: The Mobility-Driven Portal Go Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-set-up-and-use-your-facebook-portal-tv-for-video-chats/"><u>How to Set Up and Use Your Facebook Portal TV for Video Chats</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-motorola-moto-g34-5g-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Motorola Moto G34 5G Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-can-we-unlock-our-samsung-galaxy-a14-5g-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Samsung Galaxy A14 5G Phone Screen?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-role-of-analytics-in-achieving-igtv-viral-status/"><u>In 2024, The Role of Analytics in Achieving IGTV Viral Status</u></a></li>
+<li><a href="https://extra-support.techidaily.com/magix-composition-wizard-an-audio-editing-experience-for-2024/"><u>Magix Composition Wizard An Audio Editing Experience for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlined-personalization-the-new-standard-on-facebook/"><u>Streamlined Personalization: The New Standard on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sweet-release-from-social-media-shackles-deleting-your-company-page/"><u>Sweet Release From Social Media Shackles: Deleting Your Company Page</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/which-language-benefits-you-more-in-global-settings-german-or-french/"><u>Which Language Benefits You More in Global Settings, German or French?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/easure-hunt-accessing-previously-deleted-content-for-2024/"><u>YT Treasure Hunt Accessing Previously Deleted Content for 2024</u></a></li>
 </ul></div>
 

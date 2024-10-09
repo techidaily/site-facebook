@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the New Playbook: U.S. Antitrust Regulation for Big Technology Companies"
-date: 2024-09-26T17:47:07.046Z
-updated: 2024-10-03T20:47:27.415Z
+date: 2024-10-05T18:30:51.578Z
+updated: 2024-10-09T01:29:53.735Z
 tags:
   - facebook
 categories:
@@ -34,26 +34,27 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -66,13 +67,6 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
  In short, this antitrust bill will ban companies from preferring their own products or services unfairly on their marketplace platforms. "Choosing" winners or losers will become a thing of the past.
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
@@ -96,6 +90,13 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 
 In essence: leave the selling to the sellers.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -106,16 +107,16 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -128,13 +129,6 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -157,18 +151,20 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-ideal-techniques-for-noiseless-recording/"><u>[New] Ideal Techniques for Noiseless Recording</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-dynamic-duo-approach-using-two-photos-in-one-instagram-story-for-2024/"><u>[New] The Dynamic Duo Approach Using Two Photos in One Instagram Story for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-crop-companions-best-farming-games-to-gather-with-buddies/"><u>[Updated] In 2024, Crop Companions Best Farming Games to Gather with Buddies</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-screen-snatching-solution/"><u>[Updated] In 2024, Screen Snatching Solution</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-superior-streaming-technologies-for-youtube-starters/"><u>[Updated] In 2024, Superior Streaming Technologies for YouTube Starters</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/comprehvew-into-the-future-with-the-sony-car-afeela-release-timeline-and-price-estimates-explored/"><u>Comprehvew Into the Future with the Sony Car (Afeela): Release Timeline and Price Estimates Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-now-awaits-your-no-media-live-broadcast/"><u>Instagram Now Awaits Your No-Media Live Broadcast</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-facebook-remove-unwanted-post-comments/"><u>Mastering Facebook: Remove Unwanted Post Comments</u></a></li>
-<li><a href="https://facebook.techidaily.com/metaversescape-vs-vrworld-6-key-areas-of-divergence-unveiled/"><u>Metaversescape vs VRworld: 6 Key Areas of Divergence Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/monitor-fading-image-captures-facebook-messaging-alerts/"><u>Monitor Fading Image Captures: Facebook Messaging Alerts</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/solo-voices-that-echo-a-podcasters-pathway/"><u>Solo Voices that Echo A Podcaster's Pathway</u></a></li>
-<li><a href="https://facebook.techidaily.com/synchronizing-your-social-voice-across-diverse-fb-communities/"><u>Synchronizing Your Social Voice Across Diverse FB Communities</u></a></li>
-<li><a href="https://win-great.techidaily.com/will-microsoft-restrict-windows-11-enhancements-for-legacy-hardware-systems-insights-from-zdnet/"><u>Will Microsoft Restrict Windows 11 Enhancements for Legacy Hardware Systems? Insights From ZDNet</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-breaking-barriers-next-level-strategies-for-fb-video-success/"><u>[New] 2024 Approved Breaking Barriers Next-Level Strategies for FB Video Success</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-guide-to-homemade-film-crafting-youtube-and-beyond/"><u>[Updated] In 2024, A Guide to Homemade Film Crafting, YouTube & Beyond</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-minecraft-branding-resources-for-youtubers/"><u>[Updated] Minecraft Branding Resources for YouTubers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pushing-boundaries-with-hps-next-gen-4k-display-envy-27/"><u>[Updated] Pushing Boundaries with HP's Next Gen 4K Display, Envy 27</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-the-ultimate-mix-of-soundtracks-and-visuals-adding-srt-to-mp4-for-2024/"><u>[Updated] The Ultimate Mix of Soundtracks and Visuals Adding SRT to MP4 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-heavy-investment-in-wordsmiths-fbs-strategic-5m-plan-against-substacks-rise/"><u>A Heavy Investment in Wordsmiths: FB's Strategic $5M Plan Against Substack’s Rise</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/descargas-gratuitas-y-conversion-en-linea-de-musica-m4r-a-aac-mediante-movavi/"><u>Descargas Gratuitas Y Conversión en Línea De Música M4R a AAC Mediante Movavi</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-the-latest-from-openai-the-ultimate-guide-to-their-custom-gpt-platform/"><u>Discover the Latest From OpenAI: The Ultimate Guide to Their Custom GPT Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-social-network-to-honor-all-groupies/"><u>Leveraging Social Network to Honor All Groupies</u></a></li>
+<li><a href="https://common-error.techidaily.com/nier-automata-crashes-on-desktop-resolved-effective-fixes-and-tweaks-for-gamers/"><u>Nier: Automata Crashes on Desktop Resolved: Effective Fixes and Tweaks for Gamers</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-solidity-amidst-storms-what-are-crypto-stability-tokens/"><u>Seeking Solidity Amidst Storms: What Are Crypto Stability Tokens?</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-social-space-management-with-facebooks-latest-tools/"><u>Streamlining Social Space Management with Facebook's Latest Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-face-whistleblower-and-their-message/"><u>The Face Whistleblower and Their Message</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-revival-of-an-iconic-social-app-in-the-digital-age/"><u>The Revival of an Iconic Social App in the Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-the-tables-on-fb-with-off-facebook-activity-insight/"><u>Turn the Tables on FB with Off-Facebook Activity Insight</u></a></li>
 </ul></div>
 

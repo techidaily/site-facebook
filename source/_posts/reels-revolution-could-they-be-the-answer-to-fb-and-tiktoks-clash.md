@@ -1,7 +1,7 @@
 ---
 title: "Reels Revolution: Could They Be the Answer to FB and TikTok's Clash?"
-date: 2024-09-11T18:46:37.848Z
-updated: 2024-09-17T00:13:08.077Z
+date: 2024-10-14T10:09:55.568Z
+updated: 2024-10-15T00:42:50.534Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/9cc152d1aca0892df1ca5596ac3ad03cce388893b
 
  Facebook is losing a specific segment of consumers, namely Gen Z, to its rival TikTok.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Depleting Engagement Levels
 
  Along with the decline in daily active users, Facebook is also suffering from depleting user engagement levels.
@@ -55,16 +62,10 @@ thumbnail: https://thmb.techidaily.com/9cc152d1aca0892df1ca5596ac3ad03cce388893b
  The decline in Facebook’s engagement level and the subsequent drop in revenue are adding up to a significant plunge in the company’s stock price. Meta, Facebook’s parent company, saw a stock drop of over $200 billion after a dismal quarterly earnings report.
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Facebook Plans to Regain Momentum
@@ -77,31 +78,17 @@ thumbnail: https://thmb.techidaily.com/9cc152d1aca0892df1ca5596ac3ad03cce388893b
 
  Zuckerberg realizes the growing demand for short-form video content. Following the drop in stock price, he accepted the company is up against an “unprecedented level of competition” from TikTok. He asked Meta employees to focus on Reels, which has had significant success on Instagram.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Can Reels Save Facebook?
 
 ![video reel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Reels.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  While short-form video may be trending, TikTok is an entirely different product, and it won’t be easy for Facebook to copy it as it did Stories from Snapchat. We wrote a full article outlining why[the Reels vs. TikTok battle](http://www.makeuseof.com/use-instagram-reels-or-tiktok/) will be difficult for Facebook, so it's worth checking that out if you want to learn more.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Facebook Is Seen as a Mixed Media Platform
@@ -126,6 +113,13 @@ thumbnail: https://thmb.techidaily.com/9cc152d1aca0892df1ca5596ac3ad03cce388893b
 
 ![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Even if Facebook succeeds at winning the attention of Gen-Z (prominent audiences of TikTok) with Reels, it still has to figure out a way to make it commercially successful. Short-form video won’t be as easy to monetize as long-form content.
 
  Meta is testing ways for creators to monetize their content, including the[Reels Play bonus program](https://www.makeuseof.com/instagram-reels-bonuses/) , but its viability is yet to be seen. The challenge for Facebook is to incorporate less intrusive ads into Reels without impacting user experience.
@@ -149,5 +143,19 @@ thumbnail: https://thmb.techidaily.com/9cc152d1aca0892df1ca5596ac3ad03cce388893b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-optimal-pick-the-top-ten-phone-and-pc-video-calls/"><u>[New] 2024 Approved Optimal Pick The Top Ten Phone & PC Video Calls</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-enhance-and-unblur-photo-editing-tools-ranked-1-10/"><u>[Updated] 2024 Approved Enhance and Unblur Photo Editing Tools Ranked #1-10</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-for-designing-events-on-facebook/"><u>Essential Steps for Designing Events on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-essential-elements-in-metas-new-privacy-rules/"><u>Exploring Essential Elements in Meta’s New Privacy Rules</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-tecno-pova-5-pro-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Tecno Pova 5 Pro Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/humor-hacks-a-compendium-of-top-meme-makers/"><u>Humor Hacks A Compendium of Top Meme Makers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-enhancing-follows-into-genuine-subscriptions/"><u>In 2024, Enhancing Follows Into Genuine Subscriptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-digital-reality-understanding-facebooks-vr-future/"><u>Navigating The Digital Reality: Understanding Facebook's VR Future</u></a></li>
+<li><a href="https://review-topics.techidaily.com/nokia-g310-unlock-tool-remove-android-phone-password-pin-pattern-and-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Nokia G310 Unlock Tool - Remove android phone password, PIN, Pattern and fingerprint</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-to-motorola-moto-g84-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Motorola Moto G84 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-itel-p55plus-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Itel P55+ Phone Pattern Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-updating-your-privacy-habits-is-crucial-insights-from-facebooks-latest-changes/"><u>Why Updating Your Privacy Habits Is Crucial: Insights From Facebook's Latest Changes</u></a></li>
+</ul></div>
 

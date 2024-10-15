@@ -1,7 +1,7 @@
 ---
 title: "Online Evolution: The Top 4 Changes in Social Communication Networks"
-date: 2024-09-10T17:32:52.199Z
-updated: 2024-09-16T17:58:01.008Z
+date: 2024-10-12T10:59:18.801Z
+updated: 2024-10-14T19:24:53.987Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/399b71f22f6a0f097f9f941327a817b697b933fa5
 
  This focus has not yet translated to popular use though. Most Facebook users are not in the metaverse yet or even own a VR headset. According to[Forbes](https://www.forbes.com/sites/danidiplacido/2022/08/21/mark-zuckerberg-upgraded-his-metaverse-avatar-after-the-entire-internet-laughed-at-him/?sh=5e6c88ab35a3) , the upgraded metaverse avatar that Mark Zuckerberg unveiled in 2022 was also widely unpopular. Although, one[2023 social media prediction](http://www.makeuseof.com/social-media-predictions-2023/) is that as Meta continues to push the metaverse, consumers may finally join in.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Elon Musk Took Over Twitter
 
 [Elon Musk bought Twitter](https://www.makeuseof.com/how-elon-musk-bought-twitter-timeline/) in October 2022, and it has been chaos at Twitter ever since. From pausing Twitter Blue to re-offering it and changing the price, the social media platform’s financial future has never been more uncertain.
@@ -39,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/399b71f22f6a0f097f9f941327a817b697b933fa5
  Musk also changed the way Twitter is run by firing over half of the company's employees and restructuring the company. He even hinted at a possible return of video-sharing app Vine in 2022, although no evidence of this return has been seen yet.
 
  Potential changes to Twitter’s community guidelines and policies have also been the subject of controversy in 2022 as Musk prioritized “free speech” on the platform.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Reels, Reels, Reels
 
@@ -49,16 +63,10 @@ thumbnail: https://thmb.techidaily.com/399b71f22f6a0f097f9f941327a817b697b933fa5
  Reels are Instagram’s answer to TikTok gaining popularity. TikTok isn’t the only social media that Instagram copied in 2022 though.[Instagram also tested Candid Stories](https://www.makeuseof.com/instagram-candid-challenges-test-bereal-feature/) in 2022 which are the same concept as new social media app BeReal, where a notification at a random time each day prompts you to immediately post a picture of whatever you are doing at that moment.
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. The Rise of BeReal
@@ -67,16 +75,16 @@ thumbnail: https://thmb.techidaily.com/399b71f22f6a0f097f9f941327a817b697b933fa5
 
  BeReal didn’t just popularize the once-per-day photo. The app has proven that audiences want more authentic content and less of the perfect photoshopped influencer content that other platforms have become known for. Even if BeReal itself doesn’t last, the impact on the kind of content we see all over social media will likely last beyond 2022.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Social Media in 2022
 
 ![social media apps on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/social-media-apps-on-phone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  2022 was a defining year for social media all over the world. Many of the changes we saw are likely not just trends; they are transformations to our favorite platforms that will continue to evolve as we use social media differently.
 
@@ -95,5 +103,21 @@ thumbnail: https://thmb.techidaily.com/399b71f22f6a0f097f9f941327a817b697b933fa5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-spiritual-slow-motion-tutorial/"><u>[New] Spiritual Slow Motion Tutorial</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-hands-on-with-hp-envy-27-pushing-screen-tech-to-limits/"><u>[Updated] Hands-On with HP Envy 27 Pushing Screen Tech to Limits</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-setup-essentials-prepping-for-a-thriving-youtube-channel/"><u>[Updated] Setup Essentials Prepping for a Thriving YouTube Channel</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-facebook-messages-a-study-on-messenger-symbols/"><u>Deciphering Facebook Messages - A Study on Messenger Symbols</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-online-indecision-an-insight-into-vague-blogging/"><u>Decoding Online Indecision: An Insight Into Vague Blogging</u></a></li>
+<li><a href="https://facebook.techidaily.com/deletion-of-online-forum-interactions-via-facebook/"><u>Deletion of Online Forum Interactions via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-approval-of-multiple-profiles-from-a-single-facebook-account/"><u>Demystifying the Approval of Multiple Profiles From a Single Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-horizons-exploring-facebooks-stealthy-smartwatch-creation/"><u>Digital Horizons: Exploring Facebook's Stealthy Smartwatch Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/disguised-choices-dark-patterns-of-privacy/"><u>Disguised Choices: Dark Patterns of Privacy</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-a-found-iphone-14-pro-max-drfone-by-drfone-ios/"><u>How To Unlock A Found iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-from-the-apple-iphone-13-pro-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock From the Apple iPhone 13 Pro Without Previous Owner?</u></a></li>
+<li><a href="https://win-latest.techidaily.com/microsoft-launches-copilot-lab-enhancing-user-experience-with-advanced-ai-assistance-technews/"><u>Microsoft Launches Copilot Lab, Enhancing User Experience with Advanced AI Assistance - TechNews</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-file-sharing-windows-best-5-choices/"><u>Navigating File Sharing: Windows' Best 5 Choices</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-final-cut-face-off-what-sets-pro-apart-from-express/"><u>Updated Final Cut Face-Off What Sets Pro Apart From Express</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Phone Data: Silent Salesperson? Real Luck, Or Designed Deception?"
-date: 2024-10-06T03:44:34.650Z
-updated: 2024-10-09T03:44:41.508Z
+date: 2024-10-11T21:27:23.741Z
+updated: 2024-10-15T08:57:31.062Z
 tags:
   - facebook
 categories:
@@ -32,13 +32,6 @@ What is going on?
 
  Let's consider the evidence and try to work out. Is your phone listening to you for ads, or is it simply a good, old-fashioned, coincidence?
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Does Your Phone Listen to You for Adverts?
 
  Various users across the web have claimed that something fishy is going on with their phones.
@@ -46,13 +39,6 @@ What is going on?
  They believe that smartphone microphones are being used to record what they say, with the information used to[better target personalized Google ads](https://www.makeuseof.com/tag/disable-googles-personalized-ads/) on websites and Facebook.
 
  It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman[reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Reddit Users Think Their Phones Are Listening
 
@@ -71,10 +57,10 @@ What is going on?
  You'll find many similar stories on Reddit and beyond. Check this account of[a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is My Smartphone Really Listening to Me for Ads?
@@ -89,11 +75,25 @@ What is going on?
 
 ![Is your phone listening to you and serving adverts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/12/muo-security-phone-listening-advert-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
 
  Consequently, ensuring your[Android permissions don't give apps access](https://www.makeuseof.com/tag/what-are-android-permissions-why-should-you-care/) to your phone's mic is a good idea. Does Google listen to your conversations for ads? Probably not, but if you’re concerned you should “de-Google” your life entirely.
 
  It does**seem** as though this is something more than coincidence. After all, proving that smartphone mics are collecting data to target content to users is tricky. But as we know that phones and digital assistants are listening, is it really a surprise that companies like Google, Amazon, and Facebook should be interested in what you're saying?
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can You Prove If an App Is Listening to You?
 
@@ -108,6 +108,13 @@ What is going on?
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
 
  Meanwhile, data protection expert Mariano delli Santi[told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Do Phones Listen to You? Companies Say “No”
 
@@ -132,13 +139,6 @@ What is going on?
 * Botulism
 
  Surprisingly, not a single topic appeared as adverts, neither as pop-ups nor as inbox spam. There was no Google News feed item, and nothing on any linked devices.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## So, Why Do You Get Ads for Things You Talk About?
 
@@ -167,15 +167,18 @@ What is going on?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-rapid-routines-sending-photos-from-iphone-to-computer/"><u>2024 Approved Rapid Routines Sending Photos From iPhone to Computer</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-leap-in-user-engagement-facebooks-informed-content-experiment/"><u>A Leap in User Engagement: Facebook’s Informed Content Experiment</u></a></li>
-<li><a href="https://facebook.techidaily.com/biden-unveils-vaccination-blitz-on-snapchat-and-twitter/"><u>Biden Unveils Vaccination Blitz on Snapchat & Twitter</u></a></li>
-<li><a href="https://facebook.techidaily.com/customized-digital-access-facebooks-strategy-surpasses-apples-model/"><u>Customized Digital Access: Facebook's Strategy Surpasses Apple's Model</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719144254299-digital-dollar-in-pasture-zuckerbergs-peculiar-choice/"><u>Digital Dollar in Pasture: Zuckerberg's Peculiar Choice.</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-the-red-screen-error-ultimate-troubleshooting-guide/"><u>Fixing the Red Screen Error: Ultimate Troubleshooting Guide</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-nokia-g310-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Nokia G310 Phone? Unlock It Now</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-google-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Google</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-s-top-picks-android-video-editor-apps-compatible-with-chromebook/"><u>Updated S Top Picks Android Video Editor Apps Compatible with Chromebook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-which-video-editor-wins-filmora-or-democreator-reviewed-for-2024/"><u>[Updated] Which Video Editor Wins? Filmora or Democreator Reviewed for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-iphone-video-merging-techniques/"><u>2024 Approved Mastering iPhone Video Merging Techniques</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-stepwise-strategy-editing-multi-snap-chats-with-ease/"><u>2024 Approved Stepwise Strategy Editing Multi-Snap Chats with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-pledges-for-metaverse-are-you-interested/"><u>Facebook Pledges for Metaverse: Are You Interested?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-fresh-perspective-assessing-the-impact-of-instagram-on-youthful-minds/"><u>Facebook's Fresh Perspective: Assessing the Impact of Instagram on Youthful Minds</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-apple-iphone-13-location-is-wrong-drfone-by-drfone-virtual-ios/"><u>How to Fix My Apple iPhone 13 Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-elevate-engagement-enhancing-videos-with-pro-editing-skills/"><u>In 2024, Elevate Engagement Enhancing Videos with Pro Editing Skills</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-tutorial-your-facebook-journey-maped-and-analyzed/"><u>In-Depth Tutorial: Your Facebook Journey Maped and Analyzed</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-your-online-community-engagement/"><u>Revamping Your Online Community Engagement</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/sharing-stories-that-resonate-with-a-digital-audience-yt-for-2024/"><u>Sharing Stories that Resonate with a Digital Audience YT for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-impact-of-user-engagement-on-advertising/"><u>The Hidden Impact of User Engagement on Advertising</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Oppo Reno 11F 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-newsfeed-redefined-4-innovative-approaches-for-content-customization/"><u>Your Newsfeed, Redefined: 4 Innovative Approaches for Content Customization</u></a></li>
 </ul></div>
 

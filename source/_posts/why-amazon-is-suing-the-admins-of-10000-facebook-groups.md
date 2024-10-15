@@ -1,7 +1,7 @@
 ---
 title: Why Amazon Is Suing the Admins of 10,000 Facebook Groups
-date: 2024-09-10T17:20:45.989Z
-updated: 2024-09-17T00:19:33.254Z
+date: 2024-10-08T02:44:40.413Z
+updated: 2024-10-15T12:18:55.032Z
 tags:
   - facebook
 categories:
@@ -38,9 +38,23 @@ thumbnail: https://thmb.techidaily.com/6060180ff020afbbd02ae1895cf9d82d0058a11f9
 
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Amazon Filed the Case
 
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
 
@@ -49,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/6060180ff020afbbd02ae1895cf9d82d0058a11f9
  Therefore, Amazon intends to use the information that this case uncovers to "identify bad actors and remove fake reviews" that both Facebook and Amazon have failed to catch.
 
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
 
@@ -61,16 +82,10 @@ thumbnail: https://thmb.techidaily.com/6060180ff020afbbd02ae1895cf9d82d0058a11f9
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -92,5 +107,26 @@ thumbnail: https://thmb.techidaily.com/6060180ff020afbbd02ae1895cf9d82d0058a11f9
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-howtos.techidaily.com/2022-tips-how-to-fix-fallout-4-lag-issue/"><u>[2022 Tips] How to Fix Fallout 4 Lag Issue</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-breaking-down-the-process-for-youtube-comment-highlights/"><u>[New] Breaking Down the Process for YouTube Comment Highlights</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-analyzing-the-impact-of-reduced-photo-jiggles-in-adobe-for-2024/"><u>[Updated] Analyzing the Impact of Reduced Photo Jiggles in Adobe for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-duty-dispute-whatsapp-sues-over-it-rule-impacts/"><u>Digital Duty Dispute: WhatsApp Sues Over IT Rule Impacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/directive-strategies-to-rule-your-facebook-group/"><u>Directive Strategies to Rule Your Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-if-facebooks-reels-can-rival-tiktok-writes/"><u>Discover if Facebook’s Reels Can Rival TikTok’ Writes</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-immersive-ar-messages-from-fb-messenger/"><u>Discover Immersive AR Messages From FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-recent-favorites-fbs-new-videos/"><u>Discover Recent Favorites: FB's New Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-most-memorable-podcasts-of-2022/"><u>Discovering the Most Memorable Podcasts of 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-reasons-for-facebooks-naming-shift/"><u>Dissecting the Reasons for Facebook's Naming Shift</u></a></li>
+<li><a href="https://review-topics.techidaily.com/does-vivo-y27s-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Vivo Y27s Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-for-black-background-on-facebook/"><u>Easy Steps for Black Background on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-engagement-a-compreayer-of-facebooks-new-moderation-features-for-groups/"><u>Elevate Your Engagement: A Compreayer of Facebook’s New Moderation Features for Groups</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-enhance-engagement-with-these-15-snap-insights/"><u>In 2024, Enhance Engagement with These 15 Snap Insights</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-vivo-x-fold-2-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Vivo X Fold 2 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-rated-iphone-mp4-video-converter-transform-movmkv-files-and-youtube-videos/"><u>Top Rated iPhone MP4 Video Converter - Transform MOV/MKV Files & YouTube Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/transferir-conteudo-dvd-para-pen-drive-tecnicas-faceis-em-sistemas-operacionais-windows-e-macos-x/"><u>Transferir Conteúdo DVD Para Pen Drive: Técnicas Fáceis Em Sistemas Operacionais Windows E MacOS X</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-elevate-your-video-experience-best-resolution-enhancement-tools-for-2024/"><u>Updated Elevate Your Video Experience Best Resolution Enhancement Tools for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/visual-data-harvester-for-2024/"><u>Visual Data Harvester for 2024</u></a></li>
+</ul></div>
 

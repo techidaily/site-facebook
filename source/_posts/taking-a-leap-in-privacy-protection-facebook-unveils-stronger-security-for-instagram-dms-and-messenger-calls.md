@@ -1,7 +1,7 @@
 ---
 title: "Taking a Leap in Privacy Protection: Facebook Unveils Stronger Security for Instagram DMs and Messenger Calls."
-date: 2024-09-11T17:24:02.023Z
-updated: 2024-09-16T23:51:08.525Z
+date: 2024-10-13T08:52:52.098Z
+updated: 2024-10-15T12:49:39.731Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/b65bf539ad3bc7b67798ef76b0171c5880f30454a
 
  Aside from expanding end-to-end encryption, Facebook also said that it's giving users more control over their disappearing messages. Users in the chat can choose from a wider range of times when it comes to how long it takes for new messages to disappear. You'll now be able to choose from anywhere between five seconds and 24 hours.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Adapts to Growing Security Awareness Among Users
 
  Many messaging apps, such as Signal, WhatsApp, and Telegram already use end-to-end encryption. More users are prioritizing their security, and that means limiting the communication apps they use to those that offer end-to-end encryption.
@@ -59,18 +66,22 @@ thumbnail: https://thmb.techidaily.com/b65bf539ad3bc7b67798ef76b0171c5880f30454a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-speedy-image-viewer-powered-by-windows-11/"><u>[New] 2024 Approved Speedy Image Viewer Powered by Windows 11</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-fast-windows-quick-skim-a-step-by-step-guide/"><u>[Updated] 2024 Approved Fast Windows Quick Skim A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-turn-your-watched-fb-video-into-an-mp3-file-for-2024/"><u>[Updated] Turn Your Watched FB Video Into an MP3 File for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-unveiling-solutions-to-youtube-short-pitfalls/"><u>2024 Approved Unveiling Solutions to YouTube Short Pitfalls</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/crafting-art-with-gpt-4-and-dall-e-an-image-generation-guide/"><u>Crafting Art with GPT-4 & DALL-E: An Image Generation Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-wave-of-feed-personalization/"><u>Facebook's New Wave of Feed Personalization</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-accelerates-text-interaction-new-tools-transforming-user-experience-in-messenger-and-instagram-apps/"><u>FB Accelerates Text Interaction: New Tools Transforming User Experience in Messenger and Instagram Apps</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-vivo-y27-4g-by-drfone-android/"><u>How to Bypass FRP from Vivo Y27 4G?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-snapchat-location-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-asus-rog-phone-7-ultimate-easily-by-drfone-android/"><u>In 2024, How To Unlock a Asus ROG Phone 7 Ultimate Easily?</u></a></li>
+<li><a href="https://facebook.techidaily.com/insights-into-facebooks-impending-name-evolution/"><u>Insights Into Facebook’s Impending Name Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/leak-exposed-decoding-the-underlying-patterns-of-facebook-data/"><u>Leak Exposed: Decoding the Underlying Patterns of Facebook Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-data-protection-exploring-new-features-in-facebooks-privacy-hub/"><u>Tailored Data Protection: Exploring New Features in Facebook's Privacy Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-of-creating-engrossing-digital-biographies/"><u>The Essentials of Creating Engrossing Digital Biographies</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracking-down-users-excluded-from-your-fb-circle/"><u>Tracking Down Users Excluded From Your FB Circle</u></a></li>
+</ul></div>
 

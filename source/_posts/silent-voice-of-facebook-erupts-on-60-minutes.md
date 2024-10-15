@@ -1,7 +1,7 @@
 ---
 title: Silent Voice of Facebook Erupts on 60 Minutes
-date: 2024-09-09T16:05:25.087Z
-updated: 2024-09-16T22:12:55.289Z
+date: 2024-10-13T18:13:06.117Z
+updated: 2024-10-15T09:42:40.504Z
 tags:
   - facebook
 categories:
@@ -34,7 +34,21 @@ thumbnail: https://thmb.techidaily.com/04715cc01635128f130003aeefa217d9440724157
 
  Here are some of the biggest claims made by Haugen in her recent 60 Minutes interview:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5 Claims Made by Frances Haugen on 60 Minutes
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Facebook’s Algorithm Shows You Hateful and Divisive Content
 
@@ -44,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/04715cc01635128f130003aeefa217d9440724157
 
  Related:[How to Disable Algorithmic Feeds on Twitter, Instagram, and Facebook](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Facebook Is Profiting From Showing You Hateful and Divisive Content
 
  Haugen claims that the more you consume content that evokes anger or incites violence, the more profitable it is for Facebook.
@@ -51,10 +72,10 @@ thumbnail: https://thmb.techidaily.com/04715cc01635128f130003aeefa217d9440724157
 > Facebook makes more money when you consume more content. People enjoy engaging with things that elicit an emotional reaction. And the more anger that they get exposed to, the more they interact and the more they consume.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Facebook Chooses Profit Over Safety
@@ -70,13 +91,6 @@ thumbnail: https://thmb.techidaily.com/04715cc01635128f130003aeefa217d9440724157
 > As soon as the election was over, they turned them back off or they changed the settings back to what they were before, to prioritize growth over safety.
 
  Related:[Study Suggests Facebook Handled Election Misinformation Poorly](https://www.makeuseof.com/study-facebook-election-misinformation/)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Instagram Is Harming Teenage Girls
 
@@ -103,5 +117,24 @@ thumbnail: https://thmb.techidaily.com/04715cc01635128f130003aeefa217d9440724157
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-revolutionize-earning-with-youtube-short-tactics/"><u>[Updated] 2024 Approved Revolutionize Earning with Youtube Short Tactics</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-how-to-use-zoom-in-your-daily-gmail-routine/"><u>[Updated] How to Use Zoom in Your Daily Gmail Routine</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-profile-with-3d-imagery/"><u>Enhancing Your Facebook Profile with 3D Imagery</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-best-free-youtube-ending-creators-top-6-picks/"><u>In 2024, Best Free YouTube Ending Creators - Top 6 Picks</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-huawei-nova-y71-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Huawei Nova Y71 to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-is-giving-creators-more-ways-to-make-money/"><u>Instagram Is Giving Creators More Ways to Make Money</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-to-revise-community-standards-in-fb-groups/"><u>Instructions to Revise Community Standards in FB Groups</u></a></li>
+<li><a href="https://some-skills.techidaily.com/introducing-efficient-speech-to-text-utilization-in-powerpoint-for-2024/"><u>Introducing Efficient Speech-to-Text Utilization in PowerPoint for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-friends-across-platforms-a-guide-to-xbox-social-synchronization/"><u>Making Friends Across Platforms: A Guide to Xbox Social Synchronization</u></a></li>
+<li><a href="https://windows11.techidaily.com/managing-excessive-cpu-consumption-by-dropbox-on-windows/"><u>Managing Excessive CPU Consumption by Dropbox on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-or-fiction-separating-fact-from-beliefs/"><u>Metaverse or Fiction: Separating Fact From Beliefs</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quick-tips-for-wi-fi-management-in-win-11/"><u>Quick Tips for Wi-Fi Management in Win 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-puzzles-dissecting-the-downside-of-digital-engagement/"><u>Social Puzzles: Dissecting the Downside of Digital Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-restoring-missing-fb-news-feed-items/"><u>Steps for Restoring Missing FB News Feed Items</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/steps-to-permanently-delete-your-instagram-profile-the-complete-guide-for-2024/"><u>Steps to Permanently Delete Your Instagram Profile The Complete Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-5-biggest-tech-fails-of-2022/"><u>The 5 Biggest Tech Fails of 2022</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-art-of-anime-adaptation-jujutsu-kaisens-tiktok-success/"><u>The Art of Anime Adaptation Jujutsu Kaisen's TikTok Success</u></a></li>
+</ul></div>
 

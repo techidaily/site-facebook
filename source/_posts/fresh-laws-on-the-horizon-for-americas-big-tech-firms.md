@@ -1,7 +1,7 @@
 ---
 title: Fresh Laws on the Horizon for America's Big Tech Firms
-date: 2024-10-02T23:26:01.054Z
-updated: 2024-10-08T18:17:32.105Z
+date: 2024-10-09T08:28:25.676Z
+updated: 2024-10-14T18:43:15.165Z
 tags:
   - facebook
 categories:
@@ -38,9 +38,23 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -66,13 +80,6 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -82,13 +89,6 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  The bill specifies a "conflict of interest" that should be avoided at all costs; a platform owner's responsibility to the marketplace that they manage conflicts deeply with that same platform owner's desire to out-sell the vendors that it represents.
 
 In essence: leave the selling to the sellers.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
@@ -101,10 +101,10 @@ In essence: leave the selling to the sellers.
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
@@ -112,10 +112,10 @@ In essence: leave the selling to the sellers.
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
@@ -151,24 +151,18 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-unearthing-the-best-storytelling-channels-yearly-roundup/"><u>[New] 2024 Approved Unearthing the Best Storytelling Channels Yearly Roundup</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-decreasing-bitrate-in-high-quality-obs/"><u>[New] Decreasing Bitrate in High-Quality OBS</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-streamline-your-filming-journey-a-step-by-step-guide-to-utilize-your-logitech-camera/"><u>[New] Streamline Your Filming Journey A Step-by-Step Guide to Utilize Your Logitech Camera</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/affordable-lawn-care-solutions-find-the-best-value-ride-on-and-push-lawn-mowers-reviewed/"><u>Affordable Lawn Care Solutions - Find the Best Value Ride-On and Push Lawn Mowers Reviewed</u></a></li>
-<li><a href="https://facebook.techidaily.com/banishing-your-online-profile-a-guide-to-deletion/"><u>Banishing Your Online Profile: A Guide to Deletion</u></a></li>
-<li><a href="https://facebook.techidaily.com/becoming-a-sage-of-symbolism-the-essential-guide-to-fb-emojis-and-icons/"><u>Becoming a Sage of Symbolism: The Essential Guide to FB Emojis and Icons</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-vk-insights-into-russias-social-media-world/"><u>Decoding VK: Insights Into Russia's Social Media World</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-vivo-x100-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Vivo X100 FRP</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-nokia-g22-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Nokia G22 Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-screen-to-air-comparison-who-wins-obs-or-twitch-studio/"><u>In 2024, Screen to Air Comparison Who Wins, OBS or Twitch Studio?</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-metas-verified-validity/"><u>Navigating Through Meta's Verified Validity</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-2024-approved-step-by-step-guide-how-to-translate-tiktok-videos/"><u>New 2024 Approved Step-by-Step Guide How to Translate TikTok Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-identity-new-space-modify-your-fb-profile-url/"><u>New Identity, New Space: Modify Your FB Profile URL</u></a></li>
-<li><a href="https://facebook.techidaily.com/pinpointing-exact-time-i-joined-facebook/"><u>Pinpointing Exact Time I Joined Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-sound-of-social-networking-project-boombox-by-fb-and-spotify/"><u>The Sound of Social Networking: Project Boombox by FB & SPOTIFY</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-triple-threat-of-metas-social-supremacy/"><u>The Triple Threat of Meta's Social Supremacy</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/unmatched-mobileweb-image-magnification-toolkit-for-2024/"><u>Unmatched Mobile/Web Image Magnification Toolkit for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/withholding-uninvited-network-suggestions-in-fb/"><u>Withholding Uninvited Network Suggestions in FB</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-leading-list-the-best-10-apps-for-live-racing-and-rugby-streaming/"><u>2024 Approved Leading List The Best 10 Apps for Live Racing & Rugby Streaming</u></a></li>
+<li><a href="https://program-issues.techidaily.com/defeating-ue4-coding-errors-expert-strategies-used-by-arise-game-developers/"><u>Defeating UE4 Coding Errors: Expert Strategies Used by Arise Game Developers</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/effortless-guide-to-revamping-synaptics-touchpad-ps2-controller-drivers/"><u>Effortless Guide to Revamping Synaptics TouchPad PS/2 Controller Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/expecting-encryption-upgrade-facebooks-e2ee-timeline/"><u>Expecting Encryption Upgrade: Facebook's E2EE Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-two-step-verification-a-comprehensive-guide/"><u>FB Two-Step Verification – A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-pioneers-dividing-tech-opinions/"><u>Five Pioneers Dividing Tech Opinions</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-hands-on-the-latest-sound-blaster-audigy-fx-driver-updates-now/"><u>Get Your Hands on the Latest Sound Blaster Audigy FX Driver Updates Now!</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/identifying-your-windows-11-version-and-build-number/"><u>Identifying Your Windows 11 Version & Build Number</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/laughter-lab-virtually/"><u>Laughter Lab Virtually</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-fb-navigation-shortcut-addition-and-deletion-tutorial/"><u>Streamline FB Navigation: Shortcut Addition & Deletion Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-titans-face-legal-scrutiny-from-president-trump-over-censorship/"><u>Tech Titans Face Legal Scrutiny From President Trump over Censorship</u></a></li>
+<li><a href="https://win-hot.techidaily.com/troubleshooting-and-repairing-audio-video-decoding-mishaps-in-your-premier-edit-suite/"><u>Troubleshooting and Repairing Audio-Video Decoding Mishaps in Your Premier Edit Suite</u></a></li>
+<li><a href="https://facebook.techidaily.com/upcoming-updates-on-facebook-focus-on-story-panels-with-reels-rooms/"><u>Upcoming Updates on Facebook: Focus on Story Panels with Reels, Rooms</u></a></li>
 </ul></div>
 

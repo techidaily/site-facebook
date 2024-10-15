@@ -1,7 +1,7 @@
 ---
 title: "Facebook Calls for Caution: Younger Generations Stepping Back From Instagram"
-date: 2024-10-03T21:11:10.153Z
-updated: 2024-10-09T02:39:58.081Z
+date: 2024-10-10T20:55:50.159Z
+updated: 2024-10-14T17:33:16.534Z
 tags:
   - facebook
 categories:
@@ -41,10 +41,10 @@ This feature could possibly address those concerns.
  Related:[Is an Instagram for Kids a Good or Bad Idea? The Pros and Cons](https://www.makeuseof.com/instagram-for-kids-pros-and-cons/)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Nudging Teens Away From Potentially Harmful Content
@@ -58,10 +58,10 @@ Here's how Clegg explained it:
  Related:[Why Instagram Is Forcing You to Add Your Birthday](https://www.makeuseof.com/instagram-forcing-you-add-birthday/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Facebook Introducing These Features?
@@ -75,10 +75,10 @@ Here's how Clegg explained it:
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
@@ -106,15 +106,21 @@ Here's how Clegg explained it:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-optimize-your-audio-content-expert-tips-for-editing-in-garageband/"><u>[New] Optimize Your Audio Content Expert Tips for Editing in GarageBand</u></a></li>
-<li><a href="https://facebook.techidaily.com/3-sources-of-anxiety-from-metas-ascendancy/"><u>3 Sources of Anxiety From Meta’s Ascendancy</u></a></li>
-<li><a href="https://facebook.techidaily.com/accessing-ancestral-social-ties-in-facebook-timeline/"><u>Accessing Ancestral Social Ties in Facebook Timeline</u></a></li>
-<li><a href="https://facebook.techidaily.com/anticipated-ruling-by-social-medias-governance-authority-on-trump/"><u>Anticipated Ruling by Social Media’s Governance Authority on Trump</u></a></li>
-<li><a href="https://facebook.techidaily.com/curating-a-healthier-newsfeed-avoiding-fb-reels/"><u>Curating a Healthier Newsfeed: Avoiding Fb Reels</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/discover-your-new-favorites-with-our-best-offline-ios-games-list/"><u>Discover Your New Favorites with Our Best Offline iOS Games List</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-poco-c55-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Poco C55?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-realme-narzo-n55-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Realme Narzo N55</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/securely-shifting-snapchat-images-onto-your-device-storage-for-2024/"><u>Securely Shifting SnapChat Images Onto Your Device Storage for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/why-is-ipogo-not-working-on-vivo-t2-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Vivo T2 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-simplified-guide-to-transform-vimeo-video-into-mp3/"><u>[New] Simplified Guide to Transform Vimeo Video Into MP3</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-sharpen-focus-expert-tips-on-the-psx-eraser-tool/"><u>[Updated] Sharpen Focus Expert Tips on the PSX Eraser Tool</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-zero-to-hero-navigating-youtubes-growth-journey/"><u>2024 Approved From Zero to Hero Navigating Youtube's Growth Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-group-dynamics-with-structured-rules-on-fb/"><u>Enhancing Group Dynamics with Structured Rules on FB</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Spy on Text Messages from Computer & Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-prime-alert-tones-selective-websites-guide/"><u>In 2024, Prime Alert Tones Selective Websites Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-top-10-most-watched-youtube-video-in-24-hours/"><u>In 2024, Top 10 Most Watched YouTube Video in 24 Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-facebook-sanctity-intact-detect-breaches/"><u>Keep Your Facebook Sanctity Intact – Detect Breaches</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/professional-footage-integrating-watermarks-and-logos-into-yt-videos/"><u>Professional Footage Integrating Watermarks and Logos Into YT Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-significance-showdown-decoding-status-hierarchies-in-twitter-and-meta/"><u>Social Significance Showdown: Decoding Status Hierarchies in Twitter and Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-tale-of-two-sides-to-joining-expat-groups-online/"><u>The Tale of Two Sides to Joining Expat Groups Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-untaging-yourself-in-online-communities/"><u>Tips for Untaging Yourself in Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-crowdflower-tools-that-boost-campaign-performance/"><u>Top 8 CrowdFlower Tools That Boost Campaign Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/underappreciated-innovations-the-most-important-unnoticed-tech-news/"><u>Underappreciated Innovations: The Most Important Unnoticed Tech News</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/vdy-pro-recorder-summary-detailed-analysis/"><u>VDY Pro Recorder Summary Detailed Analysis</u></a></li>
 </ul></div>
 

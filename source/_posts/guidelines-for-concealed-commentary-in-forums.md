@@ -1,7 +1,7 @@
 ---
 title: Guidelines for Concealed Commentary in Forums
-date: 2024-09-13T19:05:59.705Z
-updated: 2024-09-16T18:14:16.353Z
+date: 2024-10-09T07:54:30.084Z
+updated: 2024-10-14T18:16:54.063Z
 tags:
   - facebook
 categories:
@@ -30,9 +30,23 @@ thumbnail: https://thmb.techidaily.com/728afd7e20b349094de30222af4ebc05eabd7a8ee
 
  Though originally meant for parenting groups, other groups where people share sensitive information have also found this feature to be useful and thus have activated it on their group.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Post Anonymously in a Facebook Group
 
 ![facebook anonymous group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post-homepage.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![facebook anonymous post page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post.jpg)
 
@@ -52,6 +66,13 @@ Close
 
 **Note:** This feature is only available in groups set as parenting groups.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What You Need to Know About Anonymous Posts
 
  All anonymous posts are subject to approval by admins, even if post approval is turned off on the group. This is understandable, as it helps keep spammers at bay.
@@ -63,10 +84,10 @@ Close
  Some post formats are disabled for anonymous posts to protect you from accidentally exposing your identity. You can’t go live or tag people in the Anonymous Post interface.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Now You Know How to Share an Anonymous Post on Facebook
@@ -90,5 +111,23 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-next-gen-gameplay-logging-alternatives-to-fbx/"><u>[New] Next-Gen Gameplay Logging Alternatives to FBX</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-bridging-platforms-from-tiktok-to-your-facebook-friends/"><u>[Updated] 2024 Approved Bridging Platforms From TikTok to Your Facebook Friends</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-enrich-user-experience-on-stories-via-interactive-qandas/"><u>[Updated] In 2024, Enrich User Experience on Stories via Interactive Q&As</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/capturing-desktop-anytime-on-windows-for-2024/"><u>Capturing Desktop, Anytime on Windows for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-security-with-updated-login-details-in-facebook/"><u>Enhance Security with Updated Login Details in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-disappearance-to-recurrence-the-instagram-paradox/"><u>From Disappearance to Recurrence: The Instagram Paradox</u></a></li>
+<li><a href="https://fox-that.techidaily.com/guide-to-easily-repairing-frequent-issues-with-apple-pay-learn-these-10-tips/"><u>Guide to Easily Repairing Frequent Issues with Apple Pay – Learn These 10 Tips!</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-huawei-nova-y71-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Huawei Nova Y71 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-handheld-gyro-stabilization-upgrade/"><u>In 2024, Handheld Gyro Stabilization Upgrade</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-shun-the-habit-of-constant-reel-consumption-on-fb/"><u>Steps to Shun the Habit of Constant Reel Consumption on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-connections-how-to-disconnect-specific-profiles/"><u>Streamlining Connections: How to Disconnect Specific Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-impactful-tech-personalities-sparking-debate/"><u>The Biggest Impactful Tech Personalities Sparking Debate</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-history-and-function-of-vpns/"><u>The History and Function of VPNs</u></a></li>
+<li><a href="https://facebook.techidaily.com/trusted-territories-are-verified-metals-or-blue-badges-superior/"><u>Trusted Territories: Are Verified Metals or Blue Badges Superior?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/ultimate-audio-treasures-for-video-crafting-for-2024/"><u>Ultimate Audio Treasures for Video Crafting for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Lava Storm 5G | Dr.fone</u></a></li>
+</ul></div>
 

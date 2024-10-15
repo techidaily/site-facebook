@@ -1,7 +1,7 @@
 ---
 title: The Latest Revelations From Facebook Papers
-date: 2024-09-16T21:16:59.396Z
-updated: 2024-09-21T21:21:40.958Z
+date: 2024-10-08T22:11:00.281Z
+updated: 2024-10-15T02:10:03.017Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/2ed779a90446e954f94e74e484145fa08b9476978
 
  The video below is Haugen's interview on 60 Minutes, where she details many of the revelations found in the Facebook Papers.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Zuckerberg Believes It's an Attack on the Company
 
  Despite the damning nature of the documents, Facebook CEO Mark Zuckerberg[described](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2021/q3/FB-Q3-2021-Earnings-Call-Transcript.pdf) the leaked documents as a coordinated effort to attack the company.
@@ -47,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/2ed779a90446e954f94e74e484145fa08b9476978
 > I believe large organizations should be scrutinized and I'd much rather live in a society where they are than one where they can’t be. Good faith criticism helps us get better. But my view is that what we're seeing is a coordinated effort to selectively use leaked documents to paint a false picture of our company.
 
  He goes on to talk about how the polarization of US politics and indeed, society at large, began long before he was born, and that Facebook will never solve these issues on its own.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Is This the End for Facebook?
 
@@ -69,12 +83,26 @@ thumbnail: https://thmb.techidaily.com/2ed779a90446e954f94e74e484145fa08b9476978
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harmonize-your-favorites-creating-custom-youtube-playlists/"><u>[New] 2024 Approved Harmonize Your Favorites Creating Custom YouTube Playlists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/remier-8-mirrorless-models-perfect-for-filming/"><u>[New] Premier 8 Mirrorless Models Perfect for Filming</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-decode-the-mysteries-in-depth-guide-to-stardews-ginger-island-for-2024/"><u>[Updated] Decode the Mysteries In-Depth Guide to Stardew's Ginger Island for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-things-you-should-never-share-on-social-media/"><u>10 Things You Should Never Share on Social Media</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-bridging-story-and-sound-scriptwriting-for-visual-media/"><u>2024 Approved Bridging Story and Sound Scriptwriting for Visual Media</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-initial-steps-to-master-the-art-of-pixel-mapping/"><u>2024 Approved Initial Steps to Master the Art of Pixel Mapping</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-breakdown-of-facebooks-user-assistance-features/"><u>A Breakdown of Facebook's User Assistance Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-the-pitfalls-of-indiscriminate-online-networking/"><u>Avoid the Pitfalls of Indiscriminate Online Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/awaiting-the-unknown-when-will-oculus-quest-iii-arrive/"><u>Awaiting the Unknown: When Will Oculus Quest III Arrive?</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-addressing-young-users-on-facebook/"><u>Best Practices: Addressing Young Users on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-barriers-in-digital-dialogue-with-facebook-sounds/"><u>Breaking Barriers in Digital Dialogue with Facebook Sounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/confront-and-combat-fb-watchfulness-via-off-fb-option/"><u>Confront and Combat FB Watchfulness via Off-FB Option</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-erasure-and-security-risks-for-facebook-members/"><u>Data Erasure and Security Risks for Facebook Members</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Oppo A38? | Dr.fone</u></a></li>
+<li><a href="https://win-trending.techidaily.com/how-to-guide-safely-upgrade-from-an-hdd-to-a-samsung-ssd/"><u>How-To Guide: Safely Upgrade From an HDD to a Samsung SSD</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-3-ways-to-unlock-your-apple-iphone-11-pro-for-free-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Your Apple iPhone 11 Pro for Free</u></a></li>
+<li><a href="https://extra-information.techidaily.com/lead-the-way-in-the-metaverse-your-tech-checklist/"><u>Lead the Way in the Metaverse Your Tech Checklist</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151873699-share-fb-content-embrace-transfers-to-top-3-platforms/"><u>Share FB Content: Embrace Transfers to Top 3 Platforms!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On ZTE Nubia Flip 5G? | Dr.fone</u></a></li>
+</ul></div>
 

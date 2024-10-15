@@ -1,7 +1,7 @@
 ---
 title: Strategies for Clearing Frozen FB Alerts and Posts
-date: 2024-09-11T22:37:55.508Z
-updated: 2024-09-16T22:38:20.789Z
+date: 2024-10-08T23:00:48.994Z
+updated: 2024-10-15T10:44:53.526Z
 tags:
   - facebook
 categories:
@@ -76,6 +76,13 @@ Close
 
 ![Searching Facebook in iPhone settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Searching-Facebook-in-iPhone-settings.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook notifications in iPhone settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Faacebook-notifications-in-iPhone-settings.JPG)
 
 ![Allow notifications for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Allow-notifications-for-Facebook.JPG)
@@ -115,6 +122,13 @@ On your iOS device, follow these steps:
 
 ![facebook-settings-privacy-section-ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-settings-privacy-section-ios.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Mute push notifications option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Mute-push-notifications-option.JPG)
 
 Close
@@ -134,16 +148,10 @@ On Android, follow these steps to enable Facebook notifications:
 ![Notification settings on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/03-facebook-notification-settings-android.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Push notifications enabled on Facebook's Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/04-push-notifications-facebook-android.jpg)
@@ -162,6 +170,13 @@ Close
 
 All Facebook notifications should appear on your phone.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Clear the Facebook App Cache
 
  Sometimes, apps become buggy when there are cache issues. Clearing the stored files usually fixes this.
@@ -177,13 +192,6 @@ To clear your Facebook cache on your iOS device:
 ![iPhone software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-software-update.JPG)
 
 ![iPhone storage check](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-storage-check.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Offload Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Offload-Facebook-app.JPG)
 
@@ -201,19 +209,6 @@ If you have an Android device, follow these steps:
 
 ![Clear cache of Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/clear-cache-of-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
 
 ## 7\. Update the Facebook App on iOS or Android
@@ -226,7 +221,21 @@ Close
 
 ![Open Facebook on Android device](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/open-facebook-on-android-device.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. Update Your Android or iPhone
 
@@ -244,14 +253,14 @@ Close
 
 ![Android Software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/android-software-update.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Tap Download and install](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/tap-download-and-install.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Software is up to date](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/software-is-up-to-date.jpg)
 
@@ -260,10 +269,10 @@ Close
  The fixes in your phone's system can help fix Facebook notifications that aren’t loading.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 9\. Reinstall Facebook on Your Smartphone
@@ -291,5 +300,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-exploring-previous-images-3-inverse-search-methods-on-social-media/"><u>[New] 2024 Approved Exploring Previous Images 3 Inverse Search Methods on Social Media</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/igital-riches-unleashed-measuring-your-success-on-youtubes-platform/"><u>[New] Digital Riches Unleashed Measuring Your Success on YouTube's Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-protect-system-decoded-and-activated-for-maximum-safety/"><u>Facebook’s Protect System Decoded & Activated for Maximum Safety</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oppo-k11-5g-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Oppo K11 5G Phone without Any Data Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/influence-misleads-on-covid-19-truths-and-fears/"><u>Influence Misleads on Covid-19 Truths and Fears</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/introducing-the-self-cleaning-roomba-irobots-revolutionary-mopping-robot-with-automated-cleanup-capabilities/"><u>Introducing the Self-Cleaning Roomba: IRobot's Revolutionary Mopping Robot with Automated Cleanup Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-the-same-dont-update-how-to-preserve-your-whatsapp-usage/"><u>Keep the Same, Don’t Update: How to Preserve Your WhatsApp Usage</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/navigating-snapchat-a-commerce-strategy/"><u>Navigating Snapchat A Commerce Strategy</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-obstacles-fixing-full-screen-shot-problems-in-safari-browser/"><u>Overcoming Obstacles: Fixing Full-Screen Shot Problems in Safari Browser</u></a></li>
+<li><a href="https://facebook.techidaily.com/reduce-exposure-to-facebook-reels/"><u>Reduce Exposure to Facebook Reels</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sprachtraining-deutsches-wochenabschnitte-verstehen/"><u>Sprachtraining: Deutsches Wochenabschnitte Verstehen</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-shield-from-facebook-phishing-attempts/"><u>Strategies to Shield From Facebook Phishing Attempts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-elders-speak-top-10-primordial-languages/"><u>The Elders Speak: Top 10 Primordial Languages</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-to-weigh-up-before-permanently-saying-goodbye-online/"><u>What to Weigh Up Before Permanently Saying Goodbye Online</u></a></li>
+</ul></div>
 

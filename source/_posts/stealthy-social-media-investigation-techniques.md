@@ -1,7 +1,7 @@
 ---
 title: Stealthy Social Media Investigation Techniques
-date: 2024-10-04T05:08:14.828Z
-updated: 2024-10-08T16:24:14.255Z
+date: 2024-10-11T20:56:15.043Z
+updated: 2024-10-15T11:04:00.487Z
 tags:
   - facebook
 categories:
@@ -49,15 +49,22 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
  There are a few methods people will use to get into a locked Facebook profile. Here's what you need to watch out for because even if you know the techniques below, someone else may try to use them against you.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Fake Facebook Friends
 
 ![facebook logo with dislike thumbs surrounding](https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d6070583d2a1a451841876e1401.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: TY Lim/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-10-2018-facebook-1065601421)
 
@@ -90,10 +97,10 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 ![password entry image with padlock facebook color background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/password-entry-image-with-padlock-facebook-color-background.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The third method for accessing a private Facebook profile is straight-up password theft. Facebook password creation rules are decent enough. You need a minimum of eight characters, including upper and lowercase letters, numbers, and symbols.
@@ -106,31 +113,24 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
  Otherwise, start using stronger passwords, possibly using one of these[online password generators](https://www.makeuseof.com/tag/5-websites-to-generate-a-safe-and-strong-password/) to get you started. Another thing you can do is take proactive steps before a breach happens. There are several ways you can[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , making it easier to get it back if it's breached.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Phishing and Social Engineering
 
  Another last resort someone might use to access your private Facebook account is to socially engineer one of your friends into giving up their account. Sure, it sounds far-fetched, and like it would be a tremendous amount of effort just to view a private Facebook account. But if you're a high-worth individual or someone really wants to see what your cat looks like, they might go all the way and attempt to scam one of your friends to see your locked account.
 
  If you have friends that constantly seem to have their Facebook accounts breached, you might consider[adding them to a Facebook restriction list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) or[even blocking them entirely](https://www.makeuseof.com/how-to-block-facebook/) .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What Is a Facebook Locked Profile Viewer?
 
  A Facebook locked profile viewer is as it sounds: a tool that promises to unlock any Facebook account and reveal its contents to you. While the idea of using a free online tool to unlock a private Facebook account sounds tempting, these websites are typically filled with all kinds of scams and other nasties, and you could end up doing real harm to your computer. The threat of malware is an issue, and you could lose more than your Facebook data in an attempt to see someone's locked Facebook profile.
 
  Furthermore, there are also Android APKs that promise to reveal a private Facebook account. An Android APK is[an Android app installation file](https://www.makeuseof.com/tag/what-is-apk-file/) , but you'll likely have to turn off your device security settings to install it. Now, there are places you can[download safe APK files from](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , but a random website promising to reveal private Facebook data isn't one of them. Apps promising to unlock a Facebook account, private or not, are highly likely to be malware and will steal your data instead of granting you access to a private Facebook account.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Facebook Is a Security and Privacy Nightmare
 
@@ -155,24 +155,24 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-boosting-engagement-and-reach-secrets-of-instagram-video-uploads-on-desktop/"><u>[New] 2024 Approved Boosting Engagement & Reach Secrets of Instagram Video Uploads on Desktop</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-professional-movie-making-on-youtube-and-similar-software/"><u>[Updated] 2024 Approved Professional Movie Making on YouTube & Similar Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-introduces-enhanced-community-layouts/"><u>Facebook Introduces Enhanced Community Layouts</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/harness-the-full-potential-of-ai-dialogues-chrome-gpt-upgrade/"><u>Harness the Full Potential of AI Dialogues – Chrome GPT Upgrade</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-create-a-memorable-3d-image-for-facebook-friends/"><u>How to Create a Memorable 3D Image for Facebook Friends</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-xiaomi-redmi-13c-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Xiaomi Redmi 13C Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://extra-support.techidaily.com/instantaneous-ease-in-podcast-broadcasts-for-2024/"><u>Instantaneous Ease in Podcast Broadcasts for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/mastering-the-art-of-restoring-healthy-system-files-for-your-windows-11-device/"><u>Mastering the Art of Restoring Healthy System Files for Your Windows 11 Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-the-dossiers-of-facebook-disclosures/"><u>Navigating Through the Dossiers of Facebook Disclosures</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-procuring-specialized-sounds-mimicking-intestinal-gas-release-for-enhanced-aural-realism-for-2024/"><u>New Procuring Specialized Sounds Mimicking Intestinal Gas Release for Enhanced Aural Realism for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719574941292-new-years-deal-save-96-on-mondly-pro-indefinitely/"><u>New Year's Deal! Save 96% on Mondly Pro Indefinitely</u></a></li>
-<li><a href="https://facebook.techidaily.com/quick-login-sessions-across-diverse-facebook-pages/"><u>Quick Login Sessions Across Diverse Facebook Pages</u></a></li>
-<li><a href="https://facebook.techidaily.com/recovering-lost-fb-data-swift-measures-you-must-take/"><u>Recovering Lost FB Data: Swift Measures You Must Take</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-chats-anticipating-facebooks-e2ee-move/"><u>Securing Chats: Anticipating Facebook's E2EE Move</u></a></li>
-<li><a href="https://driver-error.techidaily.com/step-by-step-guide-resolving-failed-to-install-hcmon-driver-issues/"><u>Step-by-Step Guide: Resolving 'Failed to Install HCMon Driver' Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/subtle-speech-within-online-communities/"><u>Subtle Speech Within Online Communities</u></a></li>
-<li><a href="https://facebook.techidaily.com/take-control-prevent-facebooks-oversee-usage/"><u>Take Control: Prevent Facebook’s Oversee Usage</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-easy-steps-to-create-talking-memoji-on-iphone-free/"><u>Updated 2024 Approved Easy Steps To Create Talking Memoji on iPhone Free</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-lies-within-the-world-of-facebook-dating/"><u>What Lies Within the World of Facebook Dating?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/7-ways-to-lock-apps-on-apple-iphone-11-pro-max-and-ipad-securely-by-drfone-ios/"><u>7 Ways to Lock Apps on Apple iPhone 11 Pro Max and iPad Securely</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-privacy-by-clearing-your-fb-watch-logs/"><u>Ensuring Privacy by Clearing Your FB Watch Logs</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-messenger-and-ig-direct-conversations-stay-unencrypted-until-2022/"><u>FB Messenger & IG Direct Conversations Stay Unencrypted Until 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-discover-intruder-in-your-online-space/"><u>How to Discover Intruder in Your Online Space</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-honor-x9b-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Honor X9b Phone that is Locked?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-refine-your-youtube-identity-with-efficient-descriptions/"><u>In 2024, Refine Your YouTube Identity with Efficient Descriptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-the-silence-after-fbs-sound/"><u>In the Silence After FB's Sound</u></a></li>
+<li><a href="https://driver-error.techidaily.com/installation-error-history-closed-with-success/"><u>Installation Error History Closed with Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/invest-in-intelligence-10-free-apps-boosting-social-engagement/"><u>Invest in Intelligence: 10 Free Apps Boosting Social Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-metamorphosis-unveiling-the-top-4-social-transformations/"><u>Online Metamorphosis: Unveiling the Top 4 Social Transformations</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/reclaim-control-from-mobile-disruptions-discover-these-4-strategies-for-a-focused-tech-free-life/"><u>Reclaim Control From Mobile Disruptions: Discover These 4 Strategies for a Focused Tech-Free Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/snooping-friends-recognizing-fb-account-intrusions/"><u>Snooping Friends?: Recognizing FB Account Intrusions</u></a></li>
+<li><a href="https://facebook.techidaily.com/socializing-smartly-planning-events-on-facebook/"><u>Socializing Smartly: Planning Events on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fellowship-of-chatrooms-7-ways-to-unite-online/"><u>The Fellowship of Chatrooms: 7 Ways to Unite Online</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/toms-tech-review-the-ultimate-guide-to-computer-hardware/"><u>Tom's Tech Review: The Ultimate Guide to Computer Hardware</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-vivo-x100-pro-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Vivo X100 Pro Android SIM Unlock APK</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/top-rated-blackberry-video-converter-transform-your-videos-into-compatible-bb-formats-seamlessly/"><u>Top-Rated BlackBerry Video Converter - Transform Your Videos Into Compatible BB Formats Seamlessly</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-steps-for-persistent-acrocefexe-program-failures/"><u>Troubleshooting Steps for Persistent Acrocef.exe Program Failures</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unraveling-languages-in-macau-cantonese-and-more/"><u>Unraveling Languages in Macau: Cantonese & More</u></a></li>
 </ul></div>
 

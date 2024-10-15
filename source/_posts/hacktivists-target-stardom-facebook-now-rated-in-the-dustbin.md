@@ -1,7 +1,7 @@
 ---
 title: "Hacktivists Target Stardom: Facebook Now Rated in the Dustbin"
-date: 2024-09-14T17:16:25.801Z
-updated: 2024-09-21T22:30:55.669Z
+date: 2024-10-13T06:07:47.780Z
+updated: 2024-10-14T18:09:58.270Z
 tags:
   - facebook
 categories:
@@ -44,9 +44,23 @@ thumbnail: https://thmb.techidaily.com/37cbd79bb1dc4f01076609d4f2040fc4f61e96fa4
 
  Apparently, Facebook also contacted Apple to have the negative reviews removed from the App Store, but its request was denied.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Under Fire, Again
 
 ![A close-up of a bunch of Facebook logo pin badges.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/Facebook-Launches-Transparency-Center-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Unfortunately, it's become pretty easy these days to find a reason to be frustrated with Facebook. For instance, despite its efforts to stop the spread of COVID-19 misinformation, the platform still allows the use of[anti-vax themed profile picture borders](https://www.makeuseof.com/facebook-anti-vax-profile-borders/) .
 
@@ -69,18 +83,21 @@ thumbnail: https://thmb.techidaily.com/37cbd79bb1dc4f01076609d4f2040fc4f61e96fa4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-the-art-of-acquiring-vimeo-videos-free-and-paid-tools-exploration/"><u>[New] 2024 Approved The Art of Acquiring Vimeo Videos Free & Paid Tools Exploration</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/uilding-audience-organically-tactics-that-deliver-views-for-2024/"><u>[New] Building Audience Organically Tactics That Deliver Views for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-most-acclaimed-3ip-voice-recorders-on-tablets/"><u>2024 Approved Most Acclaimed 3iP Voice Recorders on Tablets</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/a-complete-breakdown-of-freelens-cam-software-for-2024/"><u>A Complete Breakdown of Freelens Cam Software for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/december-hangs-up-on-instagram-thread-feature/"><u>December Hangs Up on Instagram Thread Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-photodnas-role-in-digital-security/"><u>Deciphering PhotoDNA's Role in Digital Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-upcoming-us-antitrust-reforms-and-impact-on-tech-titans/"><u>Decoding Upcoming US Antitrust Reforms & Impact on Tech Titans</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-default-user-tag-on-facebook/"><u>Disabling Default User Tag on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-top-5-technological-missteps-of-recent-times/"><u>Dissecting the Top 5 Technological Missteps of Recent Times</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/elevate-site-functionality-using-cookiebot-technology-boosting-user-engagement-and-seo-success/"><u>Elevate Site Functionality Using Cookiebot Technology: Boosting User Engagement and SEO Success</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/groundbreaking-top-10-photo-grid-software-for-2024/"><u>Groundbreaking Top 10 Photo Grid Software for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-tf2-crashes-ultimate-troubleshooting-guide/"><u>How to Fix TF2 Crashes - Ultimate Troubleshooting Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-infinix-zero-5g-2023-turbo-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Infinix Zero 5G 2023 Turbo</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/my-experience-using-chatgpt-for-crafting-a-podcast-episode-the-full-story/"><u>My Experience Using ChatGPT for Crafting a Podcast Episode - The Full Story</u></a></li>
+</ul></div>
 

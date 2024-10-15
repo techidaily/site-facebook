@@ -1,7 +1,7 @@
 ---
 title: Friendship Reborn or Reimagined Through Facebook?
-date: 2024-09-14T19:09:14.315Z
-updated: 2024-09-21T23:56:14.311Z
+date: 2024-10-08T08:20:48.775Z
+updated: 2024-10-15T08:50:55.279Z
 tags:
   - facebook
 categories:
@@ -28,9 +28,23 @@ thumbnail: https://thmb.techidaily.com/1f190d8040197877fe9d91a786d037cb715f0068f
 
  While Facebook received a lot of negative press in recent years, it wasn't all negative. After all, Facebook did not get over 2 billion users by being a bad social media platform. So, these are some of the few good things the social media platform brought to humanity.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Facebook Brought People Together
 
 ![a group of friends sitting on a dock](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-group-of-friends-sitting-on-a-dock.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Although Facebook wasn't the first social media platform to bring people together, it is, by far, the most successful. With Facebook, many people can keep their circles updated with the events in their lives, no matter how near or far they are.
 
@@ -39,6 +53,13 @@ thumbnail: https://thmb.techidaily.com/1f190d8040197877fe9d91a786d037cb715f0068f
  And, if you're looking to connect with more people, millions of Facebook groups allow you to meet others with the same interests. This feature became even more critical during the COVID-19 lockdowns. Since almost no one could go out to meet others, Facebook groups allowed many to meet new people without leaving the safety of their homes.
 
 [Social media brings us closer to each other](https://www.makeuseof.com/ways-social-media-brings-people-together/) —and Facebook is the best example of this phenomenon.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Connecting Our Past and Present
 
@@ -51,13 +72,6 @@ thumbnail: https://thmb.techidaily.com/1f190d8040197877fe9d91a786d037cb715f0068f
 ### Facebook Allowed Small Businesses and Entrepreneurs to Flourish
 
 ![A lady starting an online business selling home decor and gifts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-lady-starting-an-online-business-selling-home-decor-and-gifts.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  With its massive audience, Facebook is definitely one of[the best social media platforms for businesses](https://www.makeuseof.com/best-social-media-platforms-for-business/) . And because it knows that companies are more than willing to invest to tap into this market, the social media platform developed several tools they can use.
 
@@ -79,38 +93,31 @@ So, what are some of the biggest things that affected us negatively?
 
 [A study published by the National Library of Medicine](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9609763/) has shown a correlation between Facebook posts and COVID-19 vaccine hesitancy. That means false social media posts, especially those that go viral, could have a real and lasting impact on individuals and our society. Although[Facebook eventually took steps to control misinformation](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) , some say it was too little, too late.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Your Data, Cambridge Analytica, Presidential Elections, and International Politics
 
 ![protesters behind a police man](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/protesters-behind-a-police-man.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Because Facebook collects and stores so much personal data on all its users, some companies have taken advantage of this data to manipulate public opinion. It has grown so much that it's alleged that this data mining allowed external parties to influence national elections.
 
  According to[a Rappler report](https://www.rappler.com/technology/social-media/239606-cambridge-analytica-philippines-online-propaganda-christopher-wylie/) , Cambridge Analytica and SCL, its parent company, influenced presidential elections successfully in the Philippines. There were also allegations that unauthorized data mining on Facebook was used to affect the 2016 US Presidential Elections,[forcing Facebook to address the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) and fix its systems to avoid a repeat of this incident.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Facebook Increased Polarization
 
 ![a keyboard warrior sitting beside a window in front of a macbook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-keyboard-warrior-sitting-beside-a-window-in-front-of-a-macbook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Facebook allows people to express their opinions on nearly anything—from whether pineapple belongs on pizza to their political and religious affiliation. And while it's normal for others to react negatively and disagree with a post, our smartphone screens, computer displays, and keyboards serve as a shield when we reply.
 
@@ -137,5 +144,26 @@ So, what are some of the biggest things that affected us negatively?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-accurate-speech-to-text-googles-breakthrough-approach-for-2024/"><u>[New] Accurate Speech-to-Text Google's Breakthrough Approach for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-flashy-flashes-prime-picks-for-lightning-laptopmobile-games/"><u>[Updated] Flashy Flashes Prime Picks for Lightning Laptop/Mobile Games</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-implementing-dynamic-filters-transform-your-videos-digitally/"><u>[Updated] Implementing Dynamic Filters Transform Your Videos Digitally</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-step-by-step-guide-to-masterful-snapchat-editing/"><u>[Updated] Step-by-Step Guide to Masterful Snapchat Editing</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-thriving-in-thumbnails-creating-impressive-youtube-on-macos/"><u>2024 Approved Thriving in Thumbnails Creating Impressive Youtube on macOS</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-lava-yuva-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazons-challenge-to-facebook-group-administrators/"><u>Amazon's Challenge to Facebook Group Administrators</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-engagement-and-privacy-on-fb-platforms/"><u>Balancing Engagement and Privacy on FB Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-meta-facebook-reveals-its-visionary-transformation-strategy/"><u>Becoming Meta: Facebook Reveals Its Visionary Transformation Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealing-digital-footprints-on-facebook-from-strangers/"><u>Concealing Digital Footprints on Facebook From Strangers</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivitys-catch-understanding-social-media-risks/"><u>Connectivity's Catch: Understanding Social Media Risks</u></a></li>
+<li><a href="https://facebook.techidaily.com/constructive-habits-for-reducing-online-social-engagement/"><u>Constructive Habits for Reducing Online Social Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/constructive-methods-for-cultivating-collaborative-communities-fb/"><u>Constructive Methods for Cultivating Collaborative Communities (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/cross-border-communication-strategies-for-multilingual-fb-posts/"><u>Cross-Border Communication Strategies for Multilingual FB Posts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-itel-p40-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Itel P40</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-reset-itunes-backup-password-of-apple-iphone-12-prevention-and-solution-by-drfone-ios/"><u>In 2024, Reset iTunes Backup Password Of Apple iPhone 12 Prevention & Solution</u></a></li>
+<li><a href="https://win-dash.techidaily.com/instant-access-to-usb-camera-driver-downloads-expert-guide/"><u>Instant Access to USB Camera Driver Downloads - Expert Guide</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/step-by-step-instructions-setting-up-handbrake-and-libdvdcss-on-macwindows-11-for-dvd-ripping/"><u>Step-by-Step Instructions: Setting Up HandBrake and Libdvdcss on Mac/Windows 11 for DVD Ripping</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154032507-whats-your-platform-of-choice-lets-find-out/"><u>What's Your Platform of Choice? Let's Find Out!</u></a></li>
+</ul></div>
 

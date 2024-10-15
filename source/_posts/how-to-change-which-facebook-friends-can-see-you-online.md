@@ -1,7 +1,7 @@
 ---
 title: How to Change Which Facebook Friends Can See You Online
-date: 2024-10-01T19:33:16.729Z
-updated: 2024-10-09T06:12:12.496Z
+date: 2024-10-13T23:31:05.426Z
+updated: 2024-10-14T23:49:48.476Z
 tags:
   - facebook
 categories:
@@ -61,30 +61,29 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ![facebook chat settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-chat-settings-updated.jpg)
 3. This will bring up a popup where you can select your options. You can toggle Active Status to**OFF** , allow**Active Status ON for some** , or turn**Active Status OFF for some** . If you want to change the Facebook friends who can or cannot see you online by selecting the**Edit** button next to the relevant option.  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![facebook active status settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-active-status-settings-updated.jpg)
 4. Select whichever setting you prefer. If you select**Edit** , a popup will appear allowing you to search for contacts you want to add to the Active Status ON or Active Status OFF list. Then choose**Save** to implement the settings.  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Switch Off Facebook Online Status Completely
@@ -135,15 +134,22 @@ This is different from a full Facebook block.
 4. Choose the option for**Block messages and calls** .  
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
  Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Control Who Sees You Online on Facebook
@@ -167,16 +173,20 @@ This is different from a full Facebook block.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-exploring-the-functionality-of-vlc-screencaster/"><u>[New] In 2024, Exploring the Functionality of VLC Screencaster</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-lighten-spirits-with-adobes-meme-magic/"><u>[New] In 2024, Lighten Spirits with Adobe's Meme Magic</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-top-5-seascape-accessories-for-gopro-lenses-for-2024/"><u>[New] Top 5 Seascape Accessories for GoPro Lenses for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-unlocking-your-ps4s-potential-recording-strategies-for-gamers/"><u>[Updated] 2024 Approved Unlocking Your PS4's Potential Recording Strategies for Gamers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-top-thumbnails-the-ultimate-guide-to-optimal-youtube-sizes/"><u>[Updated] Top Thumbnails The Ultimate Guide to Optimal YouTube Sizes</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-games-and-networks-social-integration-on-xbox/"><u>Bridging Games and Networks: Social Integration on Xbox</u></a></li>
-<li><a href="https://facebook.techidaily.com/establishing-foundation-for-healthy-fb-group-interactions/"><u>Establishing Foundation for Healthy FB Group Interactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-cracks-down-new-penalties-against-misinforming-users/"><u>Facebook Cracks Down: New Penalties Against Misinforming Users</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/how-to-slow-down-gif-building-an-understanding/"><u>How To Slow Down GIF Building an Understanding</u></a></li>
-<li><a href="https://facebook.techidaily.com/interpreting-the-subtleties-of-fb-icons-effectively/"><u>Interpreting the Subtleties of FB Icons Effectively</u></a></li>
-<li><a href="https://facebook.techidaily.com/telegrams-stellar-performance-amidst-a-social-media-pause/"><u>Telegram's Stellar Performance Amidst a Social Media Pause</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-tactics-for-triumphing-in-virtual-marketplaces/"><u>[New] In 2024, Tactics for Triumphing in Virtual Marketplaces</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-tricks-to-simulate-historical-alterations-for-2024/"><u>[New] Tricks to Simulate Historical Alterations for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-preventing-complete-loss-of-visuals-in-youtube-streaming/"><u>2024 Approved Preventing Complete Loss of Visuals in YouTube Streaming</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-your-essential-guide-to-unmissable-gaming-adventures/"><u>2024 Approved Your Essential Guide to Unmissable Gaming Adventures</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-xiaomi-redmi-a2plus-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Xiaomi Redmi A2+ Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/efficient-methods-for-renaming-users-in-google-meet/"><u>Efficient Methods for Renaming Users in Google Meet</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-with-ease-listen-to-spotifys-mini-player-on-facebook/"><u>Engage with Ease: Listen to Spotify’s Mini Player on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-invests-5m-in-challenging-substacks-reach-for-writers/"><u>Facebook Invests $5M in Challenging Substack's Reach for Writers</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/fostering-nutrition-with-gpts-guidance-techniques/"><u>Fostering Nutrition with GPT's Guidance Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/gateway-blueprint-commanding-facebook-and-instagram-profiles/"><u>Gateway Blueprint: Commanding Facebook and Instagram Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-your-identity-identifying-9-hacked-profile-traits/"><u>Guard Your Identity: Identifying 9 Hacked Profile Traits</u></a></li>
+<li><a href="https://facebook.techidaily.com/proactive-precautions-thwarting-sophisticated-cyber-scams/"><u>Proactive Precautions: Thwarting Sophisticated Cyber Scams</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-oppo-reno-11-5g-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Oppo Reno 11 5G Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-preference-poll-here/"><u>Social Media Preference Poll Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-world-buzz-facebooks-first-smartwatch-could-have-two-cams/"><u>Tech World Buzz: Facebook's First Smartwatch Could Have Two Cams</u></a></li>
 </ul></div>
 

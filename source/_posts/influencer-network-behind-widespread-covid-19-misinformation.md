@@ -1,7 +1,7 @@
 ---
 title: Influencer Network Behind Widespread Covid-19 Misinformation
-date: 2024-09-10T19:18:47.714Z
-updated: 2024-09-16T21:00:31.577Z
+date: 2024-10-12T18:43:29.604Z
+updated: 2024-10-15T05:17:17.035Z
 tags:
   - facebook
 categories:
@@ -45,6 +45,13 @@ But what if, in reality, there are only 12 prime suspects?
 
  Even though the Disinformation Dozen has reportedly violated the Facebook, Instagram, and Twitter terms of service agreements on numerous occasions, only three of the 12 influencers have been removed from just one platform.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Are Social Media Platforms Doing Enough to Fight Misinformation?
 
  The CCDH says that the best way to combat the spread of harmful information is to de-platform repeat offenders that have big audiences. Have Facebook, Instagram, and Twitter been doing that? Well... kind of.
@@ -70,12 +77,18 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-pinnacle-story-planning-website/"><u>[New] In 2024, Pinnacle Story Planning Website</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-next-gen-recording-techniques-fusing-webcam-and-slideshows/"><u>[Updated] Next-Gen Recording Techniques Fusing Webcam and Slideshows</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-fbcta-and-its-broader-effects/"><u>Exploring FBCTA and Its Broader Effects</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-far-cry-6-freezing-problems-in-windows-update-guide/"><u>How to Fix Far Cry 6 Freezing Problems in Windows - Update Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-from-infinix-by-fonelab-android-recover-pictures/"><u>How to recover deleted pictures from Infinix .</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-lava-yuva-3-promirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Lava Yuva 3 ProMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-top-5-efficient-mac-snippers-for-quick-captures/"><u>In 2024, Top 5 Efficient Mac Snippers for Quick Captures</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-the-tide-of-disenchanted-users-online/"><u>Navigating Through the Tide of Disenchanted Users Online</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/nyt-connection-insights-and-solutions-june-10th-edition-question-365/"><u>NYT Connection Insights & Solutions - June 10Th Edition, Question #365</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-social-spendback-a-guide-to-claiming-e-commerce-recoins/"><u>Secure Your Social Spendback: A Guide to Claiming E-Commerce Recoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwelcome-visitor-alert-detecting-facebook-security-issues/"><u>Unwelcome Visitor Alert: Detecting Facebook Security Issues</u></a></li>
+</ul></div>
 

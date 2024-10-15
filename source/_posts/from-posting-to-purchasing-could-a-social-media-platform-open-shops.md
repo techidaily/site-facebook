@@ -1,7 +1,7 @@
 ---
 title: "From Posting to Purchasing: Could a Social Media Platform Open Shops?"
-date: 2024-09-12T21:16:32.115Z
-updated: 2024-09-16T20:58:31.652Z
+date: 2024-10-13T02:41:21.061Z
+updated: 2024-10-14T20:30:57.488Z
 tags:
   - facebook
 categories:
@@ -36,9 +36,23 @@ thumbnail: https://thmb.techidaily.com/f93eb5bd46514b847ac07d099dc18d72eab724476
 
  The stores may also showcase voice-activated sunglasses, developed in conjunction with Ray-Ban, that you can use to take photos and videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Facebook Could Open Retail Stores
 
 ![Oculus Quest 2 headset and controllers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Oculus-Quest-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Essentially, Meta wants you to hop onto its vision and buy into the concepts of virtual reality and augmented reality. The[New York Times](https://www.nytimes.com/2021/11/05/technology/facebook-stores-meta-metaverse.html) says the documents reveal that the focus of the retail stores is to make the world “more open and connected.”
 
@@ -53,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/f93eb5bd46514b847ac07d099dc18d72eab724476
  Interestingly, the documents seen by The New York Times show that discussions about building physical stores go back months, even before Facebook’s rebranding, with planning dating back to 2020.
 
  And Meta’s plans for building these stores aren’t cast in stone. Because the project is still in development, there’s a possibility they may scrap it altogether.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Facebook Is Doubling Down on Its Plans to Build a Metaverse
 
@@ -75,12 +96,18 @@ thumbnail: https://thmb.techidaily.com/f93eb5bd46514b847ac07d099dc18d72eab724476
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-harmony-in-hd-crafting-melodic-instagram-videos/"><u>2024 Approved Harmony in HD Crafting Melodic Instagram Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-leveraging-the-power-of-visual-storytelling-in-fb-covers/"><u>2024 Approved Leveraging the Power of Visual Storytelling in FB Covers</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/building-a-family-history-timeline-with-easy-steps-on-excel/"><u>Building a Family History Timeline with Easy Steps on Excel</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-premier-footballers-pledge-no-more-online-presence-for-safety/"><u>England's Premier Footballers Pledge No More Online Presence for Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/face-off-re-securing-your-account-post-hack/"><u>Face Off: Re-Securing Your Account Post-Hack</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-farewell-deleting-your-fb-company-page/"><u>Guide to Farewell: Deleting Your FB Company Page</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/hunt-for-deals-a-guide-to-scoring-best-bargains-on-oneplus-gadgets/"><u>Hunt for Deals: A Guide to Scoring Best Bargains on OnePlus Gadgets</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/next-gen-game-viewing-top-5-hdmi-21-infinity-refresh-rates/"><u>Next-Gen Game Viewing Top 5 HDMI 2.1 Infinity Refresh Rates</u></a></li>
+<li><a href="https://facebook.techidaily.com/reestablishing-friendship-post-facebook-ban/"><u>Reestablishing Friendship Post-Facebook Ban</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-8-ultimate-4k-blu-ray-playback-units-reviewed/"><u>Top 8 Ultimate 4K Blu-Ray Playback Units Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-framework-of-facebooks-functionality/"><u>Unraveling the Framework of Facebook's Functionality</u></a></li>
+</ul></div>
 

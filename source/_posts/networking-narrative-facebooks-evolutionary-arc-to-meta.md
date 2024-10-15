@@ -1,7 +1,7 @@
 ---
 title: "Networking Narrative: Facebook's Evolutionary Arc to Meta"
-date: 2024-10-06T23:29:08.471Z
-updated: 2024-10-08T16:53:51.805Z
+date: 2024-10-14T03:37:10.261Z
+updated: 2024-10-15T01:41:57.199Z
 tags:
   - facebook
 categories:
@@ -36,9 +36,23 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 
  By December 2005, Facebook had six million users. It also had several new features, including the infamous Facebook Wall and News Feed. In April 2006, Facebook was out on mobile, and in September, they made the platform available to everyone on the internet of age 13 or above.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2007–2009: The Inception of the Facebook Like Button
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
 
@@ -47,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
  Soon after, Facebook added more features to its website and the app, including Chat, Pages, Facebook Ads, and video support. But the most significant of them was the infamous Like button, introduced in February 2009.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2010–2012: Facebook Goes Public
@@ -62,13 +76,6 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
  By July 2010, Facebook had more than 500 million active users. And in November, it became the third-largest web company valued at a whopping $41 billion. Later, in August 2011, Facebook launched Messenger—a dedicated instant messaging app.
 
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2013–2015: Facebook Enters New Territories
 
@@ -82,23 +89,9 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 
  On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know[how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2016–2018: Controversies and Scandals
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
@@ -109,19 +102,6 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
  The troubles continued in 2018 after a massive data breach involving a British consulting firm, Cambridge Analytica. Cambridge Analytica extracted the personal info of around 87 million Facebook users via an app called "This Is Your Digital Life."[The Facebook data was used to further Trump's position](https://www.makeuseof.com/tag/facebook-data-influence-elections/) in the 2016 US presidential elections.
 
  The scandal led Zuckerberg and Facebook COO Sheryl Sandberg to testify before Congress. And the company paid a fine of £500,000 to the UK's Information Commissioner's Office for its part in the scandal.
-
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2019–2021: Rebranding to Meta Backfires
 
@@ -141,6 +121,13 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
 
  Fast-forward to 2022, and Meta has already spent billions of dollars trying to build the metaverse and make its VR headsets as technologically advanced as possible—all while eroding more than 70% of its stock value amid a global recession.
@@ -148,6 +135,13 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 What comes next? Massive layoffs.
 
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Meta Is in a Rough Place, But When Is It Not?
 
@@ -170,19 +164,22 @@ What comes next? Massive layoffs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-engaging-audienranz-with-solo-visual-content/"><u>[New] 2024 Approved Engaging Audienranz with Solo Visual Content</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-advanced-settings-for-uniform-stream-lighting/"><u>[Updated] Advanced Settings for Uniform Stream Lighting</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-smirk-sessions-humorous-content-for-all-events/"><u>[Updated] Smirk Sessions Humorous Content for All Events</u></a></li>
-<li><a href="https://facebook.techidaily.com/10000-fb-groups-face-potential-amazon-litigation/"><u>10,000 FB Groups Face Potential Amazon Litigation</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-itel-s23-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Itel S23 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-compreenasional-journey-into-the-world-of-facebooks-emoji-communication/"><u>A Compreenasional Journey Into the World of Facebook's Emoji Communication</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-current-platforms-exploring-the-impact-and-meaning-of-facebooks-metaverse/"><u>Beyond Current Platforms: Exploring the Impact and Meaning of Facebook’s Metaverse</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/experts-picks-highly-rated-qled-televisions-slashed-by-1000-for-labor-day-blowout-find-your-perfect-model-smarthomeguide/"><u>Experts' Picks: Highly Rated QLED Televisions Slashed by $1,000 for Labor Day Blowout - Find Your Perfect Model | SmartHomeGuide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-charting-a-course-for-growth-precise-youtube-stats-from-social-blades-hub/"><u>In 2024, Charting a Course for Growth Precise YouTube Stats From Social Blade's Hub</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Lava Yuva 2 Pro? | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-saving-every-word-a-guide-to-fb-messenger-call-logs/"><u>In 2024, Saving Every Word A Guide to FB Messenger Call Logs</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719152051646-outsmart-facebooks-tracking-mechanisms-now/"><u>Outsmart Facebook's Tracking Mechanisms Now!</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolving-the-missing-gpeditmsc-issue-in-windows-home-edition/"><u>Resolving the Missing gpedit.msc Issue in Windows Home Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719151595091-securely-engage-with-friends-on-facebook-heres-how/"><u>Securely Engage with Friends on Facebook, Here’s How!</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-windows-11-game-snapshots-top-5-capture-strategies/"><u>[Updated] In 2024, Windows 11 Game Snapshots Top 5 Capture Strategies</u></a></li>
+<li><a href="https://driver-error.techidaily.com/easy-steps-to-update-or-install-drivers-on-windows-computers-windows-7-8-and-10-covered/"><u>Easy Steps to Update or Install Drivers on Windows Computers - Windows 7, 8 & 10 Covered</u></a></li>
+<li><a href="https://facebook.techidaily.com/formulating-and-implementing-group-rules-a-step-by-step-guide/"><u>Formulating & Implementing Group Rules: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reactivate-after-forgetting-facebook-password/"><u>How to Reactivate After Forgetting Facebook Password</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Samsung Galaxy Z Fold 5? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-discover-the-premier-15-video-cameras-for-vloggers/"><u>In 2024, Discover the Premier 15 Video Cameras for Vloggers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-tecno-spark-10-pro-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Tecno Spark 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-phantom-the-slow-motion-essentials/"><u>In 2024, Unlocking Phantom The Slow-Motion Essentials</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-phantoms-time-reversal-feature-for-2024/"><u>Mastering Phantom's Time-Reversal Feature for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-unveils-enhanced-personalizable-virtual-characters/"><u>Oculus Unveils Enhanced, Personalizable Virtual Characters</u></a></li>
+<li><a href="https://howto.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-lenovo-thinkphone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-language-options-on-facebook-profile-and-pages/"><u>Simplifying Language Options on Facebook Profile and Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-automatic-broadcast-notifications/"><u>Turn Off Automatic Broadcast Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-redesigned-home-tab-and-feed-structure-on-facebook/"><u>Unveiling The Redesigned Home Tab & Feed Structure on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-your-privacy-matters-more-than-ever-with-facebooks-update/"><u>Why Your Privacy Matters More Than Ever with Facebook's Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/worldwide-web-woes-social-media-shutdown/"><u>Worldwide Web Woes: Social Media Shutdown</u></a></li>
 </ul></div>
 

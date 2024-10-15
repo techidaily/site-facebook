@@ -1,7 +1,7 @@
 ---
 title: Unplugging the Plugged-In World via Facebook
-date: 2024-10-04T19:05:32.464Z
-updated: 2024-10-08T22:54:47.674Z
+date: 2024-10-12T05:43:46.013Z
+updated: 2024-10-15T02:21:19.209Z
 tags:
   - facebook
 categories:
@@ -28,13 +28,6 @@ thumbnail: https://thmb.techidaily.com/c2bd6ba622504fadfbcb07e0ff1b2943eed89d4f1
 
  While Facebook received a lot of negative press in recent years, it wasn't all negative. After all, Facebook did not get over 2 billion users by being a bad social media platform. So, these are some of the few good things the social media platform brought to humanity.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Facebook Brought People Together
 
 ![a group of friends sitting on a dock](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-group-of-friends-sitting-on-a-dock.jpg)
@@ -47,30 +40,43 @@ thumbnail: https://thmb.techidaily.com/c2bd6ba622504fadfbcb07e0ff1b2943eed89d4f1
 
 [Social media brings us closer to each other](https://www.makeuseof.com/ways-social-media-brings-people-together/) —and Facebook is the best example of this phenomenon.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Connecting Our Past and Present
 
 ![an old photo of two kids playing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/an-old-photo-of-two-kids-playing.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Aside from bringing people closer together, Facebook also lets us connect across time. You can easily find friends you've met over 20 years ago and have since lost contact with on the platform.
 
  Furthermore, Facebook occasionally reminds us of our noteworthy posts from the past. Whether this is your wedding, a holiday, or any other event, the social media platform uses its algorithm to send reminders to your feed. There's also an[effective way to use Facebook's "On This Day" feature](https://www.makeuseof.com/how-to-use-the-on-this-day-feature-facebook/) to ensure that Facebook knows you're celebrating an important milestone.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Facebook Allowed Small Businesses and Entrepreneurs to Flourish
 
 ![A lady starting an online business selling home decor and gifts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-lady-starting-an-online-business-selling-home-decor-and-gifts.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  With its massive audience, Facebook is definitely one of[the best social media platforms for businesses](https://www.makeuseof.com/best-social-media-platforms-for-business/) . And because it knows that companies are more than willing to invest to tap into this market, the social media platform developed several tools they can use.
@@ -78,19 +84,6 @@ thumbnail: https://thmb.techidaily.com/c2bd6ba622504fadfbcb07e0ff1b2943eed89d4f1
  Some of these tools are free, like Facebook Pages and Groups, while others are paid, like Facebook Ads. But even with just the free tools, many entrepreneurs found success through the social media platform.
 
  Again, this tool was crucial during the pandemic, when many who've lost their jobs turned to online entrepreneurship to get them through the global lockdowns.
-
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Ways Facebook Has Worsened Our Lives
 
@@ -106,6 +99,13 @@ So, what are some of the biggest things that affected us negatively?
 
 [A study published by the National Library of Medicine](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9609763/) has shown a correlation between Facebook posts and COVID-19 vaccine hesitancy. That means false social media posts, especially those that go viral, could have a real and lasting impact on individuals and our society. Although[Facebook eventually took steps to control misinformation](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) , some say it was too little, too late.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Your Data, Cambridge Analytica, Presidential Elections, and International Politics
 
 ![protesters behind a police man](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/protesters-behind-a-police-man.jpg)
@@ -114,16 +114,16 @@ So, what are some of the biggest things that affected us negatively?
 
  According to[a Rappler report](https://www.rappler.com/technology/social-media/239606-cambridge-analytica-philippines-online-propaganda-christopher-wylie/) , Cambridge Analytica and SCL, its parent company, influenced presidential elections successfully in the Philippines. There were also allegations that unauthorized data mining on Facebook was used to affect the 2016 US Presidential Elections,[forcing Facebook to address the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) and fix its systems to avoid a repeat of this incident.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Facebook Increased Polarization
 
 ![a keyboard warrior sitting beside a window in front of a macbook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-keyboard-warrior-sitting-beside-a-window-in-front-of-a-macbook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Facebook allows people to express their opinions on nearly anything—from whether pineapple belongs on pizza to their political and religious affiliation. And while it's normal for others to react negatively and disagree with a post, our smartphone screens, computer displays, and keyboards serve as a shield when we reply.
 
@@ -152,19 +152,16 @@ So, what are some of the biggest things that affected us negatively?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-apple-m1-pro-versus-m1-max-unveiling-variations-for-2024/"><u>[New] Apple M1 Pro Versus M1 Max Unveiling Variations for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-capturing-on-win10-the-leading-apps-to-check-out/"><u>[Updated] In 2024, Capturing on Win10 The Leading Apps to Check Out</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-video-snippet-creator-for-2024/"><u>[Updated] Video Snippet Creator for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-ways-to-boost-engagement-through-a-facebook-circle/"><u>6 Ways to Boost Engagement Through a Facebook Circle</u></a></li>
-<li><a href="https://facebook.techidaily.com/app-apocalypse-facebook-whatsapp-offline/"><u>App Apocalypse: Facebook, WhatsApp Offline</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-barriers-in-broadcast-facebook-updates-platform/"><u>Breaking Barriers in Broadcast: Facebook Updates Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-barriers-the-implications-of-full-access-control-on-oculus-go/"><u>Breaking Barriers: The Implications of Full Access Control on Oculus Go</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-personalized-facebook-profile-photo/"><u>Crafting a Personalized Facebook Profile Photo</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/harnessing-the-power-of-depth-perception-iphone-xs-advantage-for-2024/"><u>Harnessing the Power of Depth Perception IPhone X's Advantage for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-syncing-soundscapes-with-visuals-in-film-teasers/"><u>In 2024, Syncing Soundscapes with Visuals in Film Teasers</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Samsung Galaxy A05s? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/masterclass-zooids-introduction-guide-for-2024/"><u>Masterclass Zooids Introduction Guide for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/pearlescent-pictures-brighten-with-android-for-2024/"><u>Pearlescent Pictures Brighten with Android for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150058146-social-media-preference-poll-here/"><u>Social Media Preference Poll Here!</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-beginners-journey-into-hosting-successful-zoom-sessions/"><u>[New] In 2024, Beginner's Journey Into Hosting Successful Zoom Sessions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unlocking-premiere-pro-full-screen-magic/"><u>[Updated] 2024 Approved Unlocking Premiere Pro Full-Screen Magic</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-strategic-video-collaborations-for-viewership-increase/"><u>[Updated] Strategic Video Collaborations for Viewership Increase</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-realme-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-online-security-by-editing-phone-and-email/"><u>Enhance Online Security by Editing Phone & Email</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-dwindling-user-count-in-the-face-of-tiktoks-ascent/"><u>Facebook’s Dwindling User Count in the Face of TikTok’s Ascent</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-scrolling-to-serenity-the-top-10-reasons-to-leave-the-facebook-journey/"><u>From Scrolling to Serenity: The Top 10 Reasons to Leave the Facebook Journey</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-from-footage-to-narrative-the-essential-guide-to-instagram-descriptive-texts/"><u>In 2024, From Footage to Narrative The Essential Guide to Instagram Descriptive Texts</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-look-at-what-fb-omits-from-your-timeline/"><u>Inside Look at What Fb Omits From Your Timeline</u></a></li>
+<li><a href="https://fox-that.techidaily.com/one-airpod-not-working-heres-what-to-do/"><u>One AirPod Not Working? Here's What to Do</u></a></li>
 </ul></div>
 

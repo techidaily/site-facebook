@@ -1,7 +1,7 @@
 ---
 title: Mastering Your Facebook Visibility Settings
-date: 2024-09-10T20:42:42.236Z
-updated: 2024-09-17T00:05:14.299Z
+date: 2024-10-07T20:59:58.734Z
+updated: 2024-10-15T11:15:37.343Z
 tags:
   - facebook
 categories:
@@ -50,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/4c2c83dc76ea031999e2259b4bcb5ed3cf0b94afc
 
  But what if you don't want certain people to see you online or you don't want your online status reflected at all? Here's how to adjust your Active Status settings so that only certain people can see you online on Facebook...
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Change Who Can See You Online on Facebook (Web)
 
  To alter the specific people who can see you online on Facebook, you should adjust your Active Status settings on the browser version of the platform. If you really don't want people to see you online, we recommend switching off your Active Status on the website as well as the app.
@@ -75,7 +82,21 @@ thumbnail: https://thmb.techidaily.com/4c2c83dc76ea031999e2259b4bcb5ed3cf0b94afc
 
 ![facebook chat settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-chat-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
 
@@ -91,19 +112,6 @@ Close
  Switching off your Active Status also prevents you from seeing when other people are online. In our test, switching off Active Status on the mobile app did not carry over to the desktop browser version of Facebook.
 
  You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
-
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
@@ -125,14 +133,14 @@ This is different from a full Facebook block.
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
 4. Choose the option for**Block messages and calls** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
@@ -157,5 +165,26 @@ This is different from a full Facebook block.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-imageslice-cutter/"><u>[New] In 2024, ImageSlice Cutter</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhance-brand-recognition-inserting-watermarklogo-in-youtube-videos/"><u>[Updated] 2024 Approved Enhance Brand Recognition Inserting Watermark/Logo in Youtube Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-enhancing-engagement-on-video-calls-using-snap-features/"><u>[Updated] 2024 Approved Enhancing Engagement on Video Calls Using Snap Features</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/add-personal-touch-to-videos-with-text-labels-using-photos-app-windows-11-for-2024/"><u>Add Personal Touch to Videos with Text Labels Using Photos App (Windows 11) for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-gamers-guide-to-high-quality-live-recording/"><u>In 2024, Gamers' Guide to High-Quality Live Recording</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-strategic-steps-for-effective-annotations-and-cards-on-your-youtube-videos/"><u>In 2024, Strategic Steps for Effective Annotations & Cards on Your YouTube Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-timelines-for-greater-user-retention-on-fb/"><u>Interactive Timelines for Greater User Retention on FB</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/microsoft-upgrades-bing-using-advanced-ai-unveiling-the-potential-benefits/"><u>Microsoft Upgrades Bing Using Advanced AI: Unveiling the Potential Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/power-up-your-page-with-strategic-admins/"><u>Power Up Your Page with Strategic Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-digital-persona-changing-your-name-in-the-virtual-world/"><u>Revamping Digital Persona: Changing Your Name in the Virtual World</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-evolution-from-twitter-to-facebooks-informed-posts/"><u>Social Media Evolution: From Twitter to Facebook's Informed Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-internet-interrupted-6-hour-tech-takedown/"><u>The Internet Interrupted: 6-Hour Tech Takedown</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-metaverse-and-vr-at-a-crossroads-six-key-differences-demystified/"><u>The Metaverse and VR at a Crossroads: Six Key Differences Demystified</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-reality-report-exposing-10-common-facebook-misconceptions/"><u>The Reality Report: Exposing 10 Common Facebook Misconceptions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/what-sets-360-and-vr-media-apart-in-2024/"><u>What Sets 360° and VR Media Apart, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/whispers-of-facebooks-ad-honesty-exit/"><u>Whispers of Facebook's Ad Honesty Exit</u></a></li>
+<li><a href="https://facebook.techidaily.com/whos-in-your-social-circle/"><u>Who's in Your Social Circle?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/z2-play-revolution-a-smartphone-review-odyssey/"><u>Z2 Play Revolution A Smartphone Review Odyssey</u></a></li>
+</ul></div>
 

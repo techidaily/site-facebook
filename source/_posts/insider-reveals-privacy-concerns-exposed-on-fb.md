@@ -1,7 +1,7 @@
 ---
 title: Insider Reveals, Privacy Concerns Exposed on FB
-date: 2024-09-09T23:33:10.874Z
-updated: 2024-09-16T21:12:52.401Z
+date: 2024-10-11T02:11:37.647Z
+updated: 2024-10-15T05:58:20.538Z
 tags:
   - facebook
 categories:
@@ -34,7 +34,21 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
 
  Here are some of the biggest claims made by Haugen in her recent 60 Minutes interview:
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5 Claims Made by Frances Haugen on 60 Minutes
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Facebook’s Algorithm Shows You Hateful and Divisive Content
 
@@ -45,16 +59,10 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
  Related:[How to Disable Algorithmic Feeds on Twitter, Instagram, and Facebook](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/)
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Facebook Is Profiting From Showing You Hateful and Divisive Content
@@ -70,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
 > Facebook has demonstrated they cannot act independently, Facebook, over and over again, has shown it chooses profit over safety. It is subsidizing, it is paying for its profits with our safety.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Facebook Is Lying to You About Its Fight Against Hate, Violence, and Misinformation
@@ -109,5 +117,26 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-vdy-pro-recorder-summary-detailed-analysis/"><u>2024 Approved VDY Pro Recorder Summary Detailed Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-covert-etiquette-in-facebooks-friend-request-culture/"><u>Deciphering the Covert Etiquette in Facebook's Friend Request Culture</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-policy-allowance-for-multiple-user-profiles-per-account/"><u>Decoding Facebook’s Policy: Allowance for Multiple User Profiles Per Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-functioning-of-facebooks-policy-monitor/"><u>Decoding The Functioning of Facebook's Policy Monitor</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-facebook-groups-a-community-exploration/"><u>Delving Into Facebook Groups: A Community Exploration</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-why-apple-maintains-distinct-digital-direction/"><u>Delving Into Why Apple Maintains Distinct Digital Direction</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-existence-post-fb-era/"><u>Digital Existence Post-FB Era</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-economic-value-of-metas-endorsement/"><u>Dissecting the Economic Value of Meta's Endorsement</u></a></li>
+<li><a href="https://facebook.techidaily.com/easily-change-profile-contact-information/"><u>Easily Change Profile Contact Information</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-motorola-moto-g34-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Motorola Moto G34 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-use-of-unfollowfollow-in-facebook-networking/"><u>Efficient Use of Unfollow/Follow in Facebook Networking</u></a></li>
+<li><a href="https://windows11.techidaily.com/guiding-steps-for-ms-office-installation-on-windows-1011/"><u>Guiding Steps for MS Office Installation on Windows 10/11</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/harness-the-power-of-youtube-and-facebook-streaming-old-video-content-for-2024/"><u>Harness the Power of YouTube & Facebook Streaming Old Video Content for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/immerse-in-bioshock-2-remastered-edition-without-interruption-fixing-common-bugs-and-crashes/"><u>Immerse in BioShock 2: Remastered Edition Without Interruption - Fixing Common Bugs and Crashes</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-vivo-y27-5g-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-the-ultimate-screencapture-guide-for-laptop-techies/"><u>In 2024, The Ultimate ScreenCapture Guide for Laptop Techies</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Motorola Moto G24 | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/revolutionize-your-data-entry-workflow-with-abbyy-flexicapture-clouds-new-features-real-time-capture-and-restful-integration-now-available/"><u>Revolutionize Your Data Entry Workflow with ABBYY FlexiCapture Cloud's New Features – Real-Time Capture and RESTful Integration Now Available!</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/simple-guide-to-converting-your-ringtone-from-m4r-format-to-mp3/"><u>Simple Guide to Converting Your Ringtone From .m4r Format to MP3</u></a></li>
+</ul></div>
 

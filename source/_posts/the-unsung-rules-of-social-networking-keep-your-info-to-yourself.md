@@ -1,7 +1,7 @@
 ---
 title: "The Unsung Rules of Social Networking: Keep Your Info to Yourself"
-date: 2024-10-03T04:47:24.169Z
-updated: 2024-10-08T23:03:09.307Z
+date: 2024-10-11T03:26:27.233Z
+updated: 2024-10-15T04:32:34.363Z
 tags:
   - facebook
 categories:
@@ -28,35 +28,22 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. Travel Plans
 
 ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
-
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
  As a safer alternative, don't share any details or pictures about your trip until after you return. While this is less exciting, it protects you because you're not advertising to the world that you're away from home for an extended period.
 
  This extends to posting photos of your home. Any photo of where you live gives people more puzzle pieces to help determine where you live, where the blind angles are around doors, windows with broken locks, etc.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. Location Data
 
@@ -65,6 +52,19 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  Depending on where you share photos, people may also be able to access photo metadata that shows more details about what took the photo and where it was captured.[Deleting photo metadata before uploading](https://www.makeuseof.com/delete-your-metadata-before-sharing-your-files/) is thus a wise idea.
 
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
+
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Personally-Identifying Information
 
@@ -84,13 +84,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  Note that many companies offer customer service on social media, so this doesn't apply to getting help with a legitimate complaint. You should still be courteous in these situations, though.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Self-Incriminating Evidence
 
  While getting in trouble over a poorly-worded joke or incendiary comment you make on social media is bad enough, it's something else entirely to break the law and leave the evidence on social media for all to see.
@@ -100,6 +93,13 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  Some even share photos of their drug stashes, illegal firearms, or cash that they've stolen. This also applies to explicit photos of yourself—it's a terrible idea to post those on any social platform.
 
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Expensive New Purchases
 
@@ -119,15 +119,22 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 8\. Scammy Giveaways and Contests
 
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
@@ -135,13 +142,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  If you constantly share giveaways, contests, and invites to Facebook games, you're probably annoying your friends. Even more importantly, some of these so-called[social media contests are actually scams in disguise](https://www.makeuseof.com/dont-trust-giveaway-contests-social-media/) . You could unknowingly spread malware or trick people into giving away sensitive data.
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 9\. Privileged Inside Information
 
@@ -178,20 +178,18 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-the-insiders-guide-to-preserving-whatsapp-chat-history/"><u>[New] 2024 Approved The Insider's Guide to Preserving WhatsApp Chat History</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-insta-wealth-tactics-for-transforming-passion-projects-into-paid-opportunities/"><u>[New] In 2024, Insta-Wealth Tactics for Transforming Passion Projects Into Paid Opportunities</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-the-no-trouble-way-to-start-iphones-screen-snapshots/"><u>[New] In 2024, The No-Trouble Way to Start iPhone's Screen Snapshots</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-in-2024-a-pocket-guide-for-channel-setup-and-management-on-discord/"><u>[Updated] In 2024, A Pocket Guide for Channel Setup and Management on Discord</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-closer-look-at-facebooks-innovative-revenue-model-for-musicians/"><u>A Closer Look at Facebook's Innovative Revenue Model for Musicians</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-user-friendly-explanation-of-sleep-mode-in-messenger-kids-app/"><u>A User-Friendly Explanation of Sleep Mode in Messenger Kids App</u></a></li>
-<li><a href="https://facebook.techidaily.com/big-data-vs-democracy-governments-challenging-big-tech/"><u>Big Data Vs. Democracy: Governments Challenging Big Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/boost-interaction-engage-friends-with-messengers-query-games/"><u>Boost Interaction: Engage Friends with Messenger's Query Games</u></a></li>
-<li><a href="https://facebook.techidaily.com/clarifying-the-selection-of-personalized-facebook-ads/"><u>Clarifying the Selection of Personalized Facebook Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/cultivate-happiness-by-scheduling-downtime-via-facebook/"><u>Cultivate Happiness by Scheduling Downtime via Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719152890645-from-facebook-to-the-world-seamlessly-upload-your-posts-and-notes/"><u>From Facebook to the World: Seamlessly Upload Your Posts and Notes</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/include-at-least-three-medical-imaging-technical-terms-redefined-in-an-astrological-context-eg-ct-scans-could-represent-transformative-life-phases/"><u>Include at Least Three Medical Imaging Technical Terms Redefined in an Astrological Context (E.g., CT Scans Could Represent Transformative Life Phases).</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolving-drops-and-hiccups-during-counter-strike-abetes-fbs-)160-mgdl-and-ldl-)130-mgdl-were-found-to-be-abnormal-in-about-28-of-the-participants-and-ast-l569/"><u>Resolving Drops & Hiccups During Counter-Strike Abetes (FBS) >160 Mg/Dl and LDL >130 Mg/Dl Were Found to Be Abnormal in About 28% of the Participants, and AST Level >47 U/L Was Observed in Approximately 22%.</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-5-essential-factors-to-evaluate-when-purchasing-your-next-smartwatch/"><u>Top 5 Essential Factors to Evaluate When Purchasing Your Next Smartwatch</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshoot-fortnite-launch-problems-simple-solutions-here/"><u>Troubleshoot Fortnite Launch Problems: Simple Solutions Here</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-how-to-make-a-youtube-subscribe-link-easy/"><u>[New] How to Make a YouTube Subscribe Link - Easy</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-from-unknown-to-social-superstar-master-these-15-insta-growth-strategies-for-fast-results/"><u>[Updated] 2024 Approved From Unknown to Social Superstar Master These 15 Insta Growth Strategies for Fast Results</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-rookie-to-veteran-10-must-have-cinema-cameras/"><u>2024 Approved From Rookie to Veteran 10 Must-Have Cinema Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-connection-the-perks-of-social-groupings-online/"><u>Enhancing Connection: The Perks of Social Groupings Online</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-to-ensure-perfect-prints-essential-techniques-in-adobe-photoshop/"><u>How to Ensure Perfect Prints: Essential Techniques in Adobe Photoshop</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-samsung-galaxy-m14-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Samsung Galaxy M14 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-will-social-media-giants-influence-local-retail-spaces/"><u>How Will Social Media Giants Influence Local Retail Spaces?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-oppo-a1x-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Oppo A1x 5G Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Poco X5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mirrored-moments-with-iphone-photography-expertise/"><u>Mirrored Moments with iPhone Photography Expertise</u></a></li>
+<li><a href="https://facebook.techidaily.com/rescheduling-of-whatsapps-may-15-policy-deadline/"><u>Rescheduling of WhatsApp's May 15 Policy Deadline</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-whos-on-my-facebook-block/"><u>Step-by-Step: Who's on My Facebook Block?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-savvy-how-to-reset-facebook-conversations/"><u>The Social Media Savvy: How to Reset Facebook Conversations</u></a></li>
 </ul></div>
 

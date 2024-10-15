@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting FB Account Inaccessibility & Lockout
-date: 2024-09-11T19:26:07.261Z
-updated: 2024-09-16T22:57:44.813Z
+date: 2024-10-11T22:55:34.607Z
+updated: 2024-10-15T11:05:01.517Z
 tags:
   - facebook
 categories:
@@ -39,6 +39,13 @@ To change your password:
 
  This is also the safest and quickest method to[recover a hacked Facebook account](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) , as Facebook will let you log out of all other devices. Once you have reset your password, also consider[setting up two-factor authentication on Facebook](https://www.makeuseof.com/tag/use-2fa-facebook-without-phone-number/) . If you can't log back into your account because Facebook retired its Code Generator, here's how you can now[get a login confirmation code for Facebook](https://www.makeuseof.com/tag/log-facebook-lost-access-code-generator/) .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Try the Default Facebook Account Recovery Options
 
  If you couldn't find a device where you were still logged into Facebook, proceed with the following recovery options.
@@ -51,6 +58,13 @@ To change your password:
 
 ![Find Support or Report Profile option to recover your Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Find-Support-or-Report-Profile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  From the next menu, select the appropriate option, in this case**Something else > Recover this account** .
 
 ![Facebook Recover This Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-recover-this-account.jpg)
@@ -59,7 +73,21 @@ To change your password:
 
 ![Facebook Reset Your Password menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Reset-Your-Password.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you need more help with the recovery steps, follow the instructions from the second screenshot below.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Option 2: Find and Recover Your Account With Contact Details
 
@@ -74,10 +102,10 @@ To change your password:
 ![Facebook Reset Your Password With Code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-reset-your-password-with-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  If all looks well with the contact details that Facebook has on file for you, click**Continue** . Facebook will send you a security code. Retrieve the code from your email or phone (depending on which method you chose), enter it, and rejoice in having recovered your Facebook account.
@@ -85,10 +113,10 @@ To change your password:
 ![Facebook Enter Security Code menu to recover an account.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Enter-Security-Code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  At this point, you can set a new password, which we strongly recommend.
@@ -125,19 +153,6 @@ To change your password:
 
 ![Facebook Lost Access Recovery Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-lost-access-recovery-menu.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  When you click on**Start** , Facebook will ask for a new login email and send you a code to that email address. Enter your email address and click**Get code** .
 
 ![Get Back on Facebook-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-1.jpg)
@@ -147,10 +162,16 @@ To change your password:
  You won't get back into your account immediately. First, you have to upload your ID to confirm it's really you who's trying to recover the account. Once you've done that, wait until Facebook gets in touch to confirm your ID verification. Be patient.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Report Your Hacked Facebook Account
@@ -158,13 +179,6 @@ To change your password:
  In the event that your account was hacked and is posting spam while you can no longer access it, you should report your Facebook account as compromised on[Facebook.com/hacked](http://www.facebook.com/hacked) .
 
 ![Report a compromised Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Report-Compromised-Account.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  This will actually start a similar process to the one outlined above. While you will use the same information to identify your account, in the following step, you will be able to use either a current or old Facebook password to recover your account.
 
@@ -205,5 +219,24 @@ To change your password:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-maximize-impact-with-onestreams-streaming-solutions/"><u>[New] How to Maximize Impact with OneStream's Streaming Solutions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-branding-beats-technicalities-focus-on-your-streams-signature-style/"><u>[Updated] Branding Beats Technicalities Focus on Your Stream's Signature Style</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-ultimate-podcast-rankings-seo-techniques-uncovered/"><u>2024 Approved Ultimate Podcast Rankings SEO Techniques Uncovered</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/easily-modify-reading-time-settings-on-your-amazon-kindle-paperwhite/"><u>Easily Modify Reading Time Settings on Your Amazon Kindle Paperwhite</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-public-post-references-everyone/"><u>Eliminate Public Post References (@Everyone)</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminating-digital-footprints-erasing-facebook-entirely/"><u>Eliminating Digital Footprints: Erasing Facebook Entirely</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolving-connections-analyzing-the-impact-of-facebooks-dating-update/"><u>Evolving Connections: Analyzing the Impact of Facebook's Dating Update</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-windows-11s-malfunctioning-start-button-easily/"><u>Fixing Windows 11'S Malfunctioning Start Button Easily</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-infinix-hot-30i-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Infinix Hot 30i Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-honor-80-pro-straight-screen-edition-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Honor 80 Pro Straight Screen Edition Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-itel-p40-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Itel P40? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/out-with-the-old-in-with-the-new-facebook-ad-head-quits/"><u>Out with the Old, In with the New - Facebook Ad Head Quits</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-yourself-online-9-safety-strategies-for-facebook-trade/"><u>Protecting Yourself Online: 9 Safety Strategies for Facebook Trade</u></a></li>
+<li><a href="https://facebook.techidaily.com/pushing-boundaries-differently-apple-vs-facebooks-vision/"><u>Pushing Boundaries Differently: Apple Vs. Facebook's Vision</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-sparked-metas-pullout-from-facial-id-at-fb/"><u>What Sparked Meta's Pullout From Facial ID at FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-ultimate-guide-to-the-functionalities-of-facebook-support/"><u>Your Ultimate Guide to the Functionalities of Facebook Support</u></a></li>
+</ul></div>
 

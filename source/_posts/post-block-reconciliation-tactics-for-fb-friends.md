@@ -1,7 +1,7 @@
 ---
 title: Post-Block Reconciliation Tactics for FB Friends
-date: 2024-10-04T17:40:43.005Z
-updated: 2024-10-09T00:04:18.123Z
+date: 2024-10-11T20:28:58.249Z
+updated: 2024-10-14T23:55:22.054Z
 tags:
   - facebook
 categories:
@@ -43,16 +43,10 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
  Use the right option for the situation and you shouldn't have to worry about unblocking and refriending people in the future. Follow our[guide to Facebook blocking](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) for more help.
 
 <!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Refriend Someone on Facebook After Unblocking Them
@@ -64,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 ![Facebook Send Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/Facebook-Send-Friend-Request.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Click that to send them a new friend request; if they accept, you'll be friends again. However, keep in mind that if you've had a bad interaction with this person, they may delete your request. If they do, Facebook provides the**Mark as Spam** option to them, which prevents you from sending more friend requests.
@@ -81,10 +75,10 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
  Finally, there's also a chance that your former friend deactivated their Facebook account while you had them blocked. To find out if this is the case, try asking a mutual friend if they're still friends with the person you had blocked. If they aren't using Facebook anymore, you'll have to connect with them elsewhere.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Refriending on Facebook Is Possible, Even After Blocking
@@ -108,24 +102,21 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-photoshops-favorites-the-best-monitors-reviewed/"><u>[New] 2024 Approved Photoshop's Favorites The Best Monitors Reviewed</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-essential-guide-to-screencasting-with-google-meet-for-2024/"><u>[New] Essential Guide to Screencasting with Google Meet for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-essential-software-for-recording-educational-experiences/"><u>[Updated] In 2024, Essential Software for Recording Educational Experiences</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-time-traveling-tactics-top-7-historic-battles-reimagined/"><u>[Updated] Time-Traveling Tactics Top 7 Historic Battles Reimagined</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweeted-cinematics-from-video-to-wavmp3-for-2024/"><u>[Updated] Tweeted Cinematics From Video to WAV/MP3 for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-tips-for-easy-video-capture-of-youtube-content/"><u>2024 Approved Tips for Easy Video Capture of YouTube Content</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-samsung-galaxy-a54-5g-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Samsung Galaxy A54 5G Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/achieve-prestige-exclusive-badge-from-meta/"><u>Achieve Prestige: Exclusive Badge From Meta</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/comprehensive-parents-handbook-on-internet-safety-mastering-child-protection-tools/"><u>Comprehensive Parent's Handbook on Internet Safety: Mastering Child Protection Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/google-and-linkedins-covert-tracking-for-uninterrupted-service/"><u>Google and LinkedIn's Covert Tracking for Uninterrupted Service</u></a></li>
-<li><a href="https://facebook.techidaily.com/immediate-steps-for-restoring-and-protecting-your-fb-profile/"><u>Immediate Steps for Restoring & Protecting Your FB Profile</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-oppo-f23-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Oppo F23 5G to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-concerns-when-will-fb-messaging-go-e2ee/"><u>Privacy Concerns: When Will FB Messaging Go E2EE?</u></a></li>
-<li><a href="https://facebook.techidaily.com/room-exploration-essentials-for-the-messaging-novice/"><u>Room Exploration Essentials for the Messaging Novice</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-american-viewpoint-social-networkings-dark-side/"><u>The American Viewpoint: Social Networking's Dark Side</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-rise-of-metaai-vs-typical-chatbot-platforms/"><u>The Rise of MetaAI vs Typical Chatbot Platforms</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/transforma-sus-mensajes-de-whatsapp-en-archivos-mp3-gratuitos-en-linea-paso-a-paso/"><u>Transforma Sus Mensajes De WhatsApp en Archivos MP3 Gratuitos en Línea Paso a Paso</u></a></li>
-<li><a href="https://facebook.techidaily.com/vaccination-push-via-fb-twittersphere-and-snaps-by-jolie/"><u>Vaccination Push via FB, Twittersphere and Snaps by Jolie</u></a></li>
-<li><a href="https://facebook.techidaily.com/vk-unveiled-grasping-russias-digital-landmark/"><u>VK Unveiled: Grasping Russia's Digital Landmark</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-deep-dive-the-economy-and-impact-of-online-stars-for-2024/"><u>[New] Deep Dive The Economy and Impact of Online Stars for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-video-performance-with-key-seo-tools/"><u>[Updated] In 2024, Boost Video Performance with Key SEO Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-frame-your-life-with-iphones-top-10-photo-rules/"><u>[Updated] In 2024, Frame Your Life with iPhone's Top 10 Photo Rules</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/cartoonkingdom-comprehensive-24-guide/"><u>CartoonKingdom Comprehensive '24 Guide</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-your-disabled-iphone-7-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>In 2024, Unlock Your Disabled iPhone 7 Without iTunes in 5 Ways | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/live-stream-audio-effective-recording-methods-for-the-digital-age-for-2024/"><u>Live Stream Audio Effective Recording Methods for the Digital Age for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/rallying-fans-mastering-engagement-on-facebook/"><u>Rallying Fans: Mastering Engagement on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-ghosting-how-to-remove-past-entries/"><u>Social Media Ghosting: How to Remove Past Entries</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-tips-to-revive-a-frozen-desktop-notebook-or-tablet/"><u>Step-by-Step Tips to Revive a Frozen Desktop, Notebook, or Tablet</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dark-side-of-connectivity-social-platform-outcomes/"><u>The Dark Side of Connectivity: Social Platform Outcomes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essence-and-illustration-of-vague-postings/"><u>The Essence and Illustration of Vague Postings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-encyclopedia-for-interpreting-facebook-icons-and-emojis/"><u>The Ultimate Encyclopedia for Interpreting Facebook Icons and Emojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-enhancing-user-experience-with-fb-extended-functionality/"><u>Tips for Enhancing User Experience with FB Extended Functionality</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-rated-iphone-charging-solutions-the-ultimate-guide/"><u>Top Rated iPhone Charging Solutions: The Ultimate Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-facebook-profile-editing-date-of-birth/"><u>Transform Your Facebook Profile: Editing Date of Birth</u></a></li>
 </ul></div>
 

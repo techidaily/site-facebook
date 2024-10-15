@@ -1,7 +1,7 @@
 ---
 title: "The Art of Community Curation: Employing New Features in Facebook Group Control"
-date: 2024-09-16T00:13:35.767Z
-updated: 2024-09-16T18:17:54.199Z
+date: 2024-10-07T16:30:41.765Z
+updated: 2024-10-15T12:12:08.736Z
 tags:
   - facebook
 categories:
@@ -47,6 +47,13 @@ In a nutshell, these new moderation tools allow group admins to:
 
 ![Decline incoming posts in Facebook Groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Decline-incoming-posts-in-Facebook-Groups.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  2\. Click on the**Spam posts** option and either choose the default criteria or click**Edit** to change how you'd like to mark spam. Finally, click**Apply Criteria** .
 
 ![Select your criteria to mark comments or posts as spam](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Mark-spam-in-FB-groups.png)
@@ -59,13 +66,6 @@ In a nutshell, these new moderation tools allow group admins to:
 
  In these situations, the admin can slow conversations by limiting how often post members can make comments.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Member Summary
 
  Another new feature of Facebook's moderation tools is Member Summary. This function allows admins to oversee the activity log of specific group members. For example, you can see the number of posts and comments individuals have shared and how many were removed. That way, you'll have a clear picture of the types of interactions members have within the group.
@@ -75,15 +75,29 @@ In a nutshell, these new moderation tools allow group admins to:
 ![Member-Summary-in-Facebook-Groups-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Member-Summary-in-Facebook-Groups-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Appeals
 
  Admins can now appeal violations for any posts on their page. Facebook will then review these appeals to ensure that the right decision has been made for a particular post. You can find appeals under the**Group Quality** subheading on the left sidebar.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Tag Group Rules
 
@@ -98,10 +112,10 @@ In a nutshell, these new moderation tools allow group admins to:
 ![Group Rules in FB Groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Group-Rules-in-FB-Groups.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Keyword Alerts
@@ -133,5 +147,23 @@ In a nutshell, these new moderation tools allow group admins to:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/updated-from-shaky-to-steady-selecting-the-best-gimbals-for-your-drones/"><u>[Updated] From Shaky to Steady Selecting the Best Gimbals for Your Drones</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-definitive-guide-to-live-tweeting-with-reactions/"><u>[Updated] The Definitive Guide to Live Tweeting with Reactions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-transformative-techniques-for-capturing-on-iphone/"><u>2024 Approved Transformative Techniques for Capturing on iPhone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-itel-a70-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/banish-frame-drop-on-error-xc00d36c4/"><u>Banish Frame Drop on Error XC00D36C4</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-privacy-fb-messengers-e2ee-timeline/"><u>Ensuring Privacy: FB Messenger's E2EE Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-5-gaffes-that-cost-its-users-peace-of-mind/"><u>Facebook's 5 Gaffes That Cost Its Users Peace of Mind</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-facebook-tracking-with-the-off-facebook-activity-tool/"><u>How to Stop Facebook Tracking With the Off-Facebook Activity Tool</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-huawei-nova-y91-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Huawei Nova Y91 to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-snappy-success-techniques-for-making-memorable-marketing-images/"><u>In 2024, Snappy Success Techniques for Making Memorable Marketing Images</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/instantpause-live-image-save-tips/"><u>InstantPause Live Image Save Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-success-the-4-must-have-metadata-tools/"><u>Mastering Success: The 4 Must-Have Metadata Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-of-adaptive-oculus-personas-arrives/"><u>New Era of Adaptive Oculus Personas Arrives</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-efficient-route-or-a-security-minefield-debating-facebooks-role-in-multi-app-access/"><u>The Efficient Route or a Security Minefield? Debating Facebook's Role in Multi-App Access</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-future-of-therapy-will-ai-revolutionize-mental-health-assistance-for-better-or-worse/"><u>The Future of Therapy: Will AI Revolutionize Mental Health Assistance, for Better or Worse?</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovered-no-more-erasing-your-facebook-trail/"><u>Uncovered No More: Erasing Your Facebook Trail</u></a></li>
+</ul></div>
 

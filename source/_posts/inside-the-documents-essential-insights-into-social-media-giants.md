@@ -1,7 +1,7 @@
 ---
 title: "Inside the Documents: Essential Insights Into Social Media Giants"
-date: 2024-10-01T20:45:19.725Z
-updated: 2024-10-09T04:08:44.325Z
+date: 2024-10-12T23:09:58.393Z
+updated: 2024-10-14T23:16:36.863Z
 tags:
   - facebook
 categories:
@@ -33,16 +33,10 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
  On Monday, October 25, 2021, at 7am, the news outlets began publishing the information found in the leaked data, delivering unparalleled insight into the inner workings of Facebook.
 
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7 Key Revelations From the Facebook Papers
@@ -76,19 +70,22 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-quick-and-easy-iphone-collage-methods-that-work-wonders/"><u>[New] Quick and Easy iPhone Collage Methods That Work Wonders</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-insiders-tactics-for-creating-gripping-puzzle-posts-on-instagram-for-2024/"><u>[New] The Insider's Tactics for Creating Gripping Puzzle Posts on Instagram for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-pro-grade-mac-video-plus-audiophile-recorder/"><u>[Updated] 2024 Approved Pro-Grade Mac Video + Audiophile Recorder</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-run-a-giveaway-facebook-post/"><u>2024 Approved How to Run a Giveaway Facebook Post</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-disconnection-a-guide-to-living-offline/"><u>Discover Disconnection: A Guide to Living Offline</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/efficiently-manage-your-ios-gallery-album-organization-and-cloud-syncing/"><u>Efficiently Manage Your iOS Gallery Album Organization & Cloud Syncing</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-does-fbcta-affect-your-social-media-feed/"><u>How Does FBCTA Affect Your Social Media Feed?</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-opt-for-dark-scheme-in-facebook/"><u>How to Opt for Dark Scheme in Facebook</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-a-comprehensive-guide-for-enhancing-tiktok-voices/"><u>In 2024, A Comprehensive Guide for Enhancing TikTok Voices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-samsung-galaxy-watch3-blending-traditional-style-with-state-of-the-art-features/"><u>In-Depth Evaluation of the Samsung Galaxy Watch3: Blending Traditional Style With State-of-the-Art Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/renewable-rush-facebooks-full-transition-to-clean-energy/"><u>Renewable Rush: Facebook's Full Transition to Clean Energy</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/solving-problems-with-android-media-files-not-working-properly-in-windows/"><u>Solving Problems with Android Media Files Not Working Properly in Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-shifting-landscape-tiktok-overtaking-facebooks-market-share/"><u>The Shifting Landscape: TikTok Overtaking Facebook's Market Share</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-global-reach-strategies-for-multilingual-fb-posts/"><u>Unlock Global Reach - Strategies for Multilingual FB Posts</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-enhanced-cutting-techniques-for-professional-vimeo-media/"><u>[New] In 2024, Enhanced Cutting Techniques for Professional Vimeo Media</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-correct-inactive-user-profiles-on-fb/"><u>[Updated] Correct Inactive User Profiles on FB</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-step-by-step-strategies-for-splendid-colors-in-gopro-videos/"><u>[Updated] Step-by-Step Strategies for Splendid Colors in GoPro Videos</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/vobmp45/"><u>「簡単！無料でVOBファイルを安全にMP4形式に直接変換できるウェブサイト上位5つ」</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-sync-across-platforms-downloading-and-storing-gifs-from-facebook/"><u>2024 Approved Sync Across Platforms Downloading and Storing GIFs From Facebook</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/constructing-captivating-valorant-youtube-thumbnails/"><u>Constructing Captivating Valorant YouTube Thumbnails</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/driving-engagement-from-few-followers-to-million-views/"><u>Driving Engagement From Few Followers to Million Views</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-prime-moments-in-online-marketing/"><u>Identifying Prime Moments in Online Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-the-procedure-to-set-self-as-safe-on-fb/"><u>Identifying the Procedure to Set Self as Safe on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-update-the-hidden-menace-to-facebook/"><u>IOS 14.5 Update: The Hidden Menace to Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-places-to-embark-on-a-freelancing-quest/"><u>Leading Places to Embark on a Freelancing Quest</u></a></li>
+<li><a href="https://facebook.techidaily.com/messengers-undisclosed-strategy-sustains-cost-free-chatting-experience/"><u>Messenger's Undisclosed Strategy Sustains Cost-Free Chatting Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/music-meets-messenger-exploring-facebooks-next-big-move-with-spotify/"><u>Music Meets Messenger: Exploring Facebook's Next Big Move with Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-notables-the-top-4-shifts-in-online-societies/"><u>Networking Notables: The Top 4 Shifts in Online Societies</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-sideways-surprise-decoding-instagram-video-strange-behavior/"><u>The Sideways Surprise Decoding Instagram Video Strange Behavior</u></a></li>
+<li><a href="https://facebook.techidaily.com/workplace-from-facebook-all-you-need-to-know/"><u>Workplace From Facebook: All You Need to Know</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/zero-complication-guide-to-reactivate-port/"><u>Zero-Complication Guide to Reactivate Port</u></a></li>
 </ul></div>
 

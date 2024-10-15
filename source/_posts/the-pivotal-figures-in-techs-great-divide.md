@@ -1,7 +1,7 @@
 ---
 title: The Pivotal Figures in Tech's Great Divide
-date: 2024-09-09T16:42:23.270Z
-updated: 2024-09-16T16:29:46.648Z
+date: 2024-10-12T05:17:38.503Z
+updated: 2024-10-14T20:06:11.163Z
 tags:
   - facebook
 categories:
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/e68430bcb106e10e6ed671e16682f01d022f0799c
 
 ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Best known for:** Founder of WikiLeaks
 
  Julian Assange shot to notoriety in 2010 after publishing a number of classified documents on WikiLeaks. The most damaging leaks involved a series of classified US war logs and diplomatic cables, which prompted high-profile US politicians to label Assange a "terrorist."
@@ -73,10 +80,10 @@ thumbnail: https://thmb.techidaily.com/e68430bcb106e10e6ed671e16682f01d022f0799c
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Susan Wojcicki
@@ -93,14 +100,14 @@ thumbnail: https://thmb.techidaily.com/e68430bcb106e10e6ed671e16682f01d022f0799c
 
 ![Free Expression Awards YouTube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/free-expression-youtube-awards.png)
 
- The video highlighting the win has received over 50,000 dislikes at this time of writing.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
 ## 5\. Bill Gates
 
@@ -118,16 +125,16 @@ thumbnail: https://thmb.techidaily.com/e68430bcb106e10e6ed671e16682f01d022f0799c
 
  Contrary to the many conspiracy theories that paint Gates as a supervillain, his foundation (the Bill & Melinda Gates Foundation) promotes philanthropy to combat disease and poverty worldwide.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Mark Zuckerberg
 
 ![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Best known for:** Co-founder of Facebook
 
@@ -168,5 +175,21 @@ thumbnail: https://thmb.techidaily.com/e68430bcb106e10e6ed671e16682f01d022f0799c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-blog.techidaily.com/wolcen-lords-of-mayhem-reasons-and-insights-behind-the-hold-up-on-release/"><u>'Wolcen - Lords of Mayhem': Reasons and Insights Behind the Hold-Up on Release</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-angle-away-discover-our-top-11-bridge-photography-tools/"><u>[Updated] 2024 Approved Angle Away! Discover Our Top 11 Bridge Photography Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagrams-most-reliable-grid-creation-tools-countdown-to-top-ten/"><u>[Updated] In 2024, Instagram's Most Reliable Grid Creation Tools, Countdown to Top Ten</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/affordable-smartphone-upgrade-the-snapdragon-7plus-gen-2-powering-mid-range-devices/"><u>Affordable Smartphone Upgrade: The Snapdragon 7+ Gen 2 Powering Mid-Range Devices</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/coordinating-zoom-meetings-with-iphone-android-and-computer-timelines/"><u>Coordinating Zoom Meetings with iPhone, Android, and Computer Timelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolving-into-a-new-identity-meta-announces-its-emergence-from-facebook/"><u>Evolving Into a New Identity - Meta Announces Its Emergence From Facebook</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/expert-tips-for-efficient-use-of-movie-maker-in-windows-8/"><u>Expert Tips for Efficient Use of Movie Maker in Windows 8</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-introduces-weekend-live-shop-experience/"><u>Facebook Introduces Weekend Live Shop Experience</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/guide-for-converting-g2m2g2m4-video-files-from-gotomeeting-to-popular-codecs-such-as-mp4-and-mov/"><u>Guide for Converting G2M2/G2M4 Video Files From GoToMeeting to Popular Codecs Such as MP4 & MOV</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/guide-to-overcoming-critical-process-errors-and-bsod-in-windows-11/"><u>Guide to Overcoming Critical Process Errors and BSOD in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-the-trade-of-troves-meta-vs-inappropriate-images/"><u>Tackling the Trade of Troves: Meta Vs. Inappropriate Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dos-and-donts-of-followingunfollowing-on-facebook/"><u>The Do's and Don'ts of Following/Unfollowing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-major-tech-blunders-of-last-year-a-roundup/"><u>The Major Tech Blunders of Last Year: A Roundup</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-metaverse-unraveled-a-cosmic-collision/"><u>The Metaverse Unraveled: A Cosmic Collision</u></a></li>
+</ul></div>
 

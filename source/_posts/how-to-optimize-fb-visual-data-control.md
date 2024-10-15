@@ -1,7 +1,7 @@
 ---
 title: How to Optimize Fb Visual Data Control
-date: 2024-10-06T00:41:31.270Z
-updated: 2024-10-08T21:04:08.275Z
+date: 2024-10-13T16:59:41.634Z
+updated: 2024-10-15T02:45:34.041Z
 tags:
   - facebook
 categories:
@@ -37,20 +37,33 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 * **Location:** Does your photo reveal where you are? If you're at home, have you just revealed your home address to the world?
 * **Embarrassment:** Has someone posted a snap of you in a compromising position? You probably don't want your family or your boss to see it.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Facebook and Photo Privacy
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Inline Privacy Controls
 
 ![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Let's start at the very beginning. Even if the privacy of your old photos is a mess, it's time to turn over a new leaf. So let's make sure the privacy is correct for all your new photos going forward.
 
@@ -78,39 +91,32 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
 
  This covers your photos, but also your videos, wall posts, comments, Likes, and other content.
 
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Pro Tip: Use the Activity Log
 
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Photos You're Tagged In
@@ -152,21 +158,19 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-clearsnapzoom7-master-your-photographic-scaling/"><u>[New] ClearSnapZoom7 Master Your Photographic Scaling</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-easy-color-techniques-for-professional-outputs/"><u>[New] Easy Color Techniques for Professional Outputs</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-top-screen-recording-software-compared-bandicam-vs-camtasia-for-2024/"><u>[Updated] Top Screen Recording Software Compared Bandicam Vs Camtasia for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/300-oculus-rifts-users-gain-access-post-hack/"><u>$300 Oculus Rifts, Users' Gain Access Post-Hack</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-best-practices-for-swiftly-deleting-offensive-content/"><u>8 Best Practices for Swiftly Deleting Offensive Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/abolish-all-fb-push-notifications/"><u>Abolish All FB Push Notifications</u></a></li>
-<li><a href="https://facebook.techidaily.com/big-techs-battlefield-us-antitrust-law-adjustments/"><u>Big Tech's Battlefield: U.S. Antitrust Law Adjustments</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-compelling-online-story-with-your-business-profile-on-facebook/"><u>Crafting a Compelling Online Story with Your Business Profile on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-an-impactful-fb-profile-photograph/"><u>Creating an Impactful FB Profile Photograph</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/gpt-plus-vs-perplexity-the-ultimate-ai-battle/"><u>GPT Plus Vs. Perplexity: The Ultimate AI Battle</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Infinix Smart 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/overcoming-split-view-failures-in-os/"><u>Overcoming Split View Failures in OS</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719147188934-preparing-for-the-decision-facebooks-oversight-court-on-trump/"><u>Preparing for the Decision: Facebook's Oversight Court on Trump.</u></a></li>
-<li><a href="https://app-tips.techidaily.com/simplified-approach-to-retrieve-lost-apps-from-your-ios-device/"><u>Simplified Approach to Retrieve Lost Apps From Your iOS Device</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/snap-your-way-up-quick-instagram-collage-ideas-for-2024/"><u>Snap Your Way Up Quick Instagram Collage Ideas for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unmatched-mounting-premier-photos-tripods/"><u>Unmatched Mounting Premier Photos Tripods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-explore-eco-films-learn-and-innovate-with-yts-green-screens-for-2024/"><u>[New] Explore Eco-Films Learn & Innovate with YT's Green Screens for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-godly-onslaught-ragnaroks-day/"><u>[New] In 2024, Godly Onslaught Ragnarok’s Day</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-host-smart-and-cheap-your-guide-to-youtube-seminars/"><u>[New] In 2024, Host Smart and Cheap Your Guide to Youtube Seminars</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-vlc-utility-guide-for-mp4-to-multiple-file-types-transformation/"><u>[Updated] 2024 Approved VLC Utility Guide for MP4 to Multiple File Types Transformation</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-astronomys-best-showcase-10-prime-hd-sky-archives/"><u>[Updated] Astronomy's Best Showcase - 10 Prime HD Sky Archives</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-prime-programs-transforming-pictures-to-movies/"><u>[Updated] Prime Programs Transforming Pictures to Movies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-pure-portrayals-on-platforms-your-guide-to-authentic-snapshots/"><u>[Updated] Pure Portrayals on Platforms Your Guide to Authentic Snapshots</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-your-social-storytelling-sharing-high-definition-content/"><u>Enhance Your Social Storytelling: Sharing High-Definition Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-enhances-chat-security-with-new-encrypted-messaging-features/"><u>Facebook Enhances Chat Security with New Encrypted Messaging Features.</u></a></li>
+<li><a href="https://win-trending.techidaily.com/how-to-quickly-overcome-roblox-issue-524-with-step-by-step-troubleshooting-guide/"><u>How to Quickly Overcome Roblox Issue 524 with Step-by-Step Troubleshooting Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-galaxy-f34-5g-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Galaxy F34 5G using Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-metaais-abilities-in-dialogue-systems/"><u>Navigating MetaAI's Abilities in Dialogue Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-unplugging-a-guide-to-leaving-facebook/"><u>The Art of Unplugging: A Guide to Leaving Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-erasing-your-facebook-footprint/"><u>The Ultimate Guide to Erasing Your Facebook Footprint</u></a></li>
 </ul></div>
 

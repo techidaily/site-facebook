@@ -1,7 +1,7 @@
 ---
 title: Facebook’s Administrative Conduct Under Scrutiny by Amazon
-date: 2024-10-07T19:34:49.989Z
-updated: 2024-10-08T20:21:42.914Z
+date: 2024-10-12T06:55:25.525Z
+updated: 2024-10-15T02:17:53.032Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Amazon Filed the Case
@@ -50,10 +50,10 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
@@ -65,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -82,10 +82,10 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -109,15 +109,18 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-top-6-virtual-reality-vr-gloves-to-check-out/"><u>[New] Top 6 Virtual Reality (VR) Gloves to Check Out</u></a></li>
-<li><a href="https://facebook.techidaily.com/adjusting-your-little-ones-online-presence-in-messenger/"><u>Adjusting Your Little One’s Online Presence in Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/anonymous-advantages-avoid-privacy-popping-apps/"><u>Anonymous Advantages: Avoid Privacy-Popping Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-newsfeed-post-fb-existence/"><u>Beyond the Newsfeed: Post-FB Existence</u></a></li>
-<li><a href="https://facebook.techidaily.com/complete-uncoupling-from-the-social-media-giant/"><u>Complete Uncoupling From the Social Media Giant</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-realme-11-proplus-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Realme 11 Pro+ to iPhone | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Vivo V29 Pro | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-honor-x7b-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Honor X7b Phones with/without a PC</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Tecno Pova 5 | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-guide-overcoming-the-hurdles-of-windows-update-1903/"><u>Troubleshooting Guide: Overcoming the Hurdles of Windows Update 1903</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-revolutionary-drone-editing-for-visual-storytellers/"><u>[New] Revolutionary Drone Editing for Visual Storytellers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-high-earning-video-visionaries-for-2024/"><u>[Updated] High Earning Video Visionaries for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-innovative-techniques-improve-your-hp-laptop-screen-recordings/"><u>[Updated] Innovative Techniques Improve Your HP Laptop Screen Recordings</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-behind-the-screen-discovering-samsung-galaxy-s8s-4k-edge/"><u>2024 Approved Behind the Screen Discovering Samsung Galaxy S8's 4K Edge</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/5-solutions-for-samsung-galaxy-m14-4g-unlock-without-password-by-drfone-android/"><u>5 Solutions For Samsung Galaxy M14 4G Unlock Without Password</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/correct-the-boot-device-cannot-be-found-bsod-problem-in-windows-11-with-easy-to-follow-pictorial-steps/"><u>Correct the Boot Device Cannot Be Found BSOD Problem in Windows 11 with Easy-to-Follow Pictorial Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-insights-into-friend-identification-discover-3-fb-tag-methods/"><u>Exclusive Insights Into Friend Identification: Discover 3 FB Tag Methods</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-sign-a-excel-2021-files-electronically-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How do i sign a Excel 2021 files electronically</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/leading-titles-for-3d-visuals-and-lustrous-text-online-for-2024/"><u>Leading Titles for 3D Visuals & Lustrous Text Online for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/messengers-secret-to-ephemeral-exchanges/"><u>Messenger's Secret to Ephemeral Exchanges</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-sets-boundaries-on-satire/"><u>Social Network Sets Boundaries on Satire</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-psychology-behind-each-sharing-action-on-facebook/"><u>The Psychology Behind Each Sharing Action on Facebook</u></a></li>
+<li><a href="https://extra-information.techidaily.com/venture-beyond-reality-with-our-top-1-cookies-in-mobile-vr-technology/"><u>Venture Beyond Reality with Our Top 1 Cookies in Mobile VR Technology</u></a></li>
 </ul></div>
 

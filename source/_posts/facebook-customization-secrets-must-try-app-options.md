@@ -1,7 +1,7 @@
 ---
 title: "Facebook Customization Secrets: Must-Try App Options"
-date: 2024-09-11T22:29:03.401Z
-updated: 2024-09-16T21:19:54.471Z
+date: 2024-10-08T01:03:25.706Z
+updated: 2024-10-15T05:11:53.602Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ Close
 
 ![Never Autoplay Videos Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Never-Autoplay-Videos-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
  When you install the Facebook app, video autoplay is turned on by default. As the name suggests, this feature automatically plays a video when you scroll through your feed.
@@ -68,13 +75,41 @@ Close
 
  To access the screen time report, go to **Settings & Privacy > Settings > Preferences > Your Time on Facebook > See Your Time** . Here you’ll see an app usage graph, and you can toggle on the**Weekly Update** option to receive automated weekly updates.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Turn On the Quiet Mode and Daily Time Reminders
 
 ![Your Time on Facebook Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Your-Time-on-Facebook-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Your Time on Facebook Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Your-Time-on-Facebook-Settings-in-the-Facebook-App.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Manage Your Time Options in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Manage-Your-Time-Options-in-the-Facebook-App-Settings.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -85,6 +120,13 @@ Close
  To access this feature, go to **Settings & Privacy > Settings > Preferences > Your Time on Facebook > Manage Your Time** .
 
  In the same menu, you can also choose the amount of time you want to spend on Facebook through Daily Time Reminder. As the name suggests, this feature sends you a reminder once you have used the app for the specified duration.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Toggle Dark Mode On or Off
 
@@ -98,38 +140,11 @@ Close
 
  To enable Dark Mode, go to **Settings & Privacy > Settings > Preferences > Dark Mode** . It provides you with three options:**On** ,**Off** , and**Use System Settings** . The**Use System Settings** option can detect the default mode of your system and matches the Facebook app’s mode accordingly.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. Toggle Continuous Contact Upload
 
 ![Upload Contacts Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Upload-Contacts-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Continuous Contacts Upload Setting in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Continuous-Contacts-Upload-Setting-in-the-Facebook-App.jpeg)
-
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -139,16 +154,16 @@ Close
 
  You can turn this feature on or off by going to **Settings & Privacy > Settings > Permissions > Upload Contacts** . Once you turn it on, it takes you to the screen where you upload your contacts for the first time to find your friends. If you want to stop sharing this information with Facebook, toggle it off instead.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7\. Data Saver on Mobile Network
 
 ![Media-Settings-Highlighted-in-the-Facebook-App-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Media-Settings-Highlighted-in-the-Facebook-App-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Data Saver Setting Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Data-Saver-Setting-Highlighted-in-the-Facebook-App.jpg)
 
@@ -158,24 +173,18 @@ Close
 
  The feature claims to use 40% less data when you turn on the Data Saver mode. To enable it, go to **Settings & Privacy > Settings > Preferences > Media** . Here you’ll find the Data Saver option, among other useful media-related preferences.
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 8\. Open Links Externally
 
 ![Media-Settings-Highlighted-in-the-Facebook-App-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Media-Settings-Highlighted-in-the-Facebook-App-2.jpg)
 
 ![Links Open Externally Setting Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Links-Open-Externally-Setting-Highlighted-in-the-Facebook-App.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -228,5 +237,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-perfect-frame-a-guide-to-polishing-videos-with-instagram-edits/"><u>[New] In 2024, The Perfect Frame A Guide to Polishing Videos with Instagram Edits</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-essential-strategies-to-save-instagram-stories/"><u>[Updated] 2024 Approved Essential Strategies to Save Instagram Stories</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-free-fx-library-to-enhance-youtube-productions-in-2024/"><u>[Updated] Free FX Library to Enhance YouTube Productions, In 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/a-guide-to-customizing-terminal-color-schemes/"><u>A Guide to Customizing Terminal Color Schemes</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/diy-mp3-creation-from-mkv-sources-for-free-mastering-audio-extraction-via-movavis-web-service/"><u>DIY MP3 Creation From MKV Sources for Free: Mastering Audio Extraction via Movavi's Web Service</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/elevating-dev-workflows-with-chatgpt-and-vs-code/"><u>Elevating Dev Workflows with ChatGPT & VS Code</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-opens-door-to-unlimited-possibilities-with-oculus-go-root-access/"><u>Facebook Opens Door to Unlimited Possibilities with Oculus Go Root Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-it-real-on-facebook-the-case-for-caution-with-new-friends/"><u>Keeping It Real on Facebook: The Case for Caution with New Friends</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/mp4-to-dvd-transformation-a-comprehensive-tutorial-for-microsoft-users/"><u>MP4 to DVD Transformation: A Comprehensive Tutorial for Microsoft Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-network-neighborhoods-new-layout-rollout/"><u>Navigating Network Neighborhoods: New Layout Rollout</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-social-browsing-with-fb-shortcuts/"><u>Optimizing Social Browsing with FB Shortcuts</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviving-your-social-media-profile-when-to-start/"><u>Reviving Your Social Media Profile - When To Start?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-discipline-banning-unwanted-accounts-from-your-page/"><u>Social Media Discipline: Banning Unwanted Accounts From Your Page</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722899923761-the-next-gen-iphone-released-in-teasers-pricing-arrival-dates-and-speculations-on-its-advances/"><u>The Next-Gen iPhone Released in Teasers: Pricing, Arrival Dates and Speculations on Its Advances</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-xiaomi-redmi-note-12-pro-4g-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Xiaomi Redmi Note 12 Pro 4G to Gmail | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-secrets-accelerating-your-fb-communitys-growth/"><u>Unlock the Secrets: Accelerating Your Fb Community's Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-whitelisted-policies/"><u>Unveiling Facebook’s Whitelisted Policies</u></a></li>
+</ul></div>
 

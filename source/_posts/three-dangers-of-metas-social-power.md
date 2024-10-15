@@ -1,7 +1,7 @@
 ---
 title: Three Dangers of Meta's Social Power
-date: 2024-09-10T19:02:05.227Z
-updated: 2024-09-16T23:43:47.511Z
+date: 2024-10-14T12:42:58.452Z
+updated: 2024-10-15T06:35:03.570Z
 tags:
   - facebook
 categories:
@@ -56,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/7989d193b701c6c4112afd659656de357f20d61f1
 
  As evidenced in the buildup to the last two US presidential elections, filtered information can positively or negatively influence global outcomes. Consequently, Meta can easily influence global culture by controlling the kind of information billions of people have access to. That much power, if unchecked, is potentially dangerous.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. A Privacy Dilemma
 
 ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
@@ -69,6 +76,13 @@ thumbnail: https://thmb.techidaily.com/7989d193b701c6c4112afd659656de357f20d61f1
  If you use Facebook services, Meta has a complete history of where you've been for at least the last year. Once you've signed up with any of Meta's products, you become tracked indefinitely. Facebook, for instance, tracks you even when you're not actively using any of its products. It does this through data-sharing agreements with hundreds of tech companies whose apps you're likely using as well.
 
 ![Off Facebook Activity lets you view and control what facebook knows about you through third party websites and apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/05/facebook-privacy-off-facebook-activity.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ​​​​​​
 
@@ -88,6 +102,13 @@ Not convinced?
 
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
  You might be surprised just how much information Meta is getting on you.
@@ -95,10 +116,10 @@ Close
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the[New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Stay Conscious of Meta's Influence
@@ -122,5 +143,23 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-step-by-step-guide-to-making-a-hit-youtuber-short/"><u>[New] Step-by-Step Guide to Making a Hit Youtuber Short</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-mirthful-missions-delving-into-the-goofy-movie-vhs-for-2024/"><u>[Updated] 'Mirthful Missions' - Delving Into The Goofy Movie VHS for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-craft-captivating-narratives-the-best-of-the-best-10-igtv-strategies-for-brands/"><u>[Updated] Craft Captivating Narratives The Best of the Best 10 IGTV Strategies for Brands</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-audacity-workshop-eloquent-silent-transitions/"><u>2024 Approved Audacity Workshop Eloquent Silent Transitions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/best-of-the-best-discovering-the-5-superior-tools-for-converting-videos-into-4k-resolution/"><u>Best of the Best: Discovering the 5 Superior Tools for Converting Videos Into 4K Resolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-personal-info-best-practices-for-fb-users/"><u>Fortifying Personal Info: Best Practices for FB Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-broadcasting-locations-on-messenger/"><u>Guide to Broadcasting Locations on Messenger</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-windows-10-video-editing-made-easy-top-imovie-alternatives/"><u>In 2024, Windows 10 Video Editing Made Easy Top iMovie Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-client-engagement-through-facebook-marketing-strategies/"><u>Mastering Client Engagement Through Facebook Marketing Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-vs-maintaining-facebooks-dilemma/"><u>Maximizing Vs. Maintaining: Facebook's Dilemma</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-fb-experience-friends-only-policy/"><u>Optimize Your Fb Experience: Friends Only Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/report-facebooks-first-smartwatch-could-feature-two-detachable-cameras/"><u>Report: Facebook's First Smartwatch Could Feature Two Detachable Cameras</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unleash-creative-vocal-power-access-free-audio-effects-here-for-2024/"><u>Unleash Creative Vocal Power Access Free Audio Effects Here for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-potential-identifying-best-tools-for-corporate-reach/"><u>Unleash Potential: Identifying Best Tools for Corporate Reach</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/why-fintie-protective-gear-tops-the-list-for-macbook-pro-n13-users-a-comprehensive-review/"><u>Why Fintie Protective Gear Tops the List for MacBook Pro N13 Users: A Comprehensive Review</u></a></li>
+</ul></div>
 

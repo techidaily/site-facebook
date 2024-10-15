@@ -1,7 +1,7 @@
 ---
 title: "National Sentiment on SNS: Detriments Outweigh Advantages"
-date: 2024-09-14T18:59:33.115Z
-updated: 2024-09-16T16:38:37.141Z
+date: 2024-10-11T08:40:00.707Z
+updated: 2024-10-14T17:39:52.011Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/4740430244a268b3ae9a4b1e15c683b234a7cf8bd
 
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Does Social Media Affect Your Life?
 
  The same poll also asked Americans how social media affects their quality of life. 49 percent say social media makes their lives better, while 37 percent say it makes their lives worse.
@@ -54,7 +61,21 @@ thumbnail: https://thmb.techidaily.com/4740430244a268b3ae9a4b1e15c683b234a7cf8bd
 
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
 
@@ -77,18 +98,21 @@ thumbnail: https://thmb.techidaily.com/4740430244a268b3ae9a4b1e15c683b234a7cf8bd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-decoding-the-revised-youtube-earnings-criteria/"><u>[New] Decoding the Revised YouTube Earnings Criteria</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-ai-powered-text-conversion-for-effective-presentations/"><u>[New] In 2024, AI-Powered Text Conversion for Effective Presentations</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-luts-explained-enhancing-images-through-color-grading/"><u>2024 Approved LUTs Explained Enhancing Images Through Color Grading</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unveiling-the-ultimate-list-of-budget-friendly-video-editors/"><u>2024 Approved Unveiling the Ultimate List of Budget-Friendly Video Editors</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-personal-social-and-global-transformation/"><u>Facebook's Role in Personal, Social, and Global Transformation</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/lost-in-battle-for-azeroth-or-stuck-on-overwatch-rebooting-your-way-back-into-the-game-servers/"><u>Lost in Battle for Azeroth or Stuck on Overwatch? Rebooting Your Way Back Into the Game Servers</u></a></li>
+<li><a href="https://facebook.techidaily.com/mark-zuckerberg-hints-at-multi-platform-whatsapp-usage/"><u>Mark Zuckerberg Hints at Multi-Platform WhatsApp Usage</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-5-best-chrome-extensions-you-can-use-to-translate-videos/"><u>New In 2024, 5 Best Chrome Extensions You Can Use to Translate Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-quality-swiftest-android-substitutes/"><u>Quick Quality: Swiftest Android Substitutes</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolving-the-issue-how-to-fix-continuous-crashes-in-beat-saber/"><u>Resolving the Issue: How to Fix Continuous Crashes in Beat Saber</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-dilemma-of-your-unresponsive-corsair-keyboard-easily/"><u>Solving the Dilemma of Your Unresponsive Corsair Keyboard Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/swifter-alternatives-best-lite-android-apps-out-there/"><u>Swifter Alternatives: Best Lite Android Apps Out There</u></a></li>
+<li><a href="https://facebook.techidaily.com/switching-facebook-view-activate-dark-scheme/"><u>Switching Facebook View: Activate Dark Scheme</u></a></li>
+<li><a href="https://facebook.techidaily.com/track-evanescent-snapshots-your-messenger-guardian/"><u>Track Evanescent Snapshots: Your Messenger Guardian</u></a></li>
+</ul></div>
 

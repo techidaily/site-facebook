@@ -1,7 +1,7 @@
 ---
 title: Tech Leaders to Address Scam Ad Proliferation More Effectively
-date: 2024-10-02T19:17:44.798Z
-updated: 2024-10-08T16:35:44.785Z
+date: 2024-10-14T04:00:17.652Z
+updated: 2024-10-14T23:15:47.332Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -78,18 +78,14 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-articulating-emotion-on-stage-through-words-for-2024/"><u>[New] Articulating Emotion on Stage Through Words for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-lighting-up-dull-iphone-videos-in-3-ways/"><u>[New] Lighting up Dull iPhone Videos in 3 Ways</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-tailored-strategies-for-free-clock-usage-optimization/"><u>[Updated] 2024 Approved Tailored Strategies for FREE Clock Usage Optimization</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-master-cameras-for-slow-motion-animations-for-2024/"><u>[Updated] Master Cameras for Slow-Motion Animations for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-elevating-video-previews-a-compreayer-approach-for-youtube/"><u>2024 Approved Elevating Video Previews A Compreayer Approach for YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-game-changing-ways-to-make-money-on-social-media/"><u>5 Game-Changing Ways to Make Money on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-free-from-old-walls-renaming-yourself-on-fb/"><u>Breaking Free From Old Walls: Renaming Yourself on FB</u></a></li>
-<li><a href="https://games-able.techidaily.com/child-protection-staying-vigilant-in-virtual-spaces/"><u>Child Protection: Staying Vigilant in Virtual Spaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/cleanse-your-feed-a-guide-to-page-de-selection/"><u>Cleanse Your Feed: A Guide to Page De-Selection</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-private-online-presence-essential-tips-for-fb-users/"><u>Crafting a Private Online Presence: Essential Tips for FB Users</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/enhance-user-experience-and-conversions-using-the-latest-in-cookiebot-analytics-tools/"><u>Enhance User Experience and Conversions Using the Latest in Cookiebot Analytics Tools</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-honor-x9b-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Honor X9b FRP Locks</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-is-your-iphone-15-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Is Your iPhone 15 in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-12-proven-ways-to-increase-youtube-views-you-should-try/"><u>[Updated] In 2024, 12 Proven Ways to Increase YouTube Views You Should Try</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722973406413-brother-hl-l2370dw-driver-update-enhanced-features-and-compatibility-download-today/"><u>Brother HL-L2370DW Driver Update: Enhanced Features & Compatibility - Download Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-with-purpose-marketers-guide-to-user-participation/"><u>Engage with Purpose: Marketers' Guide to User Participation</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-notified-when-someone-screenshots-disappearing-messages-on-messenger/"><u>How to Get Notified When Someone Screenshots Disappearing Messages on Messenger</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-motorola-moto-g24-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Motorola Moto G24 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-leading-list-where-to-find-gamers-music-without-costs/"><u>In 2024, The Leading List Where to Find Gamers' Music Without Costs</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-digital-connection-5-best-platforms-for-companies/"><u>Mastering Digital Connection: 5 Best Platforms for Companies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-selection-premium-iphone-se-casings-reviewed/"><u>Ultimate Selection: Premium iPhone SE Casings Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/unbanned-facebook-profile-section-reverberates-with-anti-vax-sentiments/"><u>Unbanned: Facebook Profile Section Reverberates with Anti-Vax Sentiments</u></a></li>
 </ul></div>
 

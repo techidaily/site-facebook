@@ -1,7 +1,7 @@
 ---
 title: "Portal's Next Chapter: Introducing the Go Version"
-date: 2024-09-15T22:28:11.193Z
-updated: 2024-09-16T23:18:14.369Z
+date: 2024-10-10T07:11:46.906Z
+updated: 2024-10-15T02:18:34.474Z
 tags:
   - facebook
 categories:
@@ -44,9 +44,23 @@ thumbnail: https://thmb.techidaily.com/4f556f53b702be059c5baaa605e55372122aad0cd
 
  For privacy, the Portal Go offers a built-in camera cover and a switch that can disable the microphone and camera.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Pre-Order the Facebook Portal Go Now
 
  The Facebook Portal Go[retails for $199](https://portal.facebook.com/products/portal-go/) . You can preorder the device now directly from Facebook. Orders will start shipping on October 19.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## A New Way to Use Facebook Portal
 
@@ -67,12 +81,22 @@ thumbnail: https://thmb.techidaily.com/4f556f53b702be059c5baaa605e55372122aad0cd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/pause-button-interpreting-instagrams-advocacy-for-social-media-sabbaths/"><u>'Pause Button': Interpreting Instagram's Advocacy for Social Media Sabbaths</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-get-your-video-dimensions-spot-on-for-instagram-sharing/"><u>[New] 2024 Approved Get Your Video Dimensions Spot-On for Instagram Sharing</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-seamless-entry-into-friends-tiktok-experiences-for-2024/"><u>[New] Seamless Entry Into Friends' TikTok Experiences for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-restoring-missing-sounds-in-obs-recordings/"><u>[Updated] 2024 Approved Restoring Missing Sounds in OBS Recordings</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-setting-up-for-success-an-instagram-business-account-blueprint/"><u>2024 Approved Setting Up for Success An Instagram Business Account Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-enable-your-personalized-facebook-safety-mode/"><u>How to Enable Your Personalized Facebook Safety Mode</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/in-depth-analysis-of-pc-gear-by-toms-hardware-team/"><u>In-Depth Analysis of PC Gear by Tom's Hardware Team</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/independent-messaging-how-to-chat-on-messenger-outside-of-facebook/"><u>Independent Messaging: How to Chat on Messenger Outside of Facebook</u></a></li>
+<li><a href="https://games-able.techidaily.com/step-by-step-guide-to-fan-translated-rom-patches/"><u>Step-by-Step Guide to Fan Translated Rom Patches</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-industry-partner-aids-who-targeting-covid-19-crisis/"><u>Tech Industry Partner Aids WHO, Targeting COVID-19 Crisis</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-five-principles-to-a-clean-feed/"><u>The Five Principles to a Clean Feed</u></a></li>
+<li><a href="https://win-forum.techidaily.com/transformez-facilement-votre-video-flv-en-3gp-sans-frais-avec-onlineconvertpro-by-moveave/"><u>Transformez Facilement Votre Vidéo FLV en 3GP Sans Frais Avec OnlineConvertPro by Moveave</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-online-habits-social-media-seeks-your-perspective/"><u>Unpacking Online Habits: Social Media Seeks Your Perspective</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-logic-behind-one-account-multiple-profiles-on-facebook/"><u>Unpacking the Logic Behind One-Account, Multiple-Profiles on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-facebooks-persistent-post-suggestions/"><u>Unraveling Facebook's Persistent Post Suggestions</u></a></li>
+</ul></div>
 

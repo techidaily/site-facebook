@@ -1,7 +1,7 @@
 ---
 title: Social Network's Generosity Fights Global Health Emergency
-date: 2024-10-06T21:49:26.730Z
-updated: 2024-10-08T17:59:13.216Z
+date: 2024-10-10T07:36:47.174Z
+updated: 2024-10-15T09:17:43.137Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ Image Credit: Facebook
  "These fundraisers will support equitable vaccine distribution around the world, reducing the spread of COVID-19 and putting countries on a path to recovery," Facebook notes. Facebook will donate a total of $5 million to the cause.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Also Aims to Highlight "Trusted Messengers"
@@ -52,16 +52,10 @@ Image Credit: Facebook
 ![Facebook COVID messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-covid-messages.png)
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The platform is teaming up with AARP and Johns Hopkins University's Bloomberg School of Public Health to roll out vaccine-related campaigns in Spanish as well.
@@ -73,10 +67,10 @@ Image Credit: Facebook
  Lastly, Facebook will also be working with UNICEF to promote posts of healthcare workers receiving the vaccine around the globe. By making these posts more visible, Facebook hopes that it will encourage more people to get the vaccine.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Fights for Vaccine Equity
@@ -98,16 +92,24 @@ Image Credit: Facebook
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-ps5xbox-series-x-gaming-sets-the-top-5-list/"><u>[New] PS5/Xbox Series X Gaming Sets The Top 5 List</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-new-horizons-in-video-codecs-comparing-av1-and-vp9/"><u>2024 Approved New Horizons in Video Codecs Comparing Av1 and VP9</u></a></li>
-<li><a href="https://facebook.techidaily.com/after-the-social-giant-your-datas-fate/"><u>After the Social Giant: Your Data's Fate</u></a></li>
-<li><a href="https://facebook.techidaily.com/cracking-the-code-how-many-are-quitting-facebook/"><u>Cracking the Code: How Many Are Quitting Facebook?</u></a></li>
-<li><a href="https://facebook.techidaily.com/easy-steps-erase-and-reset-your-facebook-narrative/"><u>Easy Steps: Erase and Reset Your Facebook Narrative</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Samsung Galaxy A15 5G? | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/inside-openai-the-foundation-behind-it-all/"><u>Inside OpenAI: The Foundation Behind It All</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-whats-the-best-green-screen-app-for-mac-weve-got-the-answer-for-2024/"><u>New Whats the Best Green Screen App for Mac? Weve Got the Answer for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/professional-ppt-recording-tactics-and-tricks/"><u>Professional PPT Recording Tactics and Tricks</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-shift-in-development-due-to-ai/"><u>The Shift in Development Due to AI</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-sophisticated-cyber-charades/"><u>Unmasking Sophisticated Cyber Charades</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-enhance-xbox-gameplay-with-best-monitor-recommendations/"><u>[New] Enhance Xbox Gameplay with Best Monitor Recommendations</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-essential-guide-for-teachers-on-using-visual-aids-for-2024/"><u>[New] Essential Guide for Teachers on Using Visual Aids for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-free-scape-discovering-the-artistic-no-money-backdrops-of-tiktok-for-2024/"><u>[New] FREE-Scape Discovering the Artistic No-Money Backdrops of TikTok for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-a-list-film-preview-shorts/"><u>[Updated] A-List Film Preview Shorts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-step-by-step-obs-studio-setup-for-android-users-for-2024/"><u>[Updated] Step-by-Step OBS Studio Setup for Android Users for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-unveiling-the-power-of-google-wifi-the-ultimate-wireless-mesh-system/"><u>Comprehensive Guide: Unveiling the Power of Google WiFi - The Ultimate Wireless Mesh System</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-privacy-intrusion-stops-with-germany-ordering-halt-in-whatsapp-data-harvesting/"><u>Facebook’s Privacy Intrusion Stops with Germany Ordering Halt in WhatsApp Data Harvesting</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-troubleshoot-non-charging-issues-when-plugged-in-under-windows/"><u>How to Troubleshoot Non-Charging Issues When Plugged In Under Windows</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-from-apple-iphone-7-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock from Apple iPhone 7</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagramfacebook-experiment-integrating-meta-drops-innovations/"><u>Instagram/Facebook Experiment: Integrating Meta Drops' Innovations</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/integrating-your-photos-smart-transfers-from-iphone-to-snapchat-for-2024/"><u>Integrating Your Photos Smart Transfers From iPhone to Snapchat for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-in-redefined-spheres-on-facebook/"><u>Networking in Redefined Spheres on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-to-fb-no-problem-resetting-passwords-made-simple/"><u>New to FB? No Problem - Resetting Passwords Made Simple</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-social-media-practice-pros-and-cons-of-fb-event-management/"><u>Optimal Social Media Practice: Pros & Cons of FB Event Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/selective-engagement-balancing-fb-relationships/"><u>Selective Engagement: Balancing Fb Relationships</u></a></li>
+<li><a href="https://facebook.techidaily.com/shifting-identities-online-adjusting-your-facebook-identity/"><u>Shifting Identities Online: Adjusting Your Facebook Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-unites-facebook-and-rust-in-programming-synergy/"><u>Tech Unites: Facebook and Rust in Programming Synergy</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-is-stealthier-meta-or-fb-for-quest-2-users/"><u>Which Is Stealthier? Meta or FB for Quest 2 Users</u></a></li>
 </ul></div>
 

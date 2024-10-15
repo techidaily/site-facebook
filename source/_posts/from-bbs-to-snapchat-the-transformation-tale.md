@@ -1,7 +1,7 @@
 ---
 title: "From BBS To Snapchat: The Transformation Tale"
-date: 2024-09-14T17:13:45.605Z
-updated: 2024-09-16T22:45:11.720Z
+date: 2024-10-13T00:35:20.258Z
+updated: 2024-10-14T23:13:28.496Z
 tags:
   - facebook
 categories:
@@ -30,13 +30,34 @@ thumbnail: https://thmb.techidaily.com/1c99e9418ecc4dc629f64c0ecebd23df13aefb6fa
 
  While you may be happy with the familiarity that comes from forums, a lot of people expect much more innovation than these platforms typically get. Even if social media platforms are sometimes slow to implement changes that their user base wants, you're probably less likely to stick around for changes to happen on a forum that already falls short of many features that social media offers.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Social Media Is Designed to be Attention-Grabbing
 
 ![A class of students paying attention to a lecture.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/students-attention.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Social media, by design, knows how to grab your attention and then hold it. You likely find yourself scrolling for a while on Twitter, Facebook, or some other social media before realizing you've lost track of time. While you could have the same experience on a forum, social media platforms are more adept at maintaining users' attention. This is because they run on an[attention economy model](https://www.makeuseof.com/tag/what-is-attention-economy/) , as your sustained usage makes these platforms money.
 
  The fast-moving nature, mixed media types (text, image, and video), and design principle of scrolling through a "timeline" encourage you to "catch up" are all examples of social media trying to keep you on the platform for longer. On a forum, you have many subsections—each with their own threads. They tend to be a bit more narrow in focus and long-form and predominately text-based, which is easier to pull yourself out of because it takes more sustained focus to navigate.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Forums Seem Outdated
 
@@ -45,16 +66,10 @@ thumbnail: https://thmb.techidaily.com/1c99e9418ecc4dc629f64c0ecebd23df13aefb6fa
  This is because young internet users will learn from people around them that are older about social media, and the less they see forums, the less chance they'll think to sign up for one. As time goes on, forums will likely become more obscure and more outdated—leading to fewer signups.
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Forums Tend to Be Dedicated Around One Subject
@@ -62,13 +77,6 @@ thumbnail: https://thmb.techidaily.com/1c99e9418ecc4dc629f64c0ecebd23df13aefb6fa
  This isn't a hard-and-fast rule, of course, but forums typically are dedicated to one subject—even if the actual boards have sections for many topics. Examples include mothers for MumsNet, gamers for IGN boards, and so on.
 
  Forums commonly have a subsection where you can talk about everyday life stuff, films, TV shows, games, anything that isn't related to the primary subject it was created for. However, because of this dedication to a single subject, it can lead to you thinking that they're very niche. This may not be favorable compared to Twitter, Facebook, or Instagram, all of which cover pretty much anything—and connect you to people based on a comprehensive algorithm or your manual searches.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Apps Are More User-Friendly
 
@@ -103,5 +111,26 @@ thumbnail: https://thmb.techidaily.com/1c99e9418ecc4dc629f64c0ecebd23df13aefb6fa
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-best-digital-realms-downloadable-alarm-melodies/"><u>[New] 2024 Approved Best Digital Realms Downloadable Alarm Melodies</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unlocking-the-potential-storing-insta-media-on-your-phone/"><u>[New] Unlocking the Potential Storing Insta Media on Your Phone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dive-into-dynamic-youtube-discussions/"><u>[Updated] 2024 Approved Dive Into Dynamic YouTube Discussions</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-tiktok-tricks-faster-video-loading/"><u>[Updated] 2024 Approved TikTok Tricks Faster Video Loading</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-crafting-memes-the-ultimate-guide-to-gif-creation/"><u>[Updated] Crafting Memes The Ultimate Guide to GIF Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-essential-steps-to-producing-a-youtube-hit-music-reaction-video-guide/"><u>[Updated] In 2024, Essential Steps to Producing a YouTube Hit Music Reaction Video Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-experience-privacy-controls/"><u>Enhancing Your Facebook Experience: Privacy Controls</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/essential-software-for-mastering-twitter-interactions/"><u>Essential Software for Mastering Twitter Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/gadget-whispers-what-we-know-of-facebooks-stealth-watch/"><u>Gadget Whispers: What We Know of Facebook’s Stealth Watch</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-camouflage-your-fb-profile-from-anonymous-onlookers/"><u>How To Camouflage Your FB Profile From Anonymous Onlookers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-realme-12-pro-5g-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-mini-with-imei-code-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 mini with IMEI Code?</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-techniques-for-banishing-personal-updates-from-fb/"><u>Instant Techniques for Banishing Personal Updates From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-fb-memories-heres-how-to-delete-them-android/"><u>No More FB Memories? Here's How To Delete Them, Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebranding-online-the-process-of-altering-your-name-on-facebook/"><u>Rebranding Online: The Process of Altering Your Name on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/revitalizing-relationships-without-politics-in-sight/"><u>Revitalizing Relationships Without Politics in Sight</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthening-facebooks-defense-password-transformation-tips/"><u>Strengthening Facebook's Defense: Password Transformation Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-revisiting-traditional-features-could-help-instagram/"><u>Why Revisiting Traditional Features Could Help Instagram</u></a></li>
+</ul></div>
 

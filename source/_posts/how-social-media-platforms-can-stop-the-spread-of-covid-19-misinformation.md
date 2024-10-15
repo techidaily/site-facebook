@@ -1,7 +1,7 @@
 ---
 title: How Social Media Platforms Can Stop the Spread of COVID-19 Misinformation
-date: 2024-09-13T22:51:53.449Z
-updated: 2024-09-16T19:08:22.439Z
+date: 2024-10-10T18:29:43.578Z
+updated: 2024-10-14T18:41:47.885Z
 tags:
   - facebook
 categories:
@@ -64,22 +64,16 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Read more: [Is Facebook Doing Enough to Tackle Misinformation?](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Social Media Companies Can Protect Users From Harmful Misinformation
 
  In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
-
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Tap Into Celebrities and Religious and Community Leaders
 
@@ -92,10 +86,10 @@ YouTube also removes videos that violate its COVID-19 policy.
  Social media platforms have algorithms to detect fake news. However, they can take it a step further by establishing a shared online standard of conduct regarding the treatment of fake news.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Establish a Clear Threshold for Enforcement Action
@@ -104,28 +98,29 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  This would still allow the user to exercise their right to free speech while being moderated for the type of information they upload.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Display Corrective Posts to Users Exposed to Disinformation
 
  Social media platforms can show users who have been exposed to content in violation of the COVID-19 policy corrective posts from experts and trusted sources.
-
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Add Warning Screens When Users Click Links to Misinformation Sites
 
  Companies should consider adding a warning screen in front of third-party websites or untrustworthy sources housing COVID-19-related misinformation.
 
  Related: [The Best Fact-Checking Sites for Finding Unbiased Truth](https://www.makeuseof.com/tag/true-5-factchecking-websites/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Ban Private and Secret Anti-Vaccine Facebook Groups
 
@@ -150,5 +145,24 @@ YouTube also removes videos that violate its COVID-19 policy.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-demystifying-the-instagram-selfie-process/"><u>[New] 2024 Approved Demystifying the Instagram Selfie Process</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-effortless-fb-stream-setup-using-obs-on-laptops-mac-and-pc-for-2024/"><u>[New] Effortless FB Stream Setup Using OBS on Laptops, Mac & PC for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-elevating-your-presence-on-tiktok-essential-7-must-haves/"><u>[New] Elevating Your Presence on TikTok Essential 7 Must-Haves</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-the-screen-recorders-journey-a-deep-dive-into-the-best-tools/"><u>[Updated] 2024 Approved The Screen Recorder's Journey A Deep Dive Into the Best Tools</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-dissecting-backwards-image-trails-on-social-media-giant-facebook/"><u>[Updated] Dissecting Backwards Image Trails on Social Media Giant Facebook</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-how-to-get-your-youtube-video-seen-6-easy-steps/"><u>[Updated] How to Get Your YouTube Video Seen - 6 Easy Steps</u></a></li>
+<li><a href="https://win11.techidaily.com/expanding-context-menu-adding-folders-to-w11/"><u>Expanding Context Menu: Adding Folders to W11</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-photo-privacy-settings-everything-you-need-to-know/"><u>Facebook Photo Privacy Settings: Everything You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-reworked-evolving-from-a-social-network-to-meta/"><u>Facebook Reworked: Evolving From a Social Network to Meta</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-blending-realms-a-guide-to-photomosaic-creation/"><u>In 2024, Blending Realms A Guide to PhotoMosaic Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-securing-fb-profile-against-unseen-eyes/"><u>Master Securing FB Profile Against Unseen Eyes</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-shift-in-social-media-power-dynamics-as-fb-could-divest-gifpedia/"><u>Potential Shift in Social Media Power Dynamics as FB Could Divest Gifpedia</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-social-media-success-tips-for-creating-effective-facebook-reels/"><u>Streamline Social Media Success: Tips for Creating Effective Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unheard-side-of-stories-rethinking-the-true-impact-of-the-fb-papers/"><u>The Unheard Side of Stories: Rethinking the True Impact of The FB Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-secrets-of-building-bonds-through-facebooks-new-feature/"><u>Uncovering the Secrets of Building Bonds Through Facebook’s New Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/unknown-ventures-facebooks-secret-wrist-tech-project/"><u>Unknown Ventures: Facebook's Secret Wrist Tech Project</u></a></li>
+</ul></div>
 

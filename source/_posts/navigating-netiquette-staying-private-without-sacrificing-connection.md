@@ -1,7 +1,7 @@
 ---
 title: "Navigating Netiquette: Staying Private without Sacrificing Connection"
-date: 2024-10-05T19:22:35.782Z
-updated: 2024-10-08T22:52:39.147Z
+date: 2024-10-11T22:22:55.182Z
+updated: 2024-10-15T11:21:22.821Z
 tags:
   - facebook
 categories:
@@ -29,28 +29,28 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Travel Plans
 
 ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
  As a safer alternative, don't share any details or pictures about your trip until after you return. While this is less exciting, it protects you because you're not advertising to the world that you're away from home for an extended period.
 
  This extends to posting photos of your home. Any photo of where you live gives people more puzzle pieces to help determine where you live, where the blind angles are around doors, windows with broken locks, etc.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2\. Location Data
 
@@ -60,13 +60,6 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Personally-Identifying Information
 
  Sites like Facebook are full of valuable data for people who use social engineering to steal your identity on social media. You should always avoid sharing information that can be used to verify your identity, such as your full date of birth. Never share photos of your driver's license, passport, or credit card, which contain personal information that you don't want to make public.
@@ -74,13 +67,6 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
  It's also vital to keep an eye out for the "fun quizzes" that do the rounds on social media every so often. These ask you to answer questions such as where you went to school, what was the name of your first pet, etc.
 
  These types of questions are often used as security questions to protect your online accounts. Thankfully, these weak security questions are being phased out on many sites, but they're still a potential attack surface in many cases. Making these answers public could allow someone to break into your account;[stay safe from social engineering](https://www.makeuseof.com/tag/protect-8-social-engineering-attacks/) by keeping this info private.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Personal Complaints and Rants
 
@@ -102,6 +88,19 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Expensive New Purchases
 
  Many people love to share pictures of their new "toys" on social media. Whether you just got a new phone, laptop, car, TV, piece of jewelry, or anything else, you shouldn't make the purchase public on social media.
@@ -109,6 +108,13 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
  The most important reason is practical: telling the world that you have a shiny new toy could result in some people wanting to steal it or take advantage of you in some way. An extreme case would be announcing that you won the lottery. If people think you're well-off because of what you can afford, they might look to use that to their advantage.
 
  Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. Personal Advice
 
@@ -130,18 +136,18 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 9\. Privileged Inside Information
 
  It's an easy mistake to accidentally post private information on a public channel. However, you should be careful about exposing insider information on social media. If you're aware of protected details at your job, don't share those anywhere, especially online.
 
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10\. Anything You Don't Want to Make Public
 
@@ -172,24 +178,17 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-compre-written-by-daniel-kelley/"><u>[Updated] In 2024, A Compre Written by Daniel Kelley</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-revolutionary-tactics-for-enhanced-roi-in-animated-facebook-advertising/"><u>[Updated] Revolutionary Tactics for Enhanced ROI in Animated Facebook Advertising</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-comprerancial-guide-to-facebook-echo-show-vs-portal/"><u>A Comprerancial Guide to Facebook Echo Show vs Portal</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-guide-to-crafting-profile-pics-that-resonate/"><u>A Guide to Crafting Profile Pics That Resonate</u></a></li>
-<li><a href="https://facebook.techidaily.com/achieve-zero-notifications-from-fb/"><u>Achieve Zero Notifications From FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/advance-to-elite-level-with-metas-payment/"><u>Advance to Elite Level with Meta's Payment</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-suspicious-activity-on-your-computer-emails/"><u>Alert! Suspicious Activity on Your Computer, Emails</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-app-usage-patterns-a-predictor-of-consumer-desires/"><u>Are App Usage Patterns A Predictor of Consumer Desires?</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-meta-ais-feasibility-with-social-media-giants/"><u>Assessing Meta AI's Feasibility with Social Media Giants</u></a></li>
-<li><a href="https://facebook.techidaily.com/blocking-out-fbs-constant-notification-chirps/"><u>Blocking Out Fb's Constant Notification Chirps</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-gaps-in-digital-socialization-with-facebook-updates/"><u>Bridging Gaps in Digital Socialization with Facebook Updates</u></a></li>
-<li><a href="https://win11.techidaily.com/curing-frozen-windows-desktop-context-options/"><u>Curing Frozen Windows Desktop Context Options</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/mize-video-speed-to-match-your-desired-watch-time-for-2024/"><u>Customize Video Speed to Match Your Desired Watch Time for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/expert-advice-diagnosing-and-repairing-errors-related-to-the-nt-loader-ntldr/"><u>Expert Advice: Diagnosing & Repairing Errors Related to the NT Loader (NTLDR)</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-itel-a60s-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Itel A60s Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-a05s-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy A05s Phone Hassle-Free</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/lead-detected-in-barrow-dabel-radiators-prompting-caseking-to-halt-sales-post-aio-test-results/"><u>Lead Detected in Barrow Dabel Radiators, Prompting CaseKing to Halt Sales Post-AIO Test Results</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/unlocking-an-icloud-locked-ipad-and-iphone-14-plus-by-drfone-ios/"><u>Unlocking an iCloud Locked iPad and iPhone 14 Plus</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/outubes-viewer-numbers-matter-more-than-you-think-for-2024/"><u>Why YouTube's Viewer Numbers Matter More Than You Think for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-ios-device-integration-with-android-images/"><u>[New] IOS Device Integration with Android Images</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-leading-list-the-10-cost-effective-mobile-video-conferencing/"><u>[Updated] Leading List The 10 Cost-Effective Mobile Video Conferencing</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/affordable-high-performance-graphic-cards-in-2e24-the-best-picks-for-gamers-on-a-budget/"><u>Affordable High-Performance Graphic Cards in 2E24: The Best Picks for Gamers on a Budget</u></a></li>
+<li><a href="https://facebook.techidaily.com/finding-familiarity-or-isolation-the-impact-of-joining-a-fb-expat-group/"><u>Finding Familiarity or Isolation? The Impact of Joining a FB Expat Group</u></a></li>
+<li><a href="https://extra-support.techidaily.com/insightful-update-sonys-s6500-hd-and-bd-player-for-2024/"><u>Insightful Update Sony's S6500 HD & BD Player for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-layers-for-your-facebook-images/"><u>Invisible Layers for Your Facebook Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-social-media-experience-a-dive-into-facebooks-upgraded-privacy-hub/"><u>Optimize Your Social Media Experience: A Dive Into Facebook’s Upgraded Privacy Hub</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcome-safaris-limitations-easy-steps-for-full-page-imaging/"><u>Overcome Safari's Limitations: Easy Steps for Full Page Imaging</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ultimate-tune-master-app-for-android-for-2024/"><u>Ultimate Tune Master App for Android for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-remote-relationships-through-facebook-portals-video-chats/"><u>Unlocking Remote Relationships Through Facebook Portals' Video Chats</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-wi-fi-6-asus-orbi-mesh-network-expert-review-for-faster-more-stable-household-wireless-connection/"><u>Unveiling the Power of Wi-Fi 6: ASUS Orbi Mesh Network Expert Review for Faster, More Stable Household Wireless Connection</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/1728482608630-windows-11-pc/"><u>Windows 11 PC恢復簽字工作台：四種簡單解決辦法</u></a></li>
 </ul></div>
 

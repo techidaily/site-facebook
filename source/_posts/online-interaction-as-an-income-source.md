@@ -1,7 +1,7 @@
 ---
 title: Online Interaction as an Income Source
-date: 2024-10-04T05:16:45.322Z
-updated: 2024-10-09T03:18:57.615Z
+date: 2024-10-13T04:57:15.787Z
+updated: 2024-10-15T10:42:35.822Z
 tags:
   - facebook
 categories:
@@ -34,16 +34,22 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
  Sites like Facebook and Twitter have received hundreds of millions of dollars in venture capital. Nowadays, with hindsight, we can say that those investors made intelligent choices, but venture capital is a risky game and investments don't always pay off. Would you have invested in Facebook when it was called "Thefacebook" and only available to Harvard students?
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Advertising
 
 ![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
+
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The biggest way that social networks make money is through advertising. There's a reason why the sites are designed to be addicting. The more you look, the more advertising you're exposed to.
 
@@ -55,9 +61,23 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
  Advertising is a fine line to tread. If social media companies flood their sites with too many adverts, users will be turned off or use ad-blockers. Just the right amount and users will be more likely to see things that interest them, click through, and potentially make a purchase.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. User Data
 
 ![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://www.facebook.com/about/ads)
 
@@ -70,10 +90,10 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
  Another example is Facebook, which has often been under the spotlight thanks to things like the Cambridge Analytica scandal. Despite the uproar, Facebook isn't purposely giving other companies your data—it wants to keep it for itself. However, Facebook monitors your usage, such as the pages you like, and uses this to put you in a category so that advertisers can pay to target that group.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Premium Memberships
@@ -88,13 +108,6 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
  The majority of users won't pay for these premium memberships, which is one of the reasons that the base account is free. However, for those people who are willing to pay, it makes for a good income stream for the social networks.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Transaction Fees and Virtual Products
 
 ![facebook fundraisers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-fundraisers.jpg)
@@ -104,13 +117,6 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
  For example, on Facebook you can raise money for charity. Facebook used to charge a transaction fee for this, but no longer does. However, it does still charge for personal fundraisers, which it claims is to "cover payment processing" and "taxes".
 
  Another way of making money is through virtual products. This can be seen in something like Tumblr, which charges for some blog themes. Elsewhere, Facebook used to sell "Gifts" (amusing icons that you can put on someone's profile), but it has since retired this.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Diversifying
 
@@ -141,17 +147,18 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-optimize-video-sharing-preferences-on-youtube/"><u>[Updated] Optimize Video Sharing Preferences on YouTube</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-top-6-defensive-mc-home-designs-for-2024/"><u>[Updated] Top 6 Defensive MC Home Designs for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-master-the-transition-incorporating-effective-jump-cuts/"><u>2024 Approved Master the Transition Incorporating Effective Jump Cuts</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elevating-educational-content-by-adding-youtube-music-to-vids/"><u>Elevating Educational Content by Adding YouTube Music to Vids</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/instagram-content-top-15-download-apps-unveiled-for-2024/"><u>Instagram Content Top 15 Download Apps Unveiled for 2024</u></a></li>
-<li><a href="https://techidaily.com/is-your-lava-storm-5g-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Lava Storm 5G working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-over-digital-identity-change-your-facebook-pic/"><u>Mastery over Digital Identity: Change Your Facebook Pic</u></a></li>
-<li><a href="https://blog-min.techidaily.com/rotazione-video-in-alta-qualita-senza-perdite-per-mp4-opzioni-di-rotazione-a-90-180-e-270-gradi/"><u>Rotazione Video in Alta Qualità Senza Perdite per MP4: Opzioni Di Rotazione a 90, 180 E 270 Gradi</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-secrets-forego-these-3-eye-opening-apps/"><u>Secure Your Secrets: Forego These 3 Eye-Opening Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-to-reap-benefits-from-the-class-action-facebook-settlement/"><u>Steps to Reap Benefits From the Class-Action Facebook Settlement</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-duo-expansion-a-new-dimension-for-fb-and-insta/"><u>The Duo Expansion: A New Dimension for FB and Insta</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-hubs-brimming-with-freelance-projects/"><u>Top 5 Hubs Brimming with Freelance Projects</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-leading-downloader-software-facebooks-top-choices-5/"><u>[New] In 2024, Leading Downloader Software Facebook's Top Choices #5</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-7-nft-maker-tools-for-digital-art-tokenization/"><u>[New] Top 7 NFT Maker Tools for Digital Art Tokenization</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-hacks-for-hassle-free-podcast-streaming/"><u>[Updated] Hacks for Hassle-Free Podcast Streaming</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-echoes-in-280-characters-viral-video-stories/"><u>2024 Approved Echoes in 280 Characters Viral Video Stories</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/diagnosing-steps-for-your-systems-ghosted-gpu/"><u>Diagnosing: Steps for Your System's Ghosted GPU</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-respectful-communication-before-exiting-groups/"><u>Ensuring Respectful Communication Before Exiting Groups</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/mastering-preview-on-mac-unlocking-the-power-of-your-built-in-image-editor/"><u>Mastering Preview on Mac: Unlocking the Power of Your Built-In Image Editor</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-the-ultimate-mac-movie-making-handbook-2023-edition/"><u>New 2024 Approved The Ultimate Mac Movie Making Handbook (2023 Edition)</u></a></li>
+<li><a href="https://facebook.techidaily.com/selective-engagement-cutting-down-on-social-media-noise/"><u>Selective Engagement: Cutting Down on Social Media Noise</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-artful-exit-removing-a-page-with-minimal-fuss-and-notice/"><u>The Artful Exit: Removing a Page with Minimal Fuss and Notice</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-unique-sources-for-premium-youtube-imagery-for-2024/"><u>Top 6 Unique Sources for Premium YouTube Imagery for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/waiting-game-facebooks-board-takes-time-to-decide/"><u>Waiting Game: Facebook's Board Takes Time to Decide</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-fb-insta-inactivity-a-six-hour-hiccup/"><u>WhatsApp, FB, Insta Inactivity: A Six-Hour Hiccup</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Understanding the Impact of Enabling Facebook’s Browsing Archive
-date: 2024-10-07T06:32:43.355Z
-updated: 2024-10-09T02:27:04.188Z
+date: 2024-10-10T09:47:28.615Z
+updated: 2024-10-14T23:27:00.096Z
 tags:
   - facebook
 categories:
@@ -26,26 +26,12 @@ thumbnail: https://thmb.techidaily.com/bb05cc1f39777472d93269752aa648567cff43de2
 * [How to Check if You've Opted In to Facebook's Link History](#how-to-check-if-you-39-ve-opted-in-to-facebook-39-s-link-history)
 * [How to Disable Link History on Facebook](#how-to-disable-link-history-on-facebook)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Key Takeaways
 
 * Enabling Link History in the Facebook app will allow Meta to track your data.
 * You can turn the Link History feature on or off from the Settings & Privacy section of the Facebook app.
 
  In January 2024, Meta introduced a Link History feature in the Facebook mobile app. This allows you to view a list of all the websites you've visited from the social network. However, enabling Link History comes at the cost of your privacy.
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Facebook's Link History Feature Works
 
@@ -58,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/bb05cc1f39777472d93269752aa648567cff43de2
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Check if You've Opted In to Facebook's Link History
@@ -74,18 +60,18 @@ thumbnail: https://thmb.techidaily.com/bb05cc1f39777472d93269752aa648567cff43de2
 
 ![Menu section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/menu-section-of-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -104,9 +90,23 @@ Close
 
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -129,21 +129,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-seamless-incorporation-of-text-overlays-for-vimeo-films-for-2024/"><u>[New] Seamless Incorporation of Text Overlays for Vimeo Films for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-ideal-ios-tools-2023s-leading-choices-for-psp-gameplay/"><u>[Updated] Ideal iOS Tools 2023'S Leading Choices for PSP Gameplay</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-critical-selection-of-terraria-upgrades/"><u>[Updated] In 2024, Critical Selection of Terraria Upgrades</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-kinetic-mastery-in-your-pocket-a-2023-review-of-kinemaster-on-android/"><u>2024 Approved Kinetic Mastery in Your Pocket A 2023 Review of KineMaster on Android</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-primer-on-establishing-innovative-facebook-gatherings/"><u>A Primer on Establishing Innovative Facebook Gatherings</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-curtain-investigating-facebooks-smartwatch-blueprint/"><u>Behind the Curtain: Investigating Facebook's Smartwatch Blueprint</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-screen-my-experience-with-quitting-social-media/"><u>Beyond the Screen: My Experience with Quitting Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/break-the-bond-detach-your-instagram-and-facebook/"><u>Break the Bond: Detach Your Instagram and Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/dangers-of-duplicating-online-identities-on-fb/"><u>Dangers of Duplicating Online Identities on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719146902767-facebook-enhances-chat-security-with-new-encrypted-messaging-features/"><u>Facebook Enhances Chat Security with New Encrypted Messaging Features</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-samsung-galaxy-s24-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Samsung Galaxy S24</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-iphone-11-pro-lock-screen-with-notifications-by-drfone-ios/"><u>In 2024, How to Make the Most of Your iPhone 11 Pro Lock Screen with Notifications?</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719143988249-innovating-leadership-sheryls-time-at-facebook-inc/"><u>Innovating Leadership: Sheryl’s Time at Facebook Inc.</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/macx-mediatrans-get-your-professional-video-transfer-tool-at-unbeatable-prices/"><u>MacX MediaTrans: Get Your Professional Video Transfer Tool at Unbeatable Prices</u></a></li>
-<li><a href="https://blog-min.techidaily.com/tubez-sans-frais-transformer-un-fichier-opus-en-wma-sur-la-toile-avec-movavi/"><u>Tubez Sans Frais : Transformer Un Fichier OPUS en WMA Sur La Toile Avec Movavi</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-how-to-effortlessly-prepare-your-new-ipad-for-first-use-tech-insights/"><u>Ultimate Guide: How To Effortlessly Prepare Your New iPad For First Use - Tech Insights</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-secrets-for-skillful-extraction-of-superior-quality-videos-for-2024/"><u>[New] Secrets for Skillful Extraction of Superior Quality Videos for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-sony-game-systems-redefine-your-gaming-soundscape/"><u>[New] Sony Game Systems Redefine Your Gaming Soundscape</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-unveiling-2023s-most-efficient-tools-for-fb-lite-videos-download/"><u>2024 Approved Unveiling 2023'S Most Efficient Tools for FB Lite Videos Download</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-samsung-m2020-drivers/"><u>Download | Samsung M2020 Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/groups-on-fb-or-linkedin-finding-your-preference/"><u>Groups on FB or LinkedIn: Finding Your Preference</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-contacts-from-apple-iphone-se-2022-to-iphone-quickly-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Contacts from Apple iPhone SE (2022) to iPhone Quickly | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-nokia-xr21-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Nokia XR21 Device</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/national-sentiment-on-sns-detriments-outweigh-advantages/"><u>National Sentiment on SNS: Detriments Outweigh Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-online-presence-with-ripl-strategies/"><u>Optimize Your Online Presence With Ripl Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-privacy-fb-safe-status/"><u>Safeguarding Privacy: FB Safe Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-approaches-to-unfollow-pages-on-facebook/"><u>Tactical Approaches to Unfollow Pages on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-science-of-creating-audience-driven-fb-groups-polls/"><u>The Science of Creating Audience-Driven FB Groups Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-silence-what-does-it-mean/"><u>Understanding the Silence: What Does It Mean?</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/unlock-the-secrets-of-perfect-1080p-video-quality-with-ideal-bitrate-techniques/"><u>Unlock the Secrets of Perfect 1080P Video Quality with Ideal Bitrate Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-higher-interactions-12-insider-facebook-tricks/"><u>Unlocking Higher Interactions: 12 Insider Facebook Tricks</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/x-transcription-software-pc/"><u>X-Transcription Software PC</u></a></li>
 </ul></div>
 

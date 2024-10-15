@@ -1,7 +1,7 @@
 ---
 title: Navigating a World Transformed by Facebook
-date: 2024-10-05T23:29:23.129Z
-updated: 2024-10-08T19:51:26.005Z
+date: 2024-10-11T23:26:11.521Z
+updated: 2024-10-14T16:40:43.469Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 
 ![a group of friends sitting on a dock](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-group-of-friends-sitting-on-a-dock.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Although Facebook wasn't the first social media platform to bring people together, it is, by far, the most successful. With Facebook, many people can keep their circles updated with the events in their lives, no matter how near or far they are.
 
  Facebook also made it easy to share memories by letting users post photos and videos and tag people in them. So it allowed people who've met and interacted in real life to keep an online repository of their shared memories, making it easier to reconnect with these people.
@@ -44,16 +51,16 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 
 ![an old photo of two kids playing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/an-old-photo-of-two-kids-playing.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Aside from bringing people closer together, Facebook also lets us connect across time. You can easily find friends you've met over 20 years ago and have since lost contact with on the platform.
 
  Furthermore, Facebook occasionally reminds us of our noteworthy posts from the past. Whether this is your wedding, a holiday, or any other event, the social media platform uses its algorithm to send reminders to your feed. There's also an[effective way to use Facebook's "On This Day" feature](https://www.makeuseof.com/how-to-use-the-on-this-day-feature-facebook/) to ensure that Facebook knows you're celebrating an important milestone.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Facebook Allowed Small Businesses and Entrepreneurs to Flourish
 
@@ -65,28 +72,34 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 
  Again, this tool was crucial during the pandemic, when many who've lost their jobs turned to online entrepreneurship to get them through the global lockdowns.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Ways Facebook Has Worsened Our Lives
 
  Despite the good things Facebook brought to humanity, it also had to deal with many issues. Some of these issues were new to our society, as Facebook seemingly became the wild west of misnformation dissemination.
 
 So, what are some of the biggest things that affected us negatively?
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Misinformation on Facebook Deceived the Masses
 
 ![fake news typed on a typewriter with some books on misinformation to the right](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/fake-news-typed-on-a-typewriter-with-some-books-on-misinformation-to-the-right.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  With the democratization of media through Facebook and other social media platforms, it became easier for fake news and disreputable sites to spread their content. And when you couple this with sensational headlines and quick share buttons, misinformation spread like wildfire over the social media platform.
@@ -105,13 +118,6 @@ So, what are some of the biggest things that affected us negatively?
 
 ![a keyboard warrior sitting beside a window in front of a macbook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-keyboard-warrior-sitting-beside-a-window-in-front-of-a-macbook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Facebook allows people to express their opinions on nearly anything—from whether pineapple belongs on pizza to their political and religious affiliation. And while it's normal for others to react negatively and disagree with a post, our smartphone screens, computer displays, and keyboards serve as a shield when we reply.
 
  Because we only see the Facebook post and not the person behind it, many people have resorted to arguing and this has resulted in broken relationships. This is especially true on contentious topics like COVID-19 and politics. Some have even resorted to cyberbullying—one of the significant[negative effects of social media on people and its users](https://www.makeuseof.com/tag/negative-effects-social-media/) .
@@ -119,10 +125,10 @@ So, what are some of the biggest things that affected us negatively?
  Although some people may say that it only showed the true colors of the people who made the comments, it's unfortunate many have lost their sense of community and their ability to "agree to disagree." All because they no longer see the person behind the post—only their disagreement with their beliefs.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is a Big Part of Modern Human History
@@ -146,22 +152,15 @@ So, what are some of the biggest things that affected us negatively?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/updated-audience-enchantment-advanced-audacity-crossfading/"><u>[Updated] Audience Enchantment Advanced Audacity Crossfading</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/10-innovative-video-call-platforms-azoom-not-necessary-in-2024/"><u>10 Innovative Video Call Platforms Azoom Not Necessary, In 2024</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/automatisierte-rechnungsbearbeitung-bei-pepsico-mit-hilfe-von-abbyy-software/"><u>Automatisierte Rechnungsbearbeitung Bei PepsiCo Mit Hilfe Von ABBYY Software</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/conduct-an-audiovisual-symphony-for-ppt/"><u>Conduct an Audiovisual Symphony for PPT</u></a></li>
-<li><a href="https://facebook.techidaily.com/eliciting-errors-how-ux-pushes-you-down-privacy-lanes/"><u>Eliciting Errors: How UX Pushes You Down Privacy Lanes</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-enables-oculus-gos-full-access-an-overview-for-users/"><u>Facebook Enables Oculus Go's Full Access: An Overview for Users</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/in-2024-mastering-titles-in-fcpx-essential-skills-for-video-editors/"><u>In 2024, Mastering Titles in FCPX Essential Skills for Video Editors</u></a></li>
-<li><a href="https://facebook.techidaily.com/inhibit-friends-who-remain-undisclosed-in-fb/"><u>Inhibit Friends Who Remain Undisclosed in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/public-skepticism-grows-large-tech-companies-losing-faith/"><u>Public Skepticism Grows: Large Tech Companies Losing Faith</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/rendere-libero-il-tuo-audio-conversione-di-file-m4b-a-formato-m4a-senza-costi-con-i-servizi-di-convertitori-online/"><u>Rendere Libero Il Tuo Audio: Conversione Di File M4B a Formato M4A Senza Costi Con I Servizi Di Convertitori OnLine</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-password-management-preventing-fb-account-breaches/"><u>Secure Password Management: Preventing FB Account Breaches</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-effect-on-personal-and-professional-relationships-before-leaving/"><u>Social Media's Effect on Personal and Professional Relationships Before Leaving</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategic-planning-for-your-facebook-image-overhaul/"><u>Strategic Planning for Your Facebook Image Overhaul</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-unwired-vinyl-experience-a-new-eras-dawn/"><u>The Unwired Vinyl Experience: A New Era's Dawn</u></a></li>
-<li><a href="https://facebook.techidaily.com/trapped-in-online-purgatory-discover-why/"><u>Trapped in Online Purgatory? Discover Why</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Oppo A1x 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-best.techidaily.com/unlocking-the-full-potential-of-ai-key-lessons-from-abbyy-user-experiences/"><u>Unlocking the Full Potential of AI: Key Lessons From ABBYY User Experiences</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-guide-to-swift-periscope-broadcasting/"><u>[New] The Ultimate Guide to Swift Periscope Broadcasting</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-strategies-to-skyrocket-your-fb-video-ad-impact/"><u>[Updated] In 2024, Strategies to Skyrocket Your FB Video Ad Impact</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-premier-avi-media-player-for-all-platforms/"><u>[Updated] Premier AVi Media Player for All Platforms</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/accelerated-productivity-with-the-top-8-ai-apps-on-your-phone/"><u>Accelerated Productivity with the Top 8 AI Apps on Your Phone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-commanders-clash-the-ultimate-ranking-of-7-total-war-games/"><u>In 2024, Commanders' Clash The Ultimate Ranking of 7 Total War Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-change-in-whatsapp-capabilities-with-privacy-term-rejection/"><u>No Change in WhatsApp Capabilities with Privacy Term Rejection</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-messages-discovering-new-auditory-features-on-messenger/"><u>Revolutionizing Messages: Discovering New Auditory Features on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/significance-of-missing-messenger-availability/"><u>Significance of Missing Messenger Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-pioneers-top-20-internet-gatherings-for-todays-users/"><u>Social Pioneers: Top 20 Internet Gatherings for Today's Users</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/the-ultimate-checklist-for-zoom-recording/"><u>The Ultimate Checklist for Zoom Recording</u></a></li>
 </ul></div>
 

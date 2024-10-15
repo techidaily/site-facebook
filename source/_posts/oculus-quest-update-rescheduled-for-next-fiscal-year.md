@@ -1,7 +1,7 @@
 ---
 title: "Oculus Quest Update: Rescheduled for Next Fiscal Year"
-date: 2024-09-14T23:45:33.506Z
-updated: 2024-09-16T17:43:02.966Z
+date: 2024-10-10T04:54:05.826Z
+updated: 2024-10-15T02:02:58.064Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/836971730456bc9358fe3cf3cc37a571dba17728e
 
  You can't really get much clearer than that. For now, the focus is on the Oculus Quest 2 (and the Quest 1, to a degree). Given that[Facebook has only just revealed the Air Link connectivity for Quest 2](https://www.makeuseof.com/oculus-quest-2-wireless-air-link/) , it makes sense that the most recent iteration of the VR platform is Facebook's focus.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Will There Ever Be an Oculus Quest 3?
 
  This is where things get interesting. Yes, Bosworth has denied that there is a Quest 3 or Quest Pro in development for a 2021 release. However, he also said:
@@ -42,9 +49,23 @@ thumbnail: https://thmb.techidaily.com/836971730456bc9358fe3cf3cc37a571dba17728e
 
  We can expect the Oculus Quest 2 to be around for some time before we see any hint of an Oculus 3 or Pro model.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Will You Be Investing in the Oculus Ecosystem?
 
 ![person using oculus quest two in a virtual reality environment](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-using-oculus-quest-two-in-a-virtual-reality-environment.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You have to admit, it is a very exciting time for VR platforms, and Oculus is no exception (especially with the recent announcement that Resident Evil 4 will be coming to the platform as a first person VR exclusive title).
 
@@ -63,18 +84,22 @@ thumbnail: https://thmb.techidaily.com/836971730456bc9358fe3cf3cc37a571dba17728e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/xpert-recommendations-for-efficient-gif-makers/"><u>[New] Expert Recommendations for Efficient GIF Makers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-maximize-impact-tweeting-with-videos/"><u>[New] In 2024, Maximize Impact Tweeting with Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-secure-transfer-of-twitter-video-files-to-android/"><u>[New] In 2024, Secure Transfer of Twitter Video Files to Android</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-internet-idolaters-top-ten-youtube-sensations-for-2024/"><u>[Updated] Internet Idolaters Top Ten YouTube Sensations for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-motorola-edge-40-neo-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Motorola Edge 40 Neo to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-lava-yuva-2-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Lava Yuva 2 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-enhancing-your-content-10-exceptional-reacting-techniques/"><u>In 2024, Enhancing Your Content 10 Exceptional Reacting Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-secrets-safe-bypass-these-intrusive-apps/"><u>Keep Your Secrets Safe: Bypass These Intrusive Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-hashtag-strategies-for-effective-communication-on-facebook/"><u>Leveraging Hashtag Strategies for Effective Communication on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-concerns-removing-facial-recognition-data-effects-on-users/"><u>Privacy Concerns: Removing Facial Recognition Data Effects on Users</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pros-of-popular-video-segments-in-films-for-2024/"><u>Pro's of Popular Video Segments in Films for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-regain-facebook-acces-after-sign-out/"><u>Strategies to Regain Facebook Acces After Sign-Out</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-5-tech-blunders-in-the-pandemic-year/"><u>The Top 5 Tech Blunders in the Pandemic Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebook-networks-finding-page-and-profile-links/"><u>Unveiling Facebook Networks: Finding Page & Profile Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/vague-narratives-explored-a-digital-phenomenons-analysis/"><u>Vague Narratives Explored: A Digital Phenomenon's Analysis</u></a></li>
+</ul></div>
 

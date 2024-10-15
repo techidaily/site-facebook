@@ -1,7 +1,7 @@
 ---
 title: Google, Facebook, Twitter Face Presidential Censorship Suit
-date: 2024-09-09T21:11:30.056Z
-updated: 2024-09-16T16:54:27.448Z
+date: 2024-10-08T18:09:20.148Z
+updated: 2024-10-15T09:28:32.878Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/d10946fd797c909f3b766507ccc413e54b73231c6
 
  YouTube also suspended Trump in January, and only[plans to lift the ban once "the risk of violence has decreased](https://www.makeuseof.com/youtube-on-trump-suspension/) ."
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What About Trump's New Social Network?
 
  To counteract his bans from the most popular social platforms, Trump has created his own: GETTR. GETTR prides itself on "rejecting political censorship and 'cancel culture,'" which is a policy that Twitter, Facebook, and YouTube allegedly don't have.
@@ -59,12 +66,24 @@ thumbnail: https://thmb.techidaily.com/d10946fd797c909f3b766507ccc413e54b73231c6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-the-new-lens-on-sonys-s6500-bdp-features/"><u>[New] 2024 Approved The New Lens on Sony’s S6500 BDP Features</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-zero-cost-strategies-for-engaging-youtube-intros/"><u>[New] 2024 Approved Zero-Cost Strategies for Engaging YouTube Intros</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-curated-selection-5-superior-android-ps2-game-emulators-for-2024/"><u>[New] Curated Selection 5 Superior Android PS2 Game Emulators for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-reels-unlocking-the-ninja-mindset/"><u>[Updated] 2024 Approved Instagram Reels Unlocking the Ninja Mindset</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-vivid-visuals-for-beauty-creators/"><u>2024 Approved Vivid Visuals for Beauty Creators</u></a></li>
+<li><a href="https://facebook.techidaily.com/english-league-stars-refuse-snapchat-facebook-over-abusive-comments/"><u>English League Stars Refuse Snapchat, Facebook Over Abusive Comments</u></a></li>
+<li><a href="https://win-able.techidaily.com/getting-past-the-stuck-launch-screen-in-updated-dota-2-version/"><u>Getting Past the Stuck Launch Screen in Updated Dota 2 Version</u></a></li>
+<li><a href="https://facebook.techidaily.com/interface-evolution-facebooks-pathway-to-metamorphosis/"><u>Interface Evolution: Facebook's Pathway to Metamorphosis</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-resume-writing-with-chatgpt-a-step-by-step-guide/"><u>Mastering Resume Writing with ChatGPT: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-abandons-fbs-faces-what-does-this-mean/"><u>Meta Abandons FB's Faces: What Does This Mean?</u></a></li>
+<li><a href="https://facebook.techidaily.com/respectful-recovery-of-your-unseen-online-facebook-items/"><u>Respectful Recovery of Your Unseen Online Facebook Items</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamlessly-integrating-sleep-mode-for-a-more-efficient-messenger-kids-use/"><u>Seamlessly Integrating Sleep Mode for a More Efficient Messenger Kids Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/swimming-squads-ditch-instagram-twitter/"><u>Swimming Squads Ditch Instagram, Twitter</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/tailoring-the-future-of-communication-the-quintessential-5-chatgpt-instructions/"><u>Tailoring the Future of Communication: The Quintessential 5 ChatGPT Instructions</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-impact-of-just-feed-on-user-engagement/"><u>Understanding the Impact of 'Just Feed' On User Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-vagueblogging-a-peek-at-its-intricacies/"><u>Understanding Vagueblogging: A Peek at Its Intricacies</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unveiling-the-art-of-kinemaster-use-top-10-alternative-online-games-ranked/"><u>Unveiling the Art of KineMaster Use Top 10 Alternative Online Games Ranked</u></a></li>
+</ul></div>
 

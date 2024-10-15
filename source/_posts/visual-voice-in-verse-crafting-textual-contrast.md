@@ -1,7 +1,7 @@
 ---
 title: "Visual Voice in Verse: Crafting Textual Contrast"
-date: 2024-09-10T22:02:58.641Z
-updated: 2024-09-16T22:22:38.649Z
+date: 2024-10-10T16:41:51.161Z
+updated: 2024-10-15T11:58:03.550Z
 tags:
   - facebook
 categories:
@@ -51,15 +51,22 @@ thumbnail: https://thmb.techidaily.com/6be6dd71eae640fe0dafe922a0c9856b8d53d7857
 ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Use Monospace Text in Messenger
 
@@ -72,21 +79,22 @@ thumbnail: https://thmb.techidaily.com/6be6dd71eae640fe0dafe922a0c9856b8d53d7857
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
 
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Send Blocks of Code in Messenger
 
 ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
 
@@ -99,13 +107,6 @@ To send text in a block of code:
 5. Type three more backticks and send your text.
 
  This will send your text with code formatting. This is just one of the many[things you can do with Facebook Messenger](https://www.makeuseof.com/things-you-can-do-facebook-messenger-features/) .
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Customize Your Facebook Messages With Text Formatting
 
@@ -126,5 +127,26 @@ To send text in a block of code:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-filming-flexibility-talent-distribution-license/"><u>[New] In 2024, Filming Flexibility Talent Distribution License</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/44cm5y2x6zm644gl44kj5a6i44kk44gq44gm44kj44cb5qsc57si5yplusv6io944gq44k744kv44k344o844ot44oh44kq44ks56k65a6f44gr44oa44km44oz44ot44o844oj44gz44kl5oqa6kgt44cn.55/"><u>「危険から守りながら、検索可能なセクシービデオを確実にダウンロードする技術」</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-innovative-techniques-for-compelling-youtube-beginnings/"><u>2024 Approved Innovative Techniques for Compelling YouTube Beginnings</u></a></li>
+<li><a href="https://games-able.techidaily.com/apex-players-in-tetris-arena-on-mobile-giants/"><u>Apex Players in Tetris Arena on Mobile Giants</u></a></li>
+<li><a href="https://win-blog.techidaily.com/easy-fixes-to-restore-dolby-atmos-functionality-on-your-pc-running-windows-1011/"><u>Easy Fixes to Restore Dolby Atmos Functionality on Your PC Running Windows 10/11</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-escapes-from-advanced-phishing-tactics/"><u>Expert Escapes From Advanced Phishing Tactics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/focused-growth-instagrams-must-use-tags-to-watch-out-for/"><u>Focused Growth Instagram's Must-Use Tags to Watch Out For</u></a></li>
+<li><a href="https://media-tips.techidaily.com/how-to-minimize-file-size-of-powerpoint-presentations-including-sound-default-methods-and-other-options/"><u>How to Minimize File Size of PowerPoint Presentations Including Sound: Default Methods & Other Options</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-design-dynamics-font-application-in-adobe-after-effects/"><u>In 2024, Design Dynamics Font Application in Adobe After Effects</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-realme-c55-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Realme C55</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-analysis-beneath-the-surface-of-fb-invites/"><u>In-Depth Analysis: Beneath the Surface of FB Invites</u></a></li>
+<li><a href="https://facebook.techidaily.com/instantaneously-transforming-your-virtual-visage-facebook-update/"><u>Instantaneously Transforming Your Virtual Visage: Facebook Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-e-commerce-buying-history-permanent/"><u>Is E-Commerce Buying History Permanent?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/mastering-laptop-screen-recording-a-dell-guide/"><u>Mastering Laptop Screen Recording A Dell Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-social-detox-a-list-of-7-advantages/"><u>The Case for Social Detox: A List of 7 Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-potential-of-full-control-facebook-and-the-future-of-oculus-go-rooting/"><u>The Potential of Full Control: Facebook and the Future of Oculus Go Rooting</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-amazons-legal-stance-on-10k-fb-groups/"><u>Unveiling Amazon’s Legal Stance on 10K FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/verified-identities-meta-gold-or-twitters-silver-tie/"><u>Verified Identities: Meta Gold or Twitter's Silver Tie?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-social-media-is-outpacing-online-forum-trends/"><u>Why Social Media Is Outpacing Online Forum Trends</u></a></li>
+</ul></div>
 

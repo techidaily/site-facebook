@@ -1,7 +1,7 @@
 ---
 title: How PhotoDNA Scans and Verifies Image Authenticity
-date: 2024-09-14T18:15:41.202Z
-updated: 2024-09-16T20:33:05.072Z
+date: 2024-10-14T03:10:56.760Z
+updated: 2024-10-15T01:46:35.791Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/2a86960040387567ee8a74265a39e135c9493f594
 
  PhotoDNA had to be physically set up on-premise in the early days, but Microsoft now operates the cloud-based PhotoDNA Cloud service. This allows smaller organizations without a vast infrastructure to undertake CSAM detection.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Does PhotoDNA Work?
 
  When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
@@ -56,6 +63,19 @@ thumbnail: https://thmb.techidaily.com/2a86960040387567ee8a74265a39e135c9493f594
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Does PhotoDNA Use Facial Recognition?
 
  These days, we're familiar enough with algorithms. These coded instructions show us relevant, interesting posts on our social media feeds, support facial recognition systems, and even decide whether we get offered a job interview or get into college.
@@ -68,15 +88,22 @@ thumbnail: https://thmb.techidaily.com/2a86960040387567ee8a74265a39e135c9493f594
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Does Facebook Use PhotoDNA?
 
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  As the owner and operator of the world's largest and most popular social networks, Facebook deals with a lot of user-generated content each day. Although it's hard to find reliable, current estimates,[analysis in 2013](https://www.businessinsider.com/facebook-350-million-photos-each-day-2013-9?IR=T) suggested that some 350 million images are uploaded to Facebook each day.
@@ -84,13 +111,6 @@ thumbnail: https://thmb.techidaily.com/2a86960040387567ee8a74265a39e135c9493f594
  This will likely be a lot higher now as more people have joined the service, the company operates multiple networks (including Instagram and WhatsApp), and we have easier access to smartphone cameras and reliable internet. Given its role in society, Facebook must reduce and remove CSAM and other illegal material.
 
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Does PhotoDNA Make the Internet Safer?
 
@@ -113,5 +133,20 @@ thumbnail: https://thmb.techidaily.com/2a86960040387567ee8a74265a39e135c9493f594
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-breakthrough-ways-to-transform-your-powerpoint-presentations/"><u>[New] 2024 Approved Breakthrough Ways to Transform Your PowerPoint Presentations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-windows-10s-finest-film-and-multimedia-editing-apps-guide/"><u>[New] 2024 Approved Windows 10'S Finest Film and Multimedia Editing Apps Guide</u></a></li>
+<li><a href="https://fox-access.techidaily.com/echoes-of-calls-past-iphones-audio-archive-for-2024/"><u>Echoes of Calls Past - iPhone's Audio Archive for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/essentials-of-facebook-job-advertising-guide/"><u>Essentials of Facebook Job Advertising Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-your-frozen-facebook-page/"><u>Fixing Your Frozen Facebook Page</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/how-to-utilize-legal-free-clip-art-resources/"><u>How to Utilize Legal, Free Clip-Art Resources</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-online-venues-for-elders-connections/"><u>Optimal Online Venues for Elders Connections</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ssionals-picks-best-editors-for-online-streams/"><u>Professionals' Picks Best Editors for Online Streams</u></a></li>
+<li><a href="https://facebook.techidaily.com/shifting-social-landscape-four-reasons-users-leave-fb/"><u>Shifting Social Landscape: Four Reasons Users Leave FB</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-oppo-a59-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-xiaomi-civi-3-disney-100th-anniversary-edition-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Xiaomi Civi 3 Disney 100th Anniversary Edition Phone Hassle-Free</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-moral-dilemrances-of-disapproving-platforms/"><u>The Moral Dilemrances of Disapproving Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/trust-in-facebooks-secret-talks/"><u>Trust in Facebooks Secret Talks</u></a></li>
+</ul></div>
 

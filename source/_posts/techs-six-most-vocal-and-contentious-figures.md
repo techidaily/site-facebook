@@ -1,7 +1,7 @@
 ---
 title: Tech's Six Most Vocal and Contentious Figures
-date: 2024-09-11T23:17:53.514Z
-updated: 2024-09-17T00:18:59.016Z
+date: 2024-10-10T07:24:27.680Z
+updated: 2024-10-14T23:03:29.611Z
 tags:
   - facebook
 categories:
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/b1dd8faa0beaf2c68ee22b112a11d419910d65751
 
 ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Best known for:** Founder of WikiLeaks
 
  Julian Assange shot to notoriety in 2010 after publishing a number of classified documents on WikiLeaks. The most damaging leaks involved a series of classified US war logs and diplomatic cables, which prompted high-profile US politicians to label Assange a "terrorist."
@@ -73,15 +80,22 @@ thumbnail: https://thmb.techidaily.com/b1dd8faa0beaf2c68ee22b112a11d419910d65751
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Susan Wojcicki
 
 ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Best known for:** CEO of YouTube
 
@@ -92,13 +106,6 @@ thumbnail: https://thmb.techidaily.com/b1dd8faa0beaf2c68ee22b112a11d419910d65751
  More recently, Wojcicki copped flak for receiving a free expression award from the Freedom Forum. Netizens were quick to point out the fact that the Freedom Forum is sponsored by YouTube.
 
 ![Free Expression Awards YouTube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/free-expression-youtube-awards.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
@@ -117,19 +124,6 @@ thumbnail: https://thmb.techidaily.com/b1dd8faa0beaf2c68ee22b112a11d419910d65751
  Gates has also been a magnet for conspiracy theories, including the outlandish theory that he promoted the worldwide COVID-19 vaccine rollout as a pretext to inject people with microchips.
 
  Contrary to the many conspiracy theories that paint Gates as a supervillain, his foundation (the Bill & Melinda Gates Foundation) promotes philanthropy to combat disease and poverty worldwide.
-
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Mark Zuckerberg
 
@@ -153,6 +147,13 @@ thumbnail: https://thmb.techidaily.com/b1dd8faa0beaf2c68ee22b112a11d419910d65751
 
  When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to[delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Least Polarizing Tech Figure?
 
  It is not easy being a public figure. Deciding to do something, or a lack of action, will attract both praise and criticism.
@@ -174,5 +175,22 @@ thumbnail: https://thmb.techidaily.com/b1dd8faa0beaf2c68ee22b112a11d419910d65751
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2023-trend-analysis-twitters-top-video-shares/"><u>[New] 2023 Trend Analysis Twitter's Top Video Shares</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-critical-review-of-vlcs-capture-tools-for-2024/"><u>[New] Critical Review of VLC's Capture Tools for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-game-recorder-mastery-top-5-techniques-for-windows-11/"><u>[New] Game Recorder Mastery Top 5 Techniques for Windows 11</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-maximize-engagement-and-impact-premier-tracking-applications-for-content-creators/"><u>[New] In 2024, Maximize Engagement and Impact Premier Tracking Applications for Content Creators</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-top-gamers-screen-guide-best-monitors-at-4k-quality-for-2024/"><u>[New] Top Gamers' Screen Guide Best Monitors at 4K Quality for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-the-potential-of-feast-filled-videography/"><u>[Updated] Unlocking the Potential of Feast-Filled Videography</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-eyeing-new-features-interactive-enhancements-to-stories-panel/"><u>Facebook Eyeing New Features: Interactive Enhancements to Stories Panel</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-can-we-unlock-our-vivo-y78t-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Vivo Y78t Phone Screen?</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-apple-iphone-12-ios-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone 12 iOS? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/oversight-committee-holds-off-on-trumps-social-media-ban/"><u>Oversight Committee Holds Off on Trump's Social Media Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-changes-not-accepted-unchanged-whatsapp-features/"><u>Privacy Changes Not Accepted: Unchanged WhatsApp Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-your-fb-experience-addremove-links/"><u>Revolutionize Your FB Experience: Add/Remove Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-tiktok-eclipsing-facebooks-growth-and-profits/"><u>The Rise of TikTok Eclipsing Facebook's Growth and Profits</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-storytelling-in-enhancing-user-engagement-on-fb/"><u>The Role of Storytelling in Enhancing User Engagement on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-blueprint/"><u>What Is Facebook Blueprint?</u></a></li>
+</ul></div>
 

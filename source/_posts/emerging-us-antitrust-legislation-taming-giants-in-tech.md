@@ -1,7 +1,7 @@
 ---
 title: "Emerging US Antitrust Legislation: Taming Giants in Tech"
-date: 2024-09-13T23:23:05.812Z
-updated: 2024-09-16T19:14:10.603Z
+date: 2024-10-12T08:58:04.747Z
+updated: 2024-10-14T23:46:44.437Z
 tags:
   - facebook
 categories:
@@ -38,9 +38,29 @@ thumbnail: https://thmb.techidaily.com/d66a628fa0cf48140c10b181f20d8c3673ed432ef
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -53,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/d66a628fa0cf48140c10b181f20d8c3673ed432ef
  In short, this antitrust bill will ban companies from preferring their own products or services unfairly on their marketplace platforms. "Choosing" winners or losers will become a thing of the past.
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
@@ -76,13 +103,6 @@ thumbnail: https://thmb.techidaily.com/d66a628fa0cf48140c10b181f20d8c3673ed432ef
 
 In essence: leave the selling to the sellers.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -92,13 +112,6 @@ In essence: leave the selling to the sellers.
  It also requires them to maintain "transparent, third-party-accessible," portable APIs of all of their users' data. The idea is to make the services they offer interoperable—i.e., your medical record, as maintained by one app, can be easily transferred to the app of another service provider should you choose to make the switch.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
@@ -115,6 +128,13 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -135,5 +155,18 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-hashing-it-out-best-tags-to-transform-views-and-profit/"><u>[Updated] Hashing It Out Best Tags to Transform Views & Profit</u></a></li>
+<li><a href="https://program-issues.techidaily.com/6-proven-tips-for-lowering-cpu-demand-by-zoom-on-your-pc/"><u>6 Proven Tips for Lowering CPU Demand by Zoom on Your PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-sites-and-locales-for-job-hunting-freelancer/"><u>Essential Sites & Locales for Job Hunting (Freelancer)</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-efficiency-and-security-trade-offs-in-social-app-sign-ups-via-facebook/"><u>Examining the Efficiency & Security Trade-Offs in Social App Sign-Ups via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-twitter-will-both-stream-wnba-games-this-season/"><u>Facebook and Twitter Will Both Stream WNBA Games This Season</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-y02t-phone-without-google-account-by-drfone-android/"><u>How to Unlock Vivo Y02T Phone without Google Account?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-focus-on-the-frame-advanced-cropping-tips/"><u>In 2024, Focus on the Frame Advanced Cropping Tips</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolving-assassins-creed-valhalla-lag-and-crashes-2024-update-tips/"><u>Resolving Assassin's Creed Valhalla Lag and Crashes: 2024 Update Tips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-netgear-nighthawk-x4-reviewed-setting-new-standards-for-wi-fi-mesh-technology/"><u>The Best Netgear Nighthawk X4 Reviewed - Setting New Standards for Wi-Fi Mesh Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-a-second-round-at-instagrams-table/"><u>The Case for a Second-Round at Instagram's Table</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-playstation-5-slim-all-you-need-to-know-about-price-release-and-features/"><u>The PlayStation 5 Slim: All You Need to Know About Price, Release, and Features</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Leading Light and Dark Shades in Tech World
-date: 2024-09-09T23:41:38.983Z
-updated: 2024-09-16T20:36:23.718Z
+date: 2024-10-07T20:25:01.039Z
+updated: 2024-10-14T22:53:10.221Z
 tags:
   - facebook
 categories:
@@ -54,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
 
  The disgraced ex-CEO might not be the tech genius she wanted to portray herself as. However, her ability to perpetuate a decade-long fraud and raise more than $700 million from investors and venture capitalists has elevated her to the top of the list of master con artists, subject to countless documentaries and articles in awe and horror of her tale.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Julian Assange
 
 ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
@@ -72,13 +79,6 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
 
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Susan Wojcicki
 
 ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
@@ -93,25 +93,18 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
 
 ![Free Expression Awards YouTube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/free-expression-youtube-awards.png)
 
- The video highlighting the win has received over 50,000 dislikes at this time of writing.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
 ## 5\. Bill Gates
 
 ![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Senator Chris Coons meeting with Bill Gates at the Russell Senate Office Building on November 8, 2019.
 
@@ -125,9 +118,23 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
 
  Contrary to the many conspiracy theories that paint Gates as a supervillain, his foundation (the Bill & Melinda Gates Foundation) promotes philanthropy to combat disease and poverty worldwide.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Mark Zuckerberg
 
 ![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Best known for:** Co-founder of Facebook
 
@@ -168,5 +175,22 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-holistic-editing-experience-panoramashift-evolution/"><u>[New] Holistic Editing Experience PanoramaShift Evolution</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-rotate-and-share-with-ease-enhancing-instagram-videos-on-all-devices/"><u>[Updated] Rotate & Share with Ease Enhancing Instagram Videos on All Devices</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/2024-approved-best-voice-generators-and-changers-with-the-most-anime-voices-supported/"><u>2024 Approved Best Voice Generators & Changers with The Most Anime Voices Supported</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-smart-selections-ideal-mac-software-for-video-snatching/"><u>2024 Approved Smart Selections Ideal Mac Software for Video Snatching</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comprehensive-guide-refreshing-network-connections-on-macos-devices/"><u>Comprehensive Guide: Refreshing Network Connections on macOS Devices</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/efficiently-cools-up-to-280w-processors-the-xpg-hybrid-dual-fan-cooler-with-pump-loop-and-radiator/"><u>Efficiently Cools Up To 280W Processors: The XPG Hybrid Dual-Fan Cooler with Pump, Loop & Radiator</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/gt-10-pro-messages-recovery-recover-deleted-messages-from-gt-10-pro-by-fonelab-android-recover-messages/"><u>GT 10 Pro Messages Recovery - Recover Deleted Messages from GT 10 Pro</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-lava-storm-5g-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Lava Storm 5G to Outlook | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/increasing-visibility-of-jobs-with-facebook-posts/"><u>Increasing Visibility of Jobs with Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-everything-posted-on-the-web-unalterable/"><u>Is Everything Posted on the Web Unalterable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-skyrockets-for-your-virtual-gathering-on-fb/"><u>Master the Art: Skyrockets for Your Virtual Gathering on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/perfecting-facebook-photo-selections/"><u>Perfecting Facebook Photo Selections</u></a></li>
+<li><a href="https://facebook.techidaily.com/startling-secrets-to-streamline-your-message-chambers/"><u>Startling Secrets to Streamline Your Message Chambers</u></a></li>
+<li><a href="https://some-tips.techidaily.com/taking-photos-and-posting-youtubes-complete-guidebook-for-2024/"><u>Taking Photos and Posting YouTube's Complete Guidebook for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-tech-titans-meet-zucks-pet-the-crypto-goat/"><u>The Tech Titans Meet: Zuck's Pet, the Crypto-Goat</u></a></li>
+</ul></div>
 

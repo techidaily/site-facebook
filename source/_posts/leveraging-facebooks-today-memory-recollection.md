@@ -1,7 +1,7 @@
 ---
 title: Leveraging Facebook's Today Memory Recollection
-date: 2024-10-02T21:18:43.646Z
-updated: 2024-10-09T06:14:17.779Z
+date: 2024-10-11T01:08:06.103Z
+updated: 2024-10-14T21:26:11.059Z
 tags:
   - facebook
 categories:
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/cfa45c8957851b057661f0d98a0c4cd9830d27a0c
  You can use the On This Day feature to better manage your Facebook profile. Let's see how you can share, save and manage your memories.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Share Memories
@@ -62,6 +62,13 @@ To share a memory from the On This Day feature:
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -82,10 +89,10 @@ You can save your On This Day posts with the following steps:
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -101,16 +108,10 @@ To access your saved memories:
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -120,10 +121,10 @@ Close
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. See What Your Friends Shared on Your Wall
@@ -133,10 +134,10 @@ Close
  Check out the tagged content on Facebook by exploring the On This Day feature. You can look for the posts shared by friends on your wall by viewing and searching your Facebook Activity Log.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Customization Options for the On This Day Feature
@@ -148,13 +149,6 @@ Close
 3. Next, change your settings under the**Memories Settings** section.
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
@@ -197,16 +191,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-shadowed-browsing-in-fb-stories/"><u>[Updated] Shadowed Browsing in Fb Stories</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/essential-expressions-to-master-in-russian-socializing/"><u>Essential Expressions to Master in Russian Socializing</u></a></li>
-<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-oneplus-12-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your OnePlus 12 | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-latest-windows-drivers-for-amd-radeon-r9-chipsets-easy-guide/"><u>Get the Latest Windows Drivers for AMD Radeon R9 Chipsets - Easy Guide!</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-use-face-id-to-pay-for-apple-tvplus-on-iphone-11-pro-by-drfone-ios-unlock-ios-unlock/"><u>How to Use Face ID to Pay for Apple TV+ on iPhone 11 Pro</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-tecno-spark-20-proplus-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Tecno Spark 20 Pro+ to iPhone Easily | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/permanent-disconnection-from-fb-notifications/"><u>Permanent Disconnection From Fb Notifications</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/simplified-playlist-crafting-for-youtube-fans-on-desktop-and-mobile-devices/"><u>Simplified Playlist Crafting for YouTube Fans on Desktop & Mobile Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-unseen-discussions-on-social-platforms/"><u>The Art of Unseen Discussions on Social Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-career-advancement-top-6-facebook-strategies/"><u>Unlocking Career Advancement: Top 6 Facebook Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-reality-on-facebook-3-red-flags-to-note/"><u>Virtual Reality on Facebook – 3 Red Flags to Note</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-transforming-youtube-videos-into-cash-flows/"><u>[New] 2024 Approved Transforming YouTube Videos Into Cash Flows</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-selective-recommendations-for-advanced-voice-alteration-tools/"><u>[New] Selective Recommendations for Advanced Voice Alteration Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-amazons-social-stardom-liking-and-viewing-leaderships-for-2024/"><u>[Updated] Amazon's Social Stardom Liking and Viewing Leaderships for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-innovate-and-create-ranked-list-of-best-drawing-apps-for-android-users/"><u>2024 Approved Innovate and Create Ranked List of Best Drawing Apps for Android Users</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-desktop-not-out-yet-discover-brilliant-open-source-chatbot-alternatives-here/"><u>ChatGPT Desktop Not Out Yet? Discover Brilliant Open Source Chatbot Alternatives Here!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-with-imei-code-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 13 with IMEI Code?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-master-the-momentum-sending-viral-videos-soaring/"><u>In 2024, Master the Momentum Sending Viral Videos Soaring</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-reach-posting-on-social-media-careers/"><u>Maximizing Reach: Posting on Social Media Careers</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-friend-recognition-3-varied-approaches-to-facebook-tags/"><u>Navigating Friend Recognition: 3 Varied Approaches to Facebook Tags</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-what-is-ai-voice-text-to-speech/"><u>New What Is AI Voice Text to Speech?</u></a></li>
+<li><a href="https://facebook.techidaily.com/public-viewpoint-social-tech-causes-more-harm/"><u>Public Viewpoint: Social Tech Causes More Harm</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-your-space-stop-browsing-facebook/"><u>Reclaim Your Space: Stop Browsing Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-beyond-big-platforms/"><u>Social Media Beyond Big Platforms</u></a></li>
+<li><a href="https://program-issues.techidaily.com/step-by-step-guide-to-fixing-incorrect-ryzen-driver-installations/"><u>Step-by-Step Guide to Fixing Incorrect Ryzen Driver Installations</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-list-unlocking-latest-social-circles/"><u>The Ultimate List: Unlocking Latest Social Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-your-pics-into-three-dimensional-social-highlights/"><u>Transforming Your Pics Into Three-Dimensional Social Highlights</u></a></li>
+<li><a href="https://driver-error.techidaily.com/troubleshooting-rotated-images-how-to-adjust-upended-videos-on-your-asus-notebook/"><u>Troubleshooting Rotated Images: How to Adjust Upended Videos on Your ASUS Notebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-missing-from-our-tech-calendar-this-year-max-69-charaters/"><u>What's Missing From Our Tech Calendar This Year? (Max 69 Charaters)</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-expect-cross-device-connectivity-soon/"><u>WhatsApp Users Expect Cross-Device Connectivity Soon</u></a></li>
 </ul></div>
 

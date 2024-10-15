@@ -1,7 +1,7 @@
 ---
 title: Tactical Like Hiding Techniques for FB Users
-date: 2024-09-15T16:22:37.856Z
-updated: 2024-09-16T17:29:05.248Z
+date: 2024-10-07T17:03:46.070Z
+updated: 2024-10-15T07:41:24.389Z
 tags:
   - facebook
 categories:
@@ -46,6 +46,13 @@ To hide the number of reactions on your posts, follow these steps.
 4. Scroll down to**News Feed Settings** and select **Reaction Preferences** . This will take you to the Reactions preferences settings page. From here, you can disable the reactions count on your posts, from posts of other users, or both.
 5. Toggle the slider next to**On posts from others** to hide the total number of reactions on Facebook posts from other users. To hide the number of reactions on your posts, toggle the slider adjacent to**On your posts** .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Hiding the Reaction Count on Facebook on the Web
 
  If you’re accessing Facebook via a browser using your PC, Mac, or mobile device, follow these steps instead.
@@ -62,16 +69,17 @@ Your new settings are saved automatically.
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Understanding Facebook's Reaction Preferences
@@ -87,10 +95,10 @@ Your new settings are saved automatically.
  If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or[permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Depressurize Your Experience on Facebook
@@ -110,5 +118,24 @@ Your new settings are saved automatically.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-gameglasses-glimpse-guide/"><u>[Updated] 2024 Approved GameGlasses Glimpse Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-revolutionary-alternative-tools-for-fbx-file-capture/"><u>2024 Approved Revolutionary Alternative Tools for FBX File Capture</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/effective-ways-to-fix-checkra1n-error-31-on-apple-iphone-13-pro-by-drfone-ios/"><u>Effective Ways To Fix Checkra1n Error 31 On Apple iPhone 13 Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elevating-marketing-through-real-peoples-endorsements-for-2024/"><u>Elevating Marketing Through Real People’s Endorsements for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/evaluating-the-safety-of-third-party-tools-leveraging-ai-model-chatgpt-tips-and-insights/"><u>Evaluating the Safety of Third-Party Tools Leveraging AI Model ChatGPT: Tips & Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-content-policies-on-facebooks-white-list/"><u>Exploring Content Policies on Facebook's White List</u></a></li>
+<li><a href="https://facebook.techidaily.com/find-and-explore-fbs-latest-views/"><u>Find and Explore FB's Latest Views</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-regain-fb-log-in-without-prior-generated-codes/"><u>How to Regain FB Log In Without Prior Generated Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-distancing-minimizing-online-interactions/"><u>Navigating Social Distancing: Minimizing Online Interactions</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-top-vlog-editing-tools-for-popular-platforms-free-and-paid-options/"><u>New Top Vlog Editing Tools for Popular Platforms Free and Paid Options</u></a></li>
+<li><a href="https://extra-support.techidaily.com/sparkle-your-streams-top-5-tech-gems-for-videos-for-2024/"><u>Sparkle Your Streams Top 5 Tech Gems for Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-forum-participation-a-guide/"><u>Stealthy Forum Participation: A Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-defense-strategy-for-your-social-networking/"><u>The Ultimate Defense Strategy for Your Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrecy-of-facebook-chats/"><u>Unveiling the Secrecy of Facebook Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-truths-about-facebooks-popularity-claims/"><u>Unveiling Truths About Facebook’s Popularity Claims</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-how-to-use-audio-ducking-to-fade-out-music-in-powerdirector/"><u>Updated In 2024, How to Use Audio Ducking to Fade Out Music in PowerDirector?</u></a></li>
+<li><a href="https://games-able.techidaily.com/wireless-ps4-controller-pairing-with-iphone-a-step-by-step-guide-techradar/"><u>Wireless PS4 Controller Pairing with iPhone: A Step-by-Step Guide | TechRadar</u></a></li>
+</ul></div>
 

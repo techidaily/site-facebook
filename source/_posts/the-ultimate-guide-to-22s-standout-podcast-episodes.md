@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to '22'S Standout Podcast Episodes
-date: 2024-09-11T18:50:27.406Z
-updated: 2024-09-16T18:16:42.902Z
+date: 2024-10-08T16:11:49.699Z
+updated: 2024-10-14T21:01:59.003Z
 tags:
   - facebook
 categories:
@@ -28,11 +28,25 @@ thumbnail: https://thmb.techidaily.com/7f46fac9a85eca734c1f07440ac82d4e70260de32
 
 Here's everything we discuss in this week's 2022 special:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### High points of 2022
 
 * Meta crash and burn
 * Elon Musk buying Twitter
 * Right to Repair growth
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Low points of 2022
 
@@ -44,10 +58,10 @@ Here's everything we discuss in this week's 2022 special:
 * [Raspberry Pi's lack of availability](https://www.makeuseof.com/eben-upton-raspberry-pi-shortages-400-pico/)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Best devices of 2022
@@ -57,10 +71,10 @@ Here's everything we discuss in this week's 2022 special:
 * Airpod Pro 2nd Generation Earbuds
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Best games of 2022
@@ -86,5 +100,24 @@ Here's everything we discuss in this week's 2022 special:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ed-best-camera-lenses-for-youtube-for-2024/"><u>[Updated] Best Camera Lenses for YouTube for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-why-are-my-instagram-videos-playing-sideways-troubleshoot-for-2024/"><u>[Updated] Why Are My Instagram Videos Playing Sideways? Troubleshoot for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-idea-to-execution-designing-dynamic-social-events-on-facebook/"><u>From Idea to Execution: Designing Dynamic Social Events on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-contagious-post-culture-on-fb/"><u>How to Create a Contagious Post Culture on FB</u></a></li>
+<li><a href="https://techidaily.com/how-to-get-out-of-recovery-on-apple-iphone-15-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of Recovery on Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-find-my-iphone-without-apple-id-on-your-iphone-15-plus-by-drfone-ios/"><u>In 2024, How to Remove Find My iPhone without Apple ID On your iPhone 15 Plus?</u></a></li>
+<li><a href="https://facebook.techidaily.com/lawsuit-trump-demands-uncensored-platform-access-rights/"><u>Lawsuit: Trump Demands Uncensored Platform Access Rights</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-page-setup-the-admin-role/"><u>Navigating Facebook Page Setup - The Admin Role</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-13-mini-data-from-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone 13 mini Data From iTunes Backup | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/review-insights-on-ratchet-and-clanks-reimagined-odyssey-a-nostalgic-journey-updated/"><u>Review Insights on Ratchet & Clank's Reimagined Odyssey - A Nostalgic Journey Updated</u></a></li>
+<li><a href="https://facebook.techidaily.com/silencing-the-world-keep-photos-off-public-scope/"><u>Silencing the World: Keep Photos Off Public Scope</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/trends-and-techniques-for-skyrocketing-youtube-views-for-2024/"><u>Trends and Techniques for Skyrocketing YouTube Views for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unleash-your-inner-shutterbug-on-android/"><u>Unleash Your Inner Shutterbug on Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-potential-of-groups-by-mastering-channels/"><u>Unlock Potential of Groups by Mastering Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-village-ranking-todays-social-media-powerhouses/"><u>Virtual Village: Ranking Today's Social Media Powerhouses</u></a></li>
+<li><a href="https://facebook.techidaily.com/whens-the-right-time-to-refresh-facebook-presence/"><u>When's the Right Time to Refresh Facebook Presence?</u></a></li>
+</ul></div>
 

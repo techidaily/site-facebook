@@ -1,7 +1,7 @@
 ---
 title: The Commercial Value of Watchfulness
-date: 2024-09-11T18:35:00.079Z
-updated: 2024-09-16T23:55:18.106Z
+date: 2024-10-10T18:48:03.751Z
+updated: 2024-10-14T18:01:23.191Z
 tags:
   - facebook
 categories:
@@ -52,16 +52,16 @@ thumbnail: https://thmb.techidaily.com/b5e9ddde4e68e5c468b12c2fce264f22eb978dc95
 
  If you're wondering what's the problem with this, it's that having such a granular image of you and your lifestyle increases the chances of identity theft or fraud if a hacker will be able to get a hold of it. With time, a single breach can cost you everything. And of course, there's the big issue of personal privacy, which we all have a right to.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Emotional Volatility
 
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
@@ -70,10 +70,10 @@ thumbnail: https://thmb.techidaily.com/b5e9ddde4e68e5c468b12c2fce264f22eb978dc95
 ![game streamer taking a selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/game-streamer-selfie.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  According to[Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many[teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
@@ -83,6 +83,13 @@ thumbnail: https://thmb.techidaily.com/b5e9ddde4e68e5c468b12c2fce264f22eb978dc95
  Related:[The Facebook Metaverse, Explained (And Why You Should Care)](https://www.makeuseof.com/facebook-metaverse-explained/)
 
  For this reason, social media becomes the perfect channel to market products and services. It sells the idea that you should always strive to be better, but the only way that you can do so is by adding to your cart, go on vacations that you can't really afford, or living someone else's life highlights.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ease of Transactions
 
@@ -96,18 +103,18 @@ thumbnail: https://thmb.techidaily.com/b5e9ddde4e68e5c468b12c2fce264f22eb978dc95
 
 ![Amazon echo speaker beside a TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/rsz_loewe-technology-skqnm8v6dok-unsplash-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  In fact, a prime example of surveillance capitalism-driven conspicuous consumption is no other the the world's largest retailer, Amazon. With a[49.1 percent](https://techcrunch.com/2018/07/13/amazons-share-of-the-us-e-commerce-market-is-now-49-or-5-of-all-retail-spend/) ecommerce market share in the US alone, Amazon has transitioned from being an online marketplace to developing smart home products such as wandering smart speakers, security robots, home thermostats, and so on.
 
  With an unprecedented amount of data at their fingertips, Amazon has billions of items they push towards their consumers at exactly the right moment. Aside from this, Amazon is rife with[human rights abuses in its supply chain](https://www.oxfamamerica.org/press/oxfam-urges-amazon-address-human-rights-risks-its-supply-chain-and-protect-its-workers/) , known to[destroy of millions in unsold stock](https://www.itv.com/news/2021-06-21/amazon-destroying-millions-of-items-of-unsold-stock-in-one-of-its-uk-warehouses-every-year-itv-news-investigation-finds) , and allegedly[steals product data](https://www.wsj.com/articles/amazon-scooped-up-data-from-its-own-sellers-to-launch-competing-products-11587650015) from small businesses and independent sellers.
 
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### The Commodification of Personal Experiences
 
@@ -144,5 +151,17 @@ In fact, we are already running out of ways to opt out.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-become-an-audio-trailblazer-exclusive-vocal-change-techniques-in-free-fire-free/"><u>[New] In 2024, Become an Audio Trailblazer – Exclusive Vocal Change Techniques in Free Fire (Free)</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-get-more-from-tiny-screens-top-6-youtube-shorts-downloader-apps/"><u>[Updated] 2024 Approved Get More From Tiny Screens Top 6 YouTube Shorts Downloader Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-voice-personalization-tips-for-instagram-users-for-2024/"><u>[Updated] Voice Personalization Tips for Instagram Users for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-into-speed-and-simplicity-with-the-all-new-amazon-fire-tv-cube-assessment/"><u>Dive Into Speed and Simplicity with the All-New Amazon Fire TV Cube Assessment</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unleashing-potential-enhancing-your-tiktok-videos/"><u>In 2024, Unleashing Potential Enhancing Your TikTok Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-free-digital-aides-to-streamline-social/"><u>Prime Free Digital Aides to Streamline Social</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-and-easy-install-dell-dell-inspiron-3100-latest-driver-downloads/"><u>Quick and Easy Install: DELL Dell Inspiron 3100 Latest Driver Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-strategy-combined-coverage-of-the-wnb/"><u>Social Strategy: Combined Coverage of the WNB</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-elevate-your-fb-profile-professionally/"><u>Strategies to Elevate Your FB Profile Professionally</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-of-facebooks-renaming-rumor/"><u>Unveiling the Secrets of Facebook's Renaming Rumor</u></a></li>
+</ul></div>
 

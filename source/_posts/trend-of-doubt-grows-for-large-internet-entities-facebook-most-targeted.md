@@ -1,7 +1,7 @@
 ---
 title: Trend of Doubt Grows for Large Internet Entities; Facebook Most Targeted
-date: 2024-09-10T21:12:06.578Z
-updated: 2024-09-16T16:45:12.732Z
+date: 2024-10-14T01:31:54.361Z
+updated: 2024-10-14T16:30:27.941Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/243178c138d6204ad2bbeb47ec4cfcdba020958c1
 
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Is the Least Trusted
 
  About 44% of Americans trust Apple and Microsoft. Google does better with 48% trust. Amazon does really well comparatively, as it has the trust of a majority 53% of users (Amazon and Washington Post are both owned by Jeff Bezos). Other users either distrust these four companies or have no opinion.
@@ -46,9 +53,23 @@ thumbnail: https://thmb.techidaily.com/243178c138d6204ad2bbeb47ec4cfcdba020958c1
 
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is Facebook So Distrusted?
 
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
 
@@ -65,16 +86,10 @@ thumbnail: https://thmb.techidaily.com/243178c138d6204ad2bbeb47ec4cfcdba020958c1
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -100,5 +115,24 @@ thumbnail: https://thmb.techidaily.com/243178c138d6204ad2bbeb47ec4cfcdba020958c1
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-ace-your-messaging-must-know-advanced-tricks-and-techniques-in-whatsapp/"><u>[New] Ace Your Messaging Must-Know Advanced Tricks and Techniques in WhatsApp</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-download-igtv-videos-on-iphone-and-android-5-ways/"><u>[New] How to Download IGTV Videos on iPhone & Android [5 Ways]</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-plotting-your-path-in-the-realm-of-visual-arts/"><u>[New] Plotting Your Path in the Realm of Visual Arts</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-7-comedy-youtube-video-ideas-that-only-funny-people-are-allowed-to-try/"><u>2024 Approved 7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/best-free-alternatives-to-paid-dns-providers-your-options-explored/"><u>Best Free Alternatives to Paid DNS Providers: Your Options Explored</u></a></li>
+<li><a href="https://driver-error.techidaily.com/corrected-audio-driver-on-hidef-bus/"><u>Corrected Audio Driver on HiDef Bus</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-facebook-fixes-for-its-most-frequent-problems/"><u>Demystifying Facebook: Fixes for Its Most Frequent Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/detailed-tutorial-setting-up-fbs-mobile-generator/"><u>Detailed Tutorial: Setting Up FB's Mobile Generator</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-ties-that-bind-the-double-faced-nature-of-facebook/"><u>Digital Ties that Bind: The Double-Faced Nature of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreetly-dialing-up-likes-on-social-platforms/"><u>Discreetly Dialing Up Likes on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/earnings-elevated-the-synergy-of-video-content-viewership-and-metric-mastery/"><u>Earnings Elevated: The Synergy of Video Content, Viewership & Metric Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-techniques-for-language-diversity-in-fb-posts/"><u>Effective Techniques for Language Diversity in FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-newsfeed-filtering-say-no-to-fb-reels/"><u>Efficient Newsfeed Filtering - Say No to FB Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-online-safety-the-benefits-of-facebooks-new-privacy-design/"><u>Elevate Your Online Safety: The Benefits of Facebook's New Privacy Design</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-videos-on-honor-x50i-by-fonelab-android-recover-video/"><u>How to restore wiped videos on Honor X50i</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-conquering-screenshots-a-compreayer-on-lenovo-tech/"><u>In 2024, Conquering Screenshots A Compreayer on Lenovo Tech</u></a></li>
+<li><a href="https://win-able.techidaily.com/steam-sync-problem-solved-master-guide-to-overcoming-cloud-library-glitches/"><u>Steam Sync Problem Solved? Master Guide to Overcoming Cloud Library Glitches</u></a></li>
+</ul></div>
 

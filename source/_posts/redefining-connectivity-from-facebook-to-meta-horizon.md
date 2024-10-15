@@ -1,7 +1,7 @@
 ---
 title: "Redefining Connectivity: From Facebook to Meta Horizon"
-date: 2024-10-03T16:43:06.986Z
-updated: 2024-10-08T21:16:24.935Z
+date: 2024-10-09T18:19:05.779Z
+updated: 2024-10-14T22:50:48.566Z
 tags:
   - facebook
 categories:
@@ -40,13 +40,6 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
 
  In February 2008, the Facebook-Winklevoss lawsuit settled with Zuckerberg paying the twins a settlement of $65 million in cash and Facebook stock. Later, in July, the platform released its mobile app on iOS.
@@ -57,31 +50,11 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  After the advent of the Like button, Facebook made several changes to the platform. It improved the tagging of people in photos, liking comments, and the home page. Later, it launched new features like Facebook Places, Groups, Timeline, and Video calling.
 
  By July 2010, Facebook had more than 500 million active users. And in November, it became the third-largest web company valued at a whopping $41 billion. Later, in August 2011, Facebook launched Messenger—a dedicated instant messaging app.
 
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2013–2015: Facebook Enters New Territories
 
@@ -99,6 +72,13 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
  To counter this, the platform introduced a new feature that allowed users to flag fake posts and pledged to improve the algorithm, but these efforts barely made any difference. The same year, Facebook also launched Reactions which allowed users to select from several emojis alongside the Like button.
@@ -110,10 +90,10 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
  The scandal led Zuckerberg and Facebook COO Sheryl Sandberg to testify before Congress. And the company paid a fine of £500,000 to the UK's Information Commissioner's Office for its part in the scandal.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2019–2021: Rebranding to Meta Backfires
@@ -121,10 +101,10 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
@@ -137,6 +117,13 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
  Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2022 and Beyond: Layoffs, Chaos, and Recovery
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
@@ -148,6 +135,13 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 What comes next? Massive layoffs.
 
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Meta Is in a Rough Place, But When Is It Not?
 
@@ -170,20 +164,22 @@ What comes next? Massive layoffs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-analyze-youtube-data-efficiently-with-social-blade-tools/"><u>[Updated] In 2024, Analyze YouTube Data Efficiently with Social Blade Tools</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-best-quick-fixes-top-5-no-download-online-gif-to-video-convertors/"><u>2024 Approved Best Quick Fixes Top 5 No-Download, Online GIF to Video Convertors</u></a></li>
-<li><a href="https://facebook.techidaily.com/clear-the-clutter-filter-out-politics-boost-joy/"><u>Clear the Clutter: Filter Out Politics, Boost Joy</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/facebooks-viral-content-wave-leading-videos-of-2023-for-2024/"><u>Facebook's Viral Content Wave - Leading Videos of 2023 for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-a-step-by-step-approach-to-documenting-every-exciting-moment-on-discord/"><u>In 2024, A Step-by-Step Approach to Documenting Every Exciting Moment on Discord</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/is-the-lg-k92-smartphone-a-justifiable-purchase-for-5g-users/"><u>Is The LG K92 Smartphone A Justifiable Purchase For 5G Users?</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-your-feed-clean-tips-to-delete-fb-comments/"><u>Keeping Your Feed Clean: Tips to Delete Fb Comments</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-in-immediate-access-to-separate-facebook-profiles/"><u>Mastery in Immediate Access to Separate Facebook Profiles</u></a></li>
-<li><a href="https://extra-information.techidaily.com/no-8-advanced-online-photographic-merge-suite/"><u>No. 8 Advanced Online Photographic Merge Suite</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1726030466219-pc/"><u>PC上のビデオをオーディオに変換する手順</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-privacy-metas-image-control-plan/"><u>Protecting Privacy: Meta's Image Control Plan</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionize-your-workflow-with-facebooks-8-core-features/"><u>Revolutionize Your Workflow with Facebook's 8 Core Features</u></a></li>
-<li><a href="https://techidaily.com/unlock-iphone-11-pro-screen-lock-without-passcode-by-drfone-ios-unlock-ios-unlock/"><u>Unlock iPhone 11 Pro screen lock without passcode</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-productivity-explore-8-must-have-crowdfire-functions/"><u>Unlock Productivity: Explore 8 Must-Have Crowdfire Functions</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-extends-grace-period-for-new-privacy-acceptance/"><u>WhatsApp Extends Grace Period for New Privacy Acceptance</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/6-methods-to-protect-yourself-from-location-tracking-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>6 Methods to Protect Yourself from Location Tracking on Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/eufys-solocam-s340-review-a-comprehensive-look-at-the-solar-charged-motion-sensing-security-camera/"><u>Eufy's Solocam S340 Review: A Comprehensive Look at the Solar-Charged, Motion-Sensing Security Camera</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-realme-c67-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/go-live-on-ig-stripped-of-visualsaudio/"><u>Go Live on IG Stripped of Visuals/Audio</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-apple-iphone-8-in-lost-mode-drfone-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock Apple iPhone 8 in Lost Mode | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-audience-engagement-strategies-for-compelling-screencast-videos/"><u>In 2024, Audience Engagement Strategies for Compelling Screencast Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-look-at-facebooks-future-moniker-shift/"><u>Inside Look at Facebook's Future Moniker Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/listen-up-facebook-heres-your-take-on-clubhouse/"><u>Listen Up, Facebook! Here's Your Take on Clubhouse</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/logitech-g-pro-controller-download-latest-drivers-for-all-windows-versions-11-10-8-and-7/"><u>Logitech G Pro Controller: Download Latest Drivers for All Windows Versions (11, 10, 8 & 7)</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-unmasked-vs-vr-analyzed-spotlight-on-6-essential-differences/"><u>Metaverse Unmasked Vs. VR Analyzed: Spotlight on 6 Essential Differences</u></a></li>
+<li><a href="https://facebook.techidaily.com/socializing-at-speed-learn-and-implement-these-three-dynamic-fb-tag-tactics/"><u>Socializing at Speed: Learn and Implement These Three Dynamic FB Tag Tactics</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/tech-gurus-rate-them-all-unveiling-apeaksofts-screen-recording-capabilities/"><u>Tech Gurus Rate Them All Unveiling Apeaksoft’s Screen Recording Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-basics-of-facebooks-whitelisted-media/"><u>The Basics of Facebook's Whitelisted Media</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-best-budget-friendly-high-fidelity-webm-players-for-2024/"><u>The Best Budget-Friendly, High-Fidelity WebM Players for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unplugged-triumvirate-fb-whatsapp-insta-down/"><u>The Unplugged Triumvirate: FB, WhatsApp, Insta Down</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-choice-of-your-fb-ads/"><u>Understanding the Choice of Your FB Ads</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unique-voice-customization-for-chrome-os-5-top-cloud-audio-editors-reviewed-for-2024/"><u>Unique Voice Customization for Chrome OS 5 Top Cloud Audio Editors Reviewed for 2024</u></a></li>
 </ul></div>
 

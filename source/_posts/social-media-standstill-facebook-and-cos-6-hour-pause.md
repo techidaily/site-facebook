@@ -1,7 +1,7 @@
 ---
 title: "Social Media Standstill: Facebook & Co.'s 6-Hour Pause"
-date: 2024-10-03T18:13:33.571Z
-updated: 2024-10-09T03:59:23.801Z
+date: 2024-10-07T22:13:33.951Z
+updated: 2024-10-14T19:13:31.587Z
 tags:
   - facebook
 categories:
@@ -39,16 +39,16 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<span id="1983539">
+<span id="1983575">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
@@ -68,10 +68,10 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
@@ -95,20 +95,17 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-bring-your-video-to-life-with-cropping-adding-and-tweaking-audio-in-canva/"><u>[New] 2024 Approved Bring Your Video to Life with Cropping, Adding, & Tweaking Audio in Canva</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-final-cut-pro-unlocked-how-to-edit-for-free/"><u>[New] Final Cut Pro Unlocked How to Edit for Free</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-scripting-a-compelling-tiktok-parting-message/"><u>[New] Scripting a Compelling TikTok Parting Message</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-why-are-my-instagram-videos-playing-sideways-troubleshoot/"><u>2024 Approved Why Are My Instagram Videos Playing Sideways? Troubleshoot</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-commercial-success-story-with-5-igfb-strategies/"><u>Crafting a Commercial Success Story with 5 IG/FB Strategies</u></a></li>
-<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-itel-a05s-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Itel A05s Location Settings | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-adapts-to-the-changes-from-ios-145-update/"><u>Facebook Adapts to the Changes From iOS 14.5 Update</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-regain-entry-after-forgotten-or-revoked-login-credentials/"><u>How to Regain Entry After Forgotten or Revoked Login Credentials</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Vivo X Flip | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/insight-report-300-investment-in-headsets-for-account-security/"><u>Insight Report: $300 Investment in Headsets for Account Security</u></a></li>
-<li><a href="https://techidaily.com/is-your-oppo-reno-8t-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Oppo Reno 8T working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-over-mobile-facebook-exploration/"><u>Mastery Over Mobile Facebook Exploration</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-metaverse-saga-tracing-facebooks-footprints/"><u>The Metaverse Saga: Tracing Facebook's Footprints</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-silent-learners-guide-to-bypassing-edgenuity-videos-effortlessly/"><u>The Silent Learner's Guide to Bypassing Edgenuity Videos Effortlessly</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-4-metrics-and-tools-for-thriving-businesses/"><u>Top 4 Metrics & Tools for Thriving Businesses</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-cover-insta-peaks-iphoneandroid-edition-enhanced-features/"><u>[New] 2024 Approved Cover Insta Peaks IPhone/Android Edition, Enhanced Features</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-highest-rated-video-call-software-not-zoom-for-pcs-and-phones/"><u>[New] In 2024, Highest-Rated Video Call Software (Not Zoom) for PCs & Phones</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-learn-iphone-collage-techniques-like-a-pro/"><u>2024 Approved Learn iPhone Collage Techniques Like a Pro</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-install-and-update-lenovo-ideapad-100-drivers-on-windows-10/"><u>How to Install and Update Lenovo IdeaPad 100 Drivers on Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-accelerates-to-unprecedented-ai-computing-peaks/"><u>Meta Accelerates to Unprecedented AI Computing Peaks</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/navigating-the-market-top-tier-group-video-chat-software-compared/"><u>Navigating the Market: Top-Tier Group Video Chat Software Compared</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-privacy-reducing-unwanted-social-networking/"><u>Optimal Privacy: Reducing Unwanted Social Networking</u></a></li>
+<li><a href="https://discover-able.techidaily.com/steps-to-remove-drm-protection-from-an-ebook-a-complete-guide/"><u>Steps to Remove DRM Protection From an eBook: A Complete Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-unfreeze-fb-alert-bars-and-posts-display/"><u>Steps to Unfreeze FB Alert Bars and Posts Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-maximum-fb-exposure/"><u>Strategies for Maximum Fb Exposure</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/unseen-sonic-scribes-best-kept-mobile-voice-loggers-list-for-2024/"><u>Unseen Sonic Scribes Best-Kept Mobile Voice Loggers List for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-happens-when-you-quit-social-media-6-things-i-learned/"><u>What Happens When You Quit Social Media? 6 Things I Learned</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook Enhances Chat Security with New Encrypted Messaging Features.
-date: 2024-09-12T17:56:02.322Z
-updated: 2024-09-16T19:39:14.597Z
+date: 2024-10-14T03:21:30.332Z
+updated: 2024-10-15T02:27:35.843Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/f21de38b9a60edd6d3298db1bc5cbe93a61c6bb25
 
  Aside from expanding end-to-end encryption, Facebook also said that it's giving users more control over their disappearing messages. Users in the chat can choose from a wider range of times when it comes to how long it takes for new messages to disappear. You'll now be able to choose from anywhere between five seconds and 24 hours.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Adapts to Growing Security Awareness Among Users
 
  Many messaging apps, such as Signal, WhatsApp, and Telegram already use end-to-end encryption. More users are prioritizing their security, and that means limiting the communication apps they use to those that offer end-to-end encryption.
@@ -59,12 +66,18 @@ thumbnail: https://thmb.techidaily.com/f21de38b9a60edd6d3298db1bc5cbe93a61c6bb25
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/updated-fifteen-methods-to-reset-a-twitch-stream-in-real-time/"><u>[Updated] Fifteen Methods to Reset a Twitch Stream in Real-Time</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-essential-skills-for-proficient-use-of-gdoc-transcription-service/"><u>2024 Approved Essential Skills for Proficient Use of GDoc Transcription Service</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/experts-guide-to-rapid-time-lapsing-for-2024/"><u>Expert's Guide to Rapid Time-Lapsing for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-final-cut-pro-essentials-how-to-create-engaging-videos-with-the-ken-burns-effect/"><u>New In 2024, Final Cut Pro Essentials How to Create Engaging Videos with the Ken Burns Effect</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-on-facebook-ray-bans-stories-explained-and-costs-included/"><u>New on Facebook: Ray-Bans Stories Explained and Costs Included</u></a></li>
+<li><a href="https://facebook.techidaily.com/picturing-a-love-story-how-facebook-changes-dating-dynamics/"><u>Picturing a Love Story: How Facebook Changes Dating Dynamics</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/reimagine-your-content-with-advanced-number-edits-in-tiktok/"><u>Reimagine Your Content with Advanced Number Edits in TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-sexts-metas-internet-strategy/"><u>Safeguarding Sexts: Meta's Internet Strategy</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-vivo-v30-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Vivo V30? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-5-free-video-effects-sites-for-2024/"><u>Top 5 Free Video Effects Sites for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitter-and-facebook-unite-in-the-quest-for-informed-sharing/"><u>Twitter and Facebook Unite in the Quest for Informed Sharing</u></a></li>
+</ul></div>
 

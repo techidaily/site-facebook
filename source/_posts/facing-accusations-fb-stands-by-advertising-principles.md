@@ -1,7 +1,7 @@
 ---
 title: Facing Accusations, FB Stands by Advertising Principles
-date: 2024-10-02T18:15:17.210Z
-updated: 2024-10-09T06:12:10.788Z
+date: 2024-10-09T03:19:31.383Z
+updated: 2024-10-15T11:22:11.394Z
 tags:
   - facebook
 categories:
@@ -33,16 +33,10 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
  In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 <!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Responds to Signal's Move
@@ -58,10 +52,10 @@ Facebook responded with the following statement to the media:
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Signal's Ads You’ll Never See on Instagram
@@ -73,10 +67,10 @@ Facebook responded with the following statement to the media:
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is This Nothing But a PR Stunt on Signal's Part?
@@ -104,20 +98,20 @@ Facebook responded with the following statement to the media:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/a-closer-examination-the-implications-of-changes-to-facebooks-page-titles/"><u>A Closer Examination: The Implications of Changes to Facebook's Page Titles</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-newsfeed-10-valid-reasons-to-leave-facebook-behind/"><u>Beyond the Newsfeed: 10 Valid Reasons to Leave Facebook Behind</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-free-from-instagrams-influence/"><u>Breaking Free From Instagram's Influence</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-through-facebooks-lockout-barrier/"><u>Breaking Through Facebook's Lockout Barrier</u></a></li>
-<li><a href="https://facebook.techidaily.com/content-distribution-prowess-sharing-instagram-reels-to-facebook-stories/"><u>Content Distribution Prowess: Sharing Instagram Reels to Facebook Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/controlling-cyber-circulation-of-confidential-visuals/"><u>Controlling Cyber Circulation of Confidential Visuals</u></a></li>
-<li><a href="https://facebook.techidaily.com/cultural-catalysts-social-medias-four-transformative-influences/"><u>Cultural Catalysts: Social Media's Four Transformative Influences</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/icloud-unlocker-download-unlock-icloud-lock-for-your-iphone-xr-by-drfone-ios/"><u>iCloud Unlocker Download Unlock iCloud Lock for your iPhone XR</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-link-up-movies-to-your-youtube-compendium/"><u>In 2024, Link Up Movies to Your YouTube Compendium</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/newest-update-alert-emeditor-professional-v13-beta-goes-live-ultimate-text-manipulation-tools-unleashed/"><u>Newest Update Alert: EmEditor Professional v13 Beta Goes Live - Ultimate Text Manipulation Tools Unleashed!</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/peering-through-the-printer-one-persons-3dr-story/"><u>Peering Through the Printer One Person’s '3DR' Story</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/reviving-nonfunctional-movie-files-in-quality-time-player/"><u>Reviving Nonfunctional Movie Files in Quality Time Player</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-tutorial-on-linking-chromecast-with-amazon-fire-tv/"><u>Step-by-Step Tutorial on Linking Chromecast with Amazon Fire TV</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/tutoriel-rapide-creer-un-photomontage-sur-mesure-en-quelques-clics-chez-movavi/"><u>Tutoriel Rapide: Créer Un Photomontage Sur Mesure en Quelques Clics Chez Movavi</u></a></li>
-<li><a href="https://fox-access.techidaily.com/visuals-meet-melodies-audio-visual-magic/"><u>Visuals Meet Melodies Audio-Visual Magic</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-comprehensive-manual-best-practices-for-using-mobizen-recording-tool/"><u>[Updated] 2024 Approved Comprehensive Manual Best Practices for Using Mobizen Recording Tool</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-adding-descriptive-tags-to-your-images-on-pcs-and-macs/"><u>[Updated] Adding Descriptive Tags to Your Images on PCs and Macs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-3-elemental-strategies-for-writing-effective-social-media-promotions-for-2024/"><u>[Updated] The 3 Elemental Strategies for Writing Effective Social Media Promotions for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-affordable-full-hd-cameras-for-stunts-and-sports/"><u>2024 Approved Affordable Full HD Cameras for Stunts and Sports</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-cloud-to-hard-drive-your-facebook-photos-and-videos-journey/"><u>From Cloud to Hard Drive: Your Facebook Photos & Videos Journey</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-nvidia-rtx-2060-super-drivers-for-smooth-performance-on-windows-11-free-download/"><u>Get the Latest NVIDIA RTX 2060 Super Drivers for Smooth Performance on Windows 11 – Free Download</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-meta-manages-misdirected-moments-in-the-web-space/"><u>How Meta Manages Misdirected Moments in the Web Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/identity-illuminators-which-shines-brighter-metalogue-gold-or-twitter-luster/"><u>Identity Illuminators: Which Shines Brighter, Metalogue Gold or Twitter Luster?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-import-music-to-inshot-app/"><u>In 2024, How to Import Music to Inshot App?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-maximize-your-online-interactions-with-these-5-devices/"><u>In 2024, Maximize Your Online Interactions with These 5 Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/inaccessible-online-spaces-discover-the-3-no-facebook-nations/"><u>Inaccessible Online Spaces: Discover the 3 No-Facebook Nations</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategizing-your-events-with-a-focus-on-facebooks-features/"><u>Strategizing Your Events with a Focus on Facebook's Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-language-of-facebooks-emoji-keyboard/"><u>The Language of Facebook's Emoji Keyboard</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/trasforma-mkv-in-mov-online-e-gratis-con-mediacraft-macchina-del-cinema-digital/"><u>Trasforma MKV in MOV Online E Gratis Con MediaCraft - Macchina Del Cinema Digital</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-voyage-charting-facebooks-course-to-meta/"><u>Virtual Voyage: Charting Facebook's Course to Meta</u></a></li>
 </ul></div>
 

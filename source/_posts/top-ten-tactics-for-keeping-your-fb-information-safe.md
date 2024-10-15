@@ -1,7 +1,7 @@
 ---
 title: Top Ten Tactics for Keeping Your FB Information Safe
-date: 2024-09-14T19:42:45.187Z
-updated: 2024-09-16T20:52:03.990Z
+date: 2024-10-09T08:38:00.729Z
+updated: 2024-10-15T06:49:08.750Z
 tags:
   - facebook
 categories:
@@ -66,6 +66,13 @@ Close
 
 ![Create a Facebook Story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Create-a-Facebook-Story.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook Story privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Story-privacy.JPG)
 
 Close
@@ -87,24 +94,24 @@ To lock your Facebook profile:
 ![Facebook-user-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-user-profile.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Lock Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Lock-Facebook-profile.JPG)
 
 ![Lock-your-profile-on-Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Lock-your-profile-on-Facebook.JPG)
 
-Close
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Close
 
 ## 5\. Frequently Check Which Devices You Are Logged In On
 
@@ -119,6 +126,13 @@ Close
 ![Facebook Security and login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Security-and-login.JPG)
 
 ![Check where you are logged in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Check-where-you-are-logged-in.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -146,22 +160,16 @@ Close
 
 ![Choose Selected Photos option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Selected-Photos-option.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Choose Ask Next Time Or When I Share option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Ask-Next-Time-Or-When-I-Share-option.JPG)
 
 Close
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. Perform Privacy Checkups
 
@@ -179,30 +187,37 @@ To conduct the Facebook privacy checkup:
 
 ![Facebook Settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Settings-and-privacy-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Take a privacy checkup on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Take-a-privacy-checkup-on-Facebook.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook Privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Privacy-checkup.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Keep Your Facebook Account Private and Safe
@@ -226,5 +241,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-comprehensive-guide-to-creating-viral-youtube-shorts-videos/"><u>[New] In 2024, A Comprehensive Guide to Creating Viral YouTube Shorts Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-concise-content-the-best-url-cutter-tools-for-youtubers-for-2024/"><u>[Updated] Concise Content The Best URL Cutter Tools for Youtubers for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-non-gta-narratives-exploring-alternative-stories/"><u>[Updated] In 2024, Non-GTA Narratives Exploring Alternative Stories</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-top-accessories-to-elevate-your-sj4000-experience-for-2024/"><u>[Updated] Top Accessories to Elevate Your SJ4000 Experience for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unlocking-the-past-essential-history-youtubes-for-educational-journey/"><u>[Updated] Unlocking the Past Essential History YouTubes For Educational Journey</u></a></li>
+<li><a href="https://win11.techidaily.com/color-confusion-correcting-windows-desktop-hues-quickly/"><u>Color Confusion? Correcting Windows Desktop Hues Quickly</u></a></li>
+<li><a href="https://win-answers.techidaily.com/effective-strategies-for-automatically-resizing-excel-cells-based-on-text-content-length/"><u>Effective Strategies for Automatically Resizing Excel Cells Based on Text Content Length</u></a></li>
+<li><a href="https://facebook.techidaily.com/elusive-exchanges-the-secret-facebookers-guide/"><u>Elusive Exchanges: The Secret Facebooker's Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-authenticity-over-alike-10-compelling-motivations-for-leaving-facebook/"><u>Embracing Authenticity Over Alike - 10 Compelling Motivations for Leaving Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/eradicating-politics-and-religion-from-social-networking-sites/"><u>Eradicating Politics & Religion From Social Networking Sites</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/find-your-perfect-roku-at-a-steal-this-prime-day-exclusive-offers-inside/"><u>Find Your Perfect Roku at a Steal This Prime Day - Exclusive Offers Inside</u></a></li>
+<li><a href="https://facebook.techidaily.com/guarding-your-digital-identity-no-random-connections-please/"><u>Guarding Your Digital Identity: No Random Connections, Please</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-your-facebook-been-hacked-how-to-tell-and-fix-it/"><u>Has Your Facebook Been Hacked? How to Tell (and Fix It)</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-reveals-its-hidden-free-app-strategy/"><u>Instagram Reveals Its Hidden Free App Strategy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/power-and-portability-combined-in-depth-look-at-the-hp-zbook-firefly-15-g8-review/"><u>Power & Portability Combined: In-Depth Look at the HP ZBook Firefly 15 G8 Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-deleted-facebook-content-instructions-for-success/"><u>Reclaiming Deleted Facebook Content: Instructions for Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/report-most-covid-19-misinformation-was-spread-by-these-12-influencers/"><u>Report: Most COVID-19 Misinformation Was Spread by These 12 Influencers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dark-side-of-social-media-duplication-techniques/"><u>The Dark Side of Social Media Duplication Techniques</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-lava-by-fonelab-android-recover-music/"><u>The way to get back lost music from Lava</u></a></li>
+</ul></div>
 

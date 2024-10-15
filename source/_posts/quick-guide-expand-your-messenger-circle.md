@@ -1,7 +1,7 @@
 ---
 title: "Quick Guide: Expand Your Messenger Circle"
-date: 2024-09-11T23:04:45.077Z
-updated: 2024-09-16T17:07:37.762Z
+date: 2024-10-12T20:16:26.325Z
+updated: 2024-10-14T18:56:31.945Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/8f88442ac6dedc419a65e9e8bd02cadcc874f8f08
 
  Suggested contacts will appear, or you can type in a name in the “To:” field to filter that list. All applicable Facebook friends and groups will appear, so simply click on the one you want and start talking!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Does Messenger Automatically Add Contacts?
 
 ![Facebook Messaging service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/The-Messenger-app-logo.jpg)
@@ -46,16 +53,16 @@ thumbnail: https://thmb.techidaily.com/8f88442ac6dedc419a65e9e8bd02cadcc874f8f08
 
  If you change your mind afterwards, you can do this process again to unsync the two.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How Do I Sync My Contacts From Facebook to Messenger?
 
  You can also open Messenger and navigate to**People** . You’ll see a list of friends who are currently active. Tap the address book symbol on the top-right of your screen; this will show you the people who are in your phone contacts list and who use Facebook. Click on any of them to start chatting.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Can I Add Someone on Messenger but Not Facebook?
 
@@ -63,18 +70,18 @@ thumbnail: https://thmb.techidaily.com/8f88442ac6dedc419a65e9e8bd02cadcc874f8f08
 
 ![How to add a friend on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Message-a-friend-on-Facebook-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
  You don’t need to add someone as a friend on Facebook in order to chat to them on Messenger.
 
  All you have to do is go on Facebook, search for their name, and click on the profile of the person you want to chat to. Underneath their profile picture and banner, you’ll see three icons. You don’t want to click on the ellipsis, or on “Add Friend”. Instead, click**Message** . This will open up the Messenger app and let you talk to them.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Can You Add Someone on Messenger Without a Facebook Profile?
 
@@ -85,10 +92,10 @@ Close
  Essentially, anyone can use Messenger as long as they have had a Facebook account at some point and haven’t deleted it. In this case, you should be able to add them as you would anyone else, i.e. via your contact list if you have them in your address book, or by clicking on**Message** [on their deactivated profile](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Can’t I Add Someone on Messenger?
@@ -132,5 +139,20 @@ So how can you delete old messages on Messenger?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-basic-steps-flip-video-using-vlc-software-for-2024/"><u>[New] Basic Steps Flip Video Using VLC Software for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-beginners-booklet-on-backdrops-and-blending/"><u>[New] Beginner's Booklet on Backdrops & Blending</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-bridging-the-gap-youtube-and-facebook-content-collaboration/"><u>2024 Approved Bridging the Gap YouTube and Facebook Content Collaboration</u></a></li>
+<li><a href="https://fox-links.techidaily.com/are-earnings-linked-to-assessing-merchandise-in-2024/"><u>Are Earnings Linked to Assessing Merchandise, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-symbolic-meaning-in-fb-messages/"><u>Deciphering the Symbolic Meaning in FB Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-more-about-your-circle-with-messenger-polls/"><u>Discover More About Your Circle with Messenger Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreet-discussion-archiving-for-private-online-space/"><u>Discreet Discussion: Archiving for Private Online Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-how-facebook-determines-allowed-media/"><u>Dissecting How Facebook Determines Allowed Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-online-presence-3d-photos-on-fb/"><u>Elevate Your Online Presence: 3D Photos on FB</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Oppo Reno 8T 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/inside-the-lg-watch-style-experience-a-detailed-review-of-a-timeless-wear-os-20-companion/"><u>Inside the LG Watch Style Experience: A Detailed Review of a Timeless Wear OS 2.0 Companion</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-oppo-find-x6-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Oppo Find X6 Phone? Unlock It Now</u></a></li>
+</ul></div>
 

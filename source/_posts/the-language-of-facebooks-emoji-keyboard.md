@@ -1,7 +1,7 @@
 ---
 title: The Language of Facebook's Emoji Keyboard
-date: 2024-09-10T19:39:00.636Z
-updated: 2024-09-16T20:06:28.110Z
+date: 2024-10-11T03:30:13.312Z
+updated: 2024-10-14T20:49:07.635Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/4c8d9f631d7921c719a1941a590fa8e1cb22a0616
 
  If you navigate away from the message or lose network connectivity while the open blue circle is present, Facebook still sends the message once the connection is restored.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Open Blue Circle + Checkmark
 
 ![blue circle tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-tick.jpg)
@@ -49,10 +56,16 @@ thumbnail: https://thmb.techidaily.com/4c8d9f631d7921c719a1941a590fa8e1cb22a0616
  While the person may not have seen your message yet, you can be confident that it'll be available to them whenever they next check their phone, tablet, or computer.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Red Triangle + Exclamation
@@ -60,16 +73,10 @@ thumbnail: https://thmb.techidaily.com/4c8d9f631d7921c719a1941a590fa8e1cb22a0616
 ![red hazard triangle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/red-hazard-triangle.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  A red triangle with an exclamation point should only appear if your message isn't sent due to an internet connection outage. It is arguably the least common Messenger symbol.
@@ -91,10 +98,10 @@ thumbnail: https://thmb.techidaily.com/4c8d9f631d7921c719a1941a590fa8e1cb22a0616
 ![Facebook messenger blue icon-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-blue-icon-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  A blue dot to the right of a chat indicates an unread message. The sender won't get a message read confirmation until you click the chat.
@@ -105,19 +112,6 @@ thumbnail: https://thmb.techidaily.com/4c8d9f631d7921c719a1941a590fa8e1cb22a0616
 
 ![Facebook messenger cross bell icon-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-cross-bell-icon-1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The gray crossed bell to the right of a chat indicates that you've muted the chat. A muted person can send you messages,but you won't be notified that they've sent you a message.
 
  You can mute a chat in the Messenger app for as long as you want or use one of the default timings to unmute them when the chosen time elapses.
@@ -126,18 +120,25 @@ thumbnail: https://thmb.techidaily.com/4c8d9f631d7921c719a1941a590fa8e1cb22a0616
 
 ![Facebook messenger lock icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-lock-icon-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The lock icon next to a chat means the conversation is secret and[end-to-end encrypted](https://www.makeuseof.com/what-is-end-to-end-encryption/) . Only you and the recipient can read your messages unless any of you decide to share them with others.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Know if Someone Saw Your Facebook Message
 
 ![messenger message seen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/messenger-message-seen.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If someone has seen your Facebook message on the Messenger app, a miniature, circular version of their profile picture should appear underneath the last message they read.
 
@@ -162,5 +163,21 @@ thumbnail: https://thmb.techidaily.com/4c8d9f631d7921c719a1941a590fa8e1cb22a0616
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-comparative-analysis-luminances-hdr-prowess/"><u>[New] 2024 Approved Comparative Analysis Luminance's HDR Prowess</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-how-to-manual-for-creating-an-inclusive-and-productive-skype-chat-room-accessible-by-both-windows-and-mac-users/"><u>[New] 2024 Approved How-To Manual for Creating an Inclusive and Productive Skype Chat Room Accessible by Both Windows & Mac Users</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-choices-17-tools-to-remove-picture-margins/"><u>[New] Expert Choices 17 Tools to Remove Picture Margins</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-top-techniques-for-optimal-steam-gameplay-capture-for-2024/"><u>[New] Top Techniques for Optimal Steam Gameplay Capture for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-seamlessly-convert-and-download-pinterest-videos-as-mp3/"><u>2024 Approved How to Seamlessly Convert and Download Pinterest Videos as MP3</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-social-media-twitters-guiding-principles-adapted-by-facebook/"><u>Harnessing Social Media: Twitter's Guiding Principles Adapted by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-afterlife-how-to-honor-or-end-a-relatives-fb-presence/"><u>Online Afterlife: How to Honor or End a Relative's FB Presence</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/prime-10-mobile-movie-extractors/"><u>Prime 10 Mobile Movie Extractors</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-info-avoid-this-trio-of-snooping-apps/"><u>Secure Your Info: Avoid This Trio of Snooping Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-pages-ambiance-a-guide-to-user-removal-on-facebook/"><u>Securing Your Page's Ambiance: A Guide to User Removal on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/status-sovereignty-verified-vs-blue-who-rules-the-realm/"><u>Status Sovereignty: Verified Vs. Blue – Who Rules the Realm?</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-rated-sketch-prosthetic-devices-a-comprehensive-guide/"><u>Top-Rated Sketch Prosthetic Devices : A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-social-stranglehold/"><u>Understanding Meta's Social Stranglehold</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Oppo Find X6? | Dr.fone</u></a></li>
+</ul></div>
 

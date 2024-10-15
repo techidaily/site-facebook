@@ -1,7 +1,7 @@
 ---
 title: The Gentle Giant's Guide to Social Media Silliness
-date: 2024-09-19T23:30:35.145Z
-updated: 2024-09-21T23:25:08.334Z
+date: 2024-10-08T00:51:25.225Z
+updated: 2024-10-15T04:26:41.630Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/930df60c591e2a9cac7ea1bfd12cb488be55e4b8a
 
  You may have thought poking was dead on Facebook. But it turns out the feature is still there and Facebook is even trying to revive it. Here's what you need to know about poking someone on Facebook and how you can still use the feature.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Is Poking on Facebook?
 
  Those who used Facebook in its early days will remember the ability to "poke" someone on Facebook to get their attention. This would essentially send a notification to the person letting them know that you poked them. But the feature was eventually buried, with Facebook leaning towards post reactions and interactions instead.
@@ -45,15 +52,28 @@ Close
 
  You should also note that you can only use the feature with friends, so the button will not appear next to the names of people you're not Facebook friends with.
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Poke Someone on Facebook in 2024
 
 ![friends on facebook with poke button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/friends-on-facebook-with-poke-button.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The easiest way to poke someone on Facebook is to use the Poke button. To access this button, search for your friend's name in the Facebook mobile app. Then select the**Poke** button. Once the action has been sent, the button will change to**Poked** .
@@ -76,10 +96,10 @@ To do this, follow these steps:
 ![poke notification on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/poke-notification-on-facebook-web.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  If they click on the notification, Facebook will open the poke page for you where you can poke them back. You can choose whether to continue the cycle of nudges. While the feature is slightly buried, it's an entertaining tool like[seeing a friendship history on Facebook](https://www.makeuseof.com/tag/see-relationship-history-two-people-facebook/) .
@@ -101,5 +121,20 @@ To do this, follow these steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-enhance-your-vlogs-pacing-using-jump-cuts/"><u>[New] 2024 Approved How to Enhance Your Vlog's Pacing Using Jump Cuts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-beat-the-curve-top-facebook-ad-strategies/"><u>[New] In 2024, Beat the Curve Top Facebook Ad Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-turn-mundane-games-into-epic-scenes/"><u>[New] In 2024, How to Turn Mundane Games Into Epic Scenes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-masterful-iphone-videography-top-8-expert-filmmaking-advice/"><u>[New] Masterful iPhone Videography Top 8 Expert Filmmaking Advice</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-unlock-joyful-hours-essential-list-of-best-offline-ios-titles/"><u>[Updated] 2024 Approved Unlock Joyful Hours - Essential List of Best Offline iOS Titles</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-unveiling-social-media-puzzles-how-to-use-facebook-insights/"><u>[Updated] In 2024, Unveiling Social Media Puzzles How to Use Facebook Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-on-social-logins-should-facebook-be-your-gateway-to-apps/"><u>Deciding on Social Logins: Should Facebook Be Your Gateway to Apps?</u></a></li>
+<li><a href="https://facebook.techidaily.com/deconstructing-facebooks-foundational-organizational-plan/"><u>Deconstructing Facebook's Foundational Organizational Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-reset-strategies-for-instagram-relief/"><u>Digital Reset Strategies for Instagram Relief</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-access-to-past-experiences-facebook-on-this-day/"><u>Effortless Access to Past Experiences: Facebook On This Day</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/finding-your-next-charge-ev-station-discovery-via-google-maps-tutorial/"><u>Finding Your Next Charge - EV Station Discovery via Google Maps Tutorial</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-depth-look-at-using-key-combos-for-efficient-screen-recording-in-os-x-for-2024/"><u>In-Depth Look at Using Key Combos for Efficient Screen Recording in OS X for 2024</u></a></li>
+</ul></div>
 

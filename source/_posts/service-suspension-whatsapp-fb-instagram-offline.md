@@ -1,7 +1,7 @@
 ---
 title: "Service Suspension: WhatsApp, FB, Instagram Offline"
-date: 2024-10-05T22:40:24.572Z
-updated: 2024-10-09T01:53:48.525Z
+date: 2024-10-07T16:20:21.473Z
+updated: 2024-10-15T10:21:17.093Z
 tags:
   - facebook
 categories:
@@ -49,10 +49,10 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What Are BGP Routes?
@@ -66,10 +66,10 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
@@ -77,10 +77,10 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Hashtag #facebookdown Trends on Twitter
@@ -90,10 +90,10 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
@@ -117,20 +117,21 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-capture-and-store-every-sound-on-pc-download-x-recorder-for-2024/"><u>[Updated] Capture & Store Every Sound on PC - Download X-Recorder for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-guide-to-the-top-10-historical-education-channels-for-2024/"><u>[Updated] Guide to the Top 10 Historical Education Channels for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-indoor-android-games-you-can-play-without-a-network/"><u>[Updated] Indoor Android Games You Can Play Without a Network</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-nextgen-tv-including-the-best-local-channels-online/"><u>[Updated] NextGen TV Including the Best Local Channels Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/diversifying-outreach-with-deft-multi-group-social-media-techniques/"><u>Diversifying Outreach with Deft Multi-Group Social Media Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-virtual-mirror-to-profile-spotlight-crafting-the-perfect-fb-cover-photo-with-you/"><u>From Virtual Mirror to Profile Spotlight: Crafting the Perfect FB Cover Photo with You</u></a></li>
-<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-motorola-edge-40-pro-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Motorola Edge 40 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-iphone-7-plus-with-7-methods-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for iPhone 7 Plus With 7 Methods</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/instant-access-how-to-quickly-obtain-rs232-drivers-for-usb-devices/"><u>Instant Access: How to Quickly Obtain RS232 Drivers for USB Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-wave-of-social-media-facebooks-ray-ban-stories-explained-and-costed/"><u>New Wave of Social Media: Facebook's Ray-Ban Stories Explained & Costed</u></a></li>
-<li><a href="https://facebook.techidaily.com/protect-your-privacy-from-facebook-surveillance/"><u>Protect Your Privacy From Facebook Surveillance</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-activating-two-factor-authentication-in-fb/"><u>Step-by-Step: Activating Two-Factor Authentication in FB</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-digital-cashmans-codex-flourishing-on-youtube-free-from-ads-for-2024/"><u>The Digital Cashman's Codex Flourishing on YouTube, Free From Ads for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unfriend-suggested-people-on-social-media-hub/"><u>Unfriend Suggested People on Social Media Hub</u></a></li>
-<li><a href="https://win-forum.techidaily.com/windows-11-update-rollback-how-to-undo-recent-changes-efficiently/"><u>Windows 11 Update Rollback: How to Undo Recent Changes Efficiently</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-posting-a-youtube-video-via-insta-stories-a-step-by-step-guide/"><u>[New] Posting a YouTube Video via Insta Stories A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-cutting-edge-obs-methods-for-ultimate-android-broadcasting/"><u>[Updated] 2024 Approved Cutting-Edge OBS Methods for Ultimate Android Broadcasting</u></a></li>
+<li><a href="https://facebook.techidaily.com/extract-your-entire-social-footprint-downloading-facebook-content/"><u>Extract Your Entire Social Footprint: Downloading Facebook Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-linkedins-tracking-makes-networking-effortless-and-free/"><u>How LinkedIn’s Tracking Makes Networking Effortless and Free</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-blaze-2-pro-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of Blaze 2 Pro using Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-snap-into-position-handhran-balancing-tricks/"><u>In 2024, Snap Into Position Handhran Balancing Tricks</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-unlock-apple-id-without-phone-number-from-apple-iphone-x-by-drfone-ios/"><u>In 2024, Unlock Apple ID without Phone Number From Apple iPhone X</u></a></li>
+<li><a href="https://facebook.techidaily.com/interface-innovation-tracing-facebooks-evolution-into-meta/"><u>Interface Innovation: Tracing Facebook's Evolution Into Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-platforms-for-mass-reach/"><u>Leveraging Platforms for Mass Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-fb-events-benefits-vs-drawbacks/"><u>Navigating FB Events: Benefits vs Drawbacks</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-audio-anonymization-in-multimedia-a-step-by-step-approach-updated/"><u>New In 2024, Audio Anonymization in Multimedia A Step-by-Step Approach (Updated)</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcome-the-obstruction-in-your-online-social-networking/"><u>Overcome the Obstruction in Your Online Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-data-against-facebook-quiz-traps/"><u>Safeguarding Your Data Against Facebook Quiz Traps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-guide-to-free-youtube-intros-and-templates/"><u>The Ultimate Guide to Free YouTube Intros & Templates</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlock-multilingual-potential-with-advanced-chatgptplus-tech/"><u>Unlock Multilingual Potential with Advanced ChatGPT+ Tech</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/viral-visualization-top-story-filter-guide-for-2024/"><u>Viral Visualization Top Story Filter Guide for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Invoke Immediate Quiet: Ban on Facebook Notifications"
-date: 2024-09-14T17:02:57.431Z
-updated: 2024-09-16T19:58:57.736Z
+date: 2024-10-12T23:42:46.436Z
+updated: 2024-10-15T07:04:01.000Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/a297ffbc354d264eb1493e128ad67218845cfbc00
 
  Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Less Stress
 
  Work, family time, and financial responsibilities can get so tiresome that people need some time away from everything. In such a scenario, a simple notification with some news or message can ruin your mood.
@@ -43,13 +50,6 @@ thumbnail: https://thmb.techidaily.com/a297ffbc354d264eb1493e128ad67218845cfbc00
 ### Healthy Lifestyle
 
  Addiction to social media apps can lead to a sedentary lifestyle and lack of activity. Instead of spending time clicking every notification you receive on Facebook, we recommend going out to grab some fresh air and refrain from using the phone.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### More Confidence
 
@@ -68,17 +68,31 @@ Users can block notifications from their desktops and mobile devices.
 ![Go to Facebook settings and privacy mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-settings-and-privacy-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Tap Facebook notifications on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Tap-Facebook-notifications-on-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![What notifications you receive on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/What-notifications-you-receive.jpg)
 
 ![Mute Facebook Push notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Mute-Facebook-Push-notifications.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -96,23 +110,9 @@ Close
 
 ![Go-to-apps-in-mobile-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-apps-in-mobile-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook-app-notification-in-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-app-notification-in-settings.jpg)
 
 ![Turn-off-Facebook-notifications-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -121,6 +121,13 @@ Close
 3. Tap to open the general settings of your Facebook app.
 4. Navigate to**Notifications** . This list contains settings of how notifications appear on your phone.
 5. Toggle the tab to turn off**Show notifications,** which will revoke the app's access to display alerts. You can change them by revisiting the settings or changing**Where you receive notifications** from the Facebook app.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Blocking Desktop Notifications From Facebook
 
@@ -132,6 +139,13 @@ Close
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
 4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
@@ -141,13 +155,6 @@ Close
 9. Close the app, and the notifications won't appear on your taskbar.
 
  You can use the same method to block notifications using a Chromebook and the browser version of Facebook on mobile.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Focus on Your Tasks By Blocking Facebook Notifications
 
@@ -172,5 +179,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-the-ultimate-guide-to-creating-hdr-in-photoshop-for-2024/"><u>[New] The Ultimate Guide to Creating HDR in Photoshop for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-vanguard-designs-evaluation-studio-25-examined-current-year/"><u>[Updated] 2024 Approved Vanguard Designs Evaluation Studio 25 Examined, Current Year</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-checklist-for-solo-online-stream-success/"><u>[Updated] The Ultimate Checklist for Solo Online Stream Success</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/advanced-techniques-capturing-teams-screen-content/"><u>Advanced Techniques Capturing Teams' Screen Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-unwanted-footprint-delete-your-facebook-watching-trails/"><u>Eliminate Unwanted Footprint: Delete Your Facebook Watching Trails</u></a></li>
+<li><a href="https://facebook.techidaily.com/emergency-guide-recovering-and-reinforcing-your-fb-security/"><u>Emergency Guide: Recovering & Reinforcing Your FB Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/governments-counteroffensive-against-monopolistic-tech-firms/"><u>Government's Counteroffensive Against Monopolistic Tech Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/ideal-hubs-to-explore-for-securing-freelance-roles/"><u>Ideal Hubs to Explore for Securing Freelance Roles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-alternative-cinema-highlights-audiences/"><u>In 2024, Alternative Cinema Highlights Audiences</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-se-2020-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone SE (2020)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mkv-mastery-best-mac-app-compilation/"><u>MKV Mastery Best Mac App Compilation</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/navigating-the-digital-world-through-toms-hardware-lens/"><u>Navigating the Digital World Through Tom's Hardware Lens</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/securement-keeping-cameras-still-on-arms-only/"><u>Shot Securement Keeping Cameras Still on Arms Only</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-advantage-of-facebooks-725-million-settlement-provision/"><u>Taking Advantage of Facebook's $725 Million Settlement Provision</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-fabric-and-your-feed-a-look-at-usage-patterns/"><u>The Social Fabric and Your Feed: A Look at Usage Patterns</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-ultimate-list-of-eight-legit-money-making-opportunities-using-chatgpt/"><u>The Ultimate List of Eight Legit Money-Making Opportunities Using ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/unshackled-how-abstaining-from-social-screens-changed-me/"><u>Unshackled: How Abstaining From Social Screens Changed Me</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vigilance-how-to-recognize-fake-facebook-users/"><u>Virtual Vigilance: How to Recognize Fake Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-scrubbing-your-facebook-view-logs-is-smart/"><u>Why Scrubbing Your Facebook View Logs Is Smart</u></a></li>
+</ul></div>
 

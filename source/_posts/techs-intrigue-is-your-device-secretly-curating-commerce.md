@@ -1,7 +1,7 @@
 ---
 title: "Tech's Intrigue: Is Your Device Secretly Curating Commerce?"
-date: 2024-09-09T21:02:08.813Z
-updated: 2024-09-16T23:16:49.624Z
+date: 2024-10-10T05:15:06.562Z
+updated: 2024-10-14T16:15:01.932Z
 tags:
   - facebook
 categories:
@@ -57,16 +57,16 @@ What is going on?
  You'll find many similar stories on Reddit and beyond. Check this account of[a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is My Smartphone Really Listening to Me for Ads?
@@ -81,11 +81,25 @@ What is going on?
 
 ![Is your phone listening to you and serving adverts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/12/muo-security-phone-listening-advert-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
 
  Consequently, ensuring your[Android permissions don't give apps access](https://www.makeuseof.com/tag/what-are-android-permissions-why-should-you-care/) to your phone's mic is a good idea. Does Google listen to your conversations for ads? Probably not, but if you’re concerned you should “de-Google” your life entirely.
 
  It does**seem** as though this is something more than coincidence. After all, proving that smartphone mics are collecting data to target content to users is tricky. But as we know that phones and digital assistants are listening, is it really a surprise that companies like Google, Amazon, and Facebook should be interested in what you're saying?
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can You Prove If an App Is Listening to You?
 
@@ -100,6 +114,19 @@ What is going on?
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
 
  Meanwhile, data protection expert Mariano delli Santi[told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Do Phones Listen to You? Companies Say “No”
 
@@ -124,13 +151,6 @@ What is going on?
 * Botulism
 
  Surprisingly, not a single topic appeared as adverts, neither as pop-ups nor as inbox spam. There was no Google News feed item, and nothing on any linked devices.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## So, Why Do You Get Ads for Things You Talk About?
 
@@ -157,5 +177,18 @@ What is going on?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-fix-chromium-and-youtube-streams/"><u>[Updated] 2024 Approved Fix Chromium and YouTube Streams</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-depth-evaluation-of-the-newest-slomo-video-software/"><u>[Updated] In-Depth Evaluation of the Newest SloMo Video Software</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-access-fb-urls-at-free-optimal-downloader-tools-of-the-year/"><u>2024 Approved Access FB URLs at FREE Optimal Downloader Tools of the Year</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/discover-new-worlds-and-build-your-interstellar-empire-in-stellaris/"><u>Discover New Worlds & Build Your Interstellar Empire in Stellaris</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/expert-insights-on-computer-components-by-toms-hardware-hub/"><u>Expert Insights on Computer Components by Tom's Hardware Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-gathering-grounds-social-platforms-that-unite-us/"><u>Global Gathering Grounds: Social Platforms That Unite Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-enhance-your-facebook-account-safety-via-2fa/"><u>Guide to Enhance Your Facebook Account Safety via 2FA</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-m1-nexus-smooth-transitions-unmatched-editing-velocity/"><u>In 2024, M1 Nexus Smooth Transitions, Unmatched Editing Velocity</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-digital-legacy-on-facebook/"><u>Mastering Your Digital Legacy on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sticking-to-old-whatsapp-rules-functionality-remains-full/"><u>Sticking to Old WhatsApp Rules: Functionality Remains Full</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-cautious-collectors-compendium-for-social-media-scraps/"><u>The Cautious Collector’s Compendium for Social Media Scraps</u></a></li>
+</ul></div>
 

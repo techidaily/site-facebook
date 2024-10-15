@@ -1,7 +1,7 @@
 ---
 title: "Innovating Restraint: How Will Upcoming US Antitrust Laws Impact Big Tech?"
-date: 2024-09-13T22:26:35.365Z
-updated: 2024-09-16T19:51:08.777Z
+date: 2024-10-13T16:56:43.675Z
+updated: 2024-10-15T01:21:40.401Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/d77d95aa486b91c6469c5ee9cc4e937e8d3af5aa5
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
  Those intimately involved with the platform's operation will no longer be able to use their behind-the-scenes edge to their own gain. Practices that prevent smaller brands from gaining traction will also be targeted under this section.
@@ -66,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/d77d95aa486b91c6469c5ee9cc4e937e8d3af5aa5
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -77,16 +91,10 @@ thumbnail: https://thmb.techidaily.com/d77d95aa486b91c6469c5ee9cc4e937e8d3af5aa5
 In essence: leave the selling to the sellers.
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
@@ -104,10 +112,10 @@ In essence: leave the selling to the sellers.
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
@@ -141,5 +149,22 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-creating-accessibility-your-guide-to-an-intuitive-youtube-signup/"><u>[New] 2024 Approved Creating Accessibility Your Guide to an Intuitive YouTube Signup</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-top-screencast-software-on-the-market-bandicam-vs-camtasia-for-2024/"><u>[New] Top Screencast Software on the Market Bandicam Vs. Camtasia for 2024</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/extract-and-save-detective-trailers-as-mp4movaviflvwmvmkv-for-high-quality-viewing/"><u>Extract & Save Detective Trailers as MP4/MOV/AVI/FLV/WMV/MKV for High-Quality Viewing</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-securely-delete-the-lock-screen-access-code-on-windows-n-operating-system/"><u>How to Securely Delete the Lock Screen Access Code on Windows N Operating System</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-oppo-reno-8t-5g-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Oppo Reno 8T 5G FRP</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-oneplus-ace-3-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My OnePlus Ace 3 Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-stronger-confidentiality-standards-facebooks-new-chat-encryption-features-rollout/"><u>Introducing Stronger Confidentiality Standards: Facebook’s New Chat Encryption Features Rollout</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-big-thing-on-facebook-enhanced-story-panel-features/"><u>Next Big Thing on Facebook? Enhanced Story Panel Features</u></a></li>
+<li><a href="https://win11.techidaily.com/regain-entry-how-to-find-and-fix-missing-pin-on-win-11/"><u>Regain Entry: How to Find & Fix Missing PIN on Win 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-rectify-absence-of-security-code-from-facebook/"><u>Steps to Rectify Absence of Security Code From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-unveiled-entry-into-metas-profile-management-domain/"><u>Strategies Unveiled: Entry Into Meta’s Profile Management Domain</u></a></li>
+<li><a href="https://facebook.techidaily.com/study-reveals-key-players-in-covid-myth-spread/"><u>Study Reveals Key Players in Covid Myth Spread</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-10-economical-apps-for-social-sway/"><u>The Top 10 Economical Apps for Social Sway</u></a></li>
+<li><a href="https://app-tips.techidaily.com/ultimate-list-of-the-most-popular-linux-os-choices-for-coders-according-to-pcmagazine/"><u>Ultimate List of the Most Popular Linux OS Choices for Coders, According to PCMagazine</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlocking-chatgpt-plus-value-proposition/"><u>Unlocking ChatGPT Plus Value Proposition</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Is Facebook's Reel Capable of Dethroning TikTok?
-date: 2024-10-07T00:06:46.658Z
-updated: 2024-10-08T23:36:27.730Z
+date: 2024-10-12T16:58:51.883Z
+updated: 2024-10-15T07:27:47.018Z
 tags:
   - facebook
 categories:
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
  The average session length on the video-sharing app is 10.85 minutes, according to[Statista](https://www.statista.com/statistics/579411/top-us-social-networking-apps-ranked-by-session-length/) . Meanwhile, other social media apps lag far behind in terms of engagement. This is a key metric for a platform like Facebook because the longer users stay on a platform, the more appealing it appears to advertisers.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Stagnating Ad Revenues
 
  Advertisers account for more than 97% of Facebook’s annual revenue. According to[Statista](https://www.statista.com/statistics/267031/facebooks-annual-revenue-by-segment/) , the company generated $86 billion in global revenue in 2020—and a whopping $84 billion of it comes from advertising.
@@ -53,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  As engagement levels plummet, Facebook is bringing less money from ads because advertisers aren’t getting satisfactory returns from the ad spend. Apple’s App Tracker Transparency feature is also reported to be depleting ad revenue. The feature was introduced last year with the[14.5 iOS version to limit iPhone apps from tracking user data](http://www.makeuseof.com/how-the-ios-14-5-update-is-going-to-really-hurt-facebook/) .
 
  The decline in Facebook’s engagement level and the subsequent drop in revenue are adding up to a significant plunge in the company’s stock price. Meta, Facebook’s parent company, saw a stock drop of over $200 billion after a dismal quarterly earnings report.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How Facebook Plans to Regain Momentum
 
@@ -64,22 +78,15 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
  Zuckerberg realizes the growing demand for short-form video content. Following the drop in stock price, he accepted the company is up against an “unprecedented level of competition” from TikTok. He asked Meta employees to focus on Reels, which has had significant success on Instagram.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Can Reels Save Facebook?
 
 ![video reel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Reels.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  While short-form video may be trending, TikTok is an entirely different product, and it won’t be easy for Facebook to copy it as it did Stories from Snapchat. We wrote a full article outlining why[the Reels vs. TikTok battle](http://www.makeuseof.com/use-instagram-reels-or-tiktok/) will be difficult for Facebook, so it's worth checking that out if you want to learn more.
@@ -93,10 +100,10 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  For Facebook to rival TikTok, it has to reinvent itself as a brand new, highly sticky, and innovative app, far different from what it is today.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Facebook Is Late to the Game
@@ -108,13 +115,6 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  Whether that happens or not remains to be seen; Zuckerberg has seemingly pinned much of the company’s future on creating a fully-realized digital world called the Metaverse. Zuckerberg has already dedicated over $10 billion on the project.
 
  Some analysts believe that Facebook had underestimated the threat of TikTok by prioritizing other projects, and now it’s too late to win back younger users.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Monetization Issues
 
@@ -145,22 +145,24 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-elite-mac-audio-enhanced-screen-recorder-for-2024/"><u>[New] Elite Mac Audio-Enhanced Screen Recorder for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-effortless-steps-to-blur-distractions-in-google-meets/"><u>[Updated] In 2024, Effortless Steps to Blur Distractions in Google Meets</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-integrating-apis-expanding-functionality-beyond-basic-html-for-2024/"><u>[Updated] Integrating APIs Expanding Functionality Beyond Basic HTML for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-ranking-the-very-best-top-9-free-logo-design-software/"><u>[Updated] Ranking the Very Best Top 9 Free Logo Design Software</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-unveiling-the-ideal-aspect-ratio-for-video-content/"><u>[Updated] Unveiling the Ideal Aspect Ratio for Video Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/11-things-to-consider-before-deleting-your-social-media-accounts/"><u>11 Things to Consider Before Deleting Your Social Media Accounts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-youtubers-first-steps-starting-your-channel-and-earning-revenue/"><u>2024 Approved Youtuber's First Steps Starting Your Channel & Earning Revenue</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-beginners-blueprint-for-social-synchronization-on-xbox/"><u>A Beginner's Blueprint for Social Synchronization on Xbox</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-likes-and-shares-unraveling-facebook-fact-from-fiction/"><u>Beyond the Likes and Shares: Unraveling Facebook Fact From Fiction</u></a></li>
-<li><a href="https://facebook.techidaily.com/blueprint-to-establishing-your-social-circle-on-fb/"><u>Blueprint to Establishing Your Social Circle on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/conceal-your-social-profile-from-curious-strangers/"><u>Conceal Your Social Profile From Curious Strangers</u></a></li>
-<li><a href="https://facebook.techidaily.com/confront-the-click-strategies-for-quitting-facebook/"><u>Confront the Click: Strategies for Quitting Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-positive-online-persona-on-social-media-sites/"><u>Crafting a Positive Online Persona on Social Media Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/cutting-edge-selection-of-cost-effective-social-media-tools/"><u>Cutting-Edge Selection of Cost-Effective Social Media Tools</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/global-mobile-market-leader-apple-surpasses-samsung-in-worldwide-smartphone-deliveries-insights/"><u>Global Mobile Market Leader: Apple Surpasses Samsung in Worldwide Smartphone Deliveries - Insights</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/novices-nook-the-easiest-mc-dwellings-explored/"><u>Novice's Nook The Easiest MC Dwellings Explored</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-essential-manual-on-motion-detection-techniques/"><u>The Essential Manual on Motion Detection Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-optimize-social-vids-for-maximum-view-size/"><u>[New] In 2024, Optimize Social Vids for Maximum View Size</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-simplifying-your-life-with-tiktok-mac-and-pc-edition-for-2024/"><u>[New] Simplifying Your Life with TikTok, Mac, and PC Edition for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/chromecast-vs-firetv-showdown-the-ultimate-guide-to-googles-latest-streaming-device/"><u>Chromecast vs FireTV Showdown: The Ultimate Guide to Google's Latest Streaming Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/from-fidos-eyes-comprehensively-reviewing-the-top-of-the-class-furbo-camera/"><u>From Fido’s Eyes: Comprehensively Reviewing the Top-of-the-Class Furbo Camera</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-samsung-galaxy-f04-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Samsung Galaxy F04 Face Lock?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/guide-to-fix-your-iphone-when-it-fails-to-pick-up-incoming-calls-correctly/"><u>Guide to Fix Your iPhone When It Fails to Pick Up Incoming Calls Correctly</u></a></li>
+<li><a href="https://facebook.techidaily.com/hack-prevention-tactic-300-price-tag-on-quest-headsets/"><u>Hack Prevention Tactic: 300 Price Tag on Quest Headsets</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disable-two-factor-authentication-wo-a-mobile-device/"><u>How to Disable Two-Factor Authentication W/O a Mobile Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-hide-facebook-posts-from-everyone-using-the-archive-feature/"><u>How to Hide Facebook Posts From Everyone Using the Archive Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/hub-hunt-locating-the-best-20-social-network-sites-and-apps/"><u>Hub Hunt: Locating the Best 20 Social Network Sites & Apps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-10-tricks-for-turning-youtube-watchlists-around/"><u>In 2024, 10 Tricks for Turning YouTube Watchlists Around</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-samsung-galaxy-s23-fe-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Samsung Galaxy S23 FE Phones with/without a PC</u></a></li>
+<li><a href="https://extra-information.techidaily.com/leverage-netflixs-picture-in-picture-functionality/"><u>Leverage Netflix's Picture-in-Picture Functionality</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-in-the-age-of-social-media-concealing-like-counts/"><u>Privacy in the Age of Social Media: Concealing Like Counts</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-lag-and-freezing-in-fortnite-optimized-tips-for-smooth-gameplay/"><u>Resolving Lag and Freezing in Fortnite: Optimized Tips for Smooth Gameplay</u></a></li>
+<li><a href="https://facebook.techidaily.com/silence-seekers-how-to-keep-your-posts-comment-free/"><u>Silence Seekers: How to Keep Your Posts Comment-Free</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-antitrust-regulations-impacting-silicon-valley-giants/"><u>US Antitrust Regulations: Impacting Silicon Valley Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/verify-fbs-safety-email-securityfbcom-authenticity/"><u>Verify FB's Safety Email: security@fb.com Authenticity?</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-disputes-new-it-mandates-advocates-for-secure-chatting/"><u>WhatsApp Disputes New IT Mandates, Advocates for Secure Chatting</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Quick Insight: Your Latest Watches on Facebook"
-date: 2024-09-12T18:10:38.657Z
-updated: 2024-09-16T18:44:50.341Z
+date: 2024-10-14T00:57:16.295Z
+updated: 2024-10-15T09:48:15.321Z
 tags:
   - facebook
 categories:
@@ -53,6 +53,14 @@ That's it. Here you will find all the recently watched videos.
 2. Click the**Date** option in the left sidebar.  
 ![Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date-option.jpg)
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
@@ -65,7 +73,21 @@ That's it. Here you will find all the recently watched videos.
 
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -84,14 +106,14 @@ Close
 
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
-![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
 Close
 
@@ -99,13 +121,6 @@ Close
 2. Slide the available activities to the left and choose the Videos watched option.
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
 
@@ -124,5 +139,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-exclusive-charger-kits-for-gopro-hero5-official-and-alternative-models/"><u>[Updated] 2024 Approved Exclusive Charger Kits for GoPro Hero5 – Official & Alternative Models</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-anti-fog-gear-for-clear-shot-capture-in-cold-weather/"><u>2024 Approved Anti-Fog Gear for Clear Shot Capture in Cold Weather</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-evaluating-cost-effectiveness-in-youtube-promotions/"><u>2024 Approved Evaluating Cost Effectiveness in YouTube Promotions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-motorola-edge-40-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Motorola Edge 40 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/decluttering-tips-for-social-media-savvy/"><u>Decluttering Tips for Social Media Savvy</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-changes-to-home-and-activity-tabs-on-fb/"><u>Decoding Changes to Home and Activity Tabs on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-puzzle-essential-findings-from-social-media-snooping/"><u>Decoding the Puzzle: Essential Findings From Social Media Snooping</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-purpose-behind-vague-content-sharing/"><u>Demystifying the Purpose Behind Vague Content Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discourse-analysis-negative-impact-dominant/"><u>Digital Discourse Analysis: Negative Impact Dominant</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-virtual-cosmos-is-facebook-a-major-player/"><u>Dissecting the Virtual Cosmos: Is Facebook a Major Player?</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-virtual-bonds-the-impact-of-fb-expat-circles/"><u>Dissecting Virtual Bonds: The Impact of FB Expat Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-marketing-insights-with-8-critical-crowdfire-functions/"><u>Elevate Marketing Insights with 8 Critical Crowdfire Functions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-speed-up-your-windows-11-boot-time/"><u>How to Speed Up Your Windows 11 Boot Time</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 10 Best Spy Watches For your Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/step-by-step-selection-of-top-10-no-cost-conference-software-for-2024/"><u>Step-By-Step Selection of Top 10 No-Cost Conference Software for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-most-innovative-and-easy-to-use-mobile-photo-layers-top-10/"><u>The Most Innovative & Easy-to-Use Mobile Photo Layers (Top 10)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-ranking-vob-to-avi-converter-quality-and-compact-solution/"><u>Top-Ranking VOB to AVI Converter: Quality and Compact Solution</u></a></li>
+</ul></div>
 

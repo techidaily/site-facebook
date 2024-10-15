@@ -1,7 +1,7 @@
 ---
 title: How to Add Alt Text to Your Facebook Photos
-date: 2024-09-15T22:44:33.468Z
-updated: 2024-09-16T21:19:59.538Z
+date: 2024-10-11T20:35:26.800Z
+updated: 2024-10-14T17:45:13.508Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/01edaba53137429381532b08b94562d4a741359e1
 
  Related:[How to Use Poll Games on Messenger to Learn More About Your Friends](https://www.makeuseof.com/how-to-use-poll-games-facebook-messenger/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Add Alt Text to Images You Upload on Facebook
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
@@ -46,7 +53,21 @@ thumbnail: https://thmb.techidaily.com/01edaba53137429381532b08b94562d4a741359e1
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -77,31 +98,18 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Add Alt Text to Facebook Photos You've Already Uploaded
 
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
-![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
 ![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
 
@@ -117,13 +125,6 @@ Close
  Using the web version of Facebook, the process is very similar—just look out for the ellipsis when you view the image you want to add alt text to.
 
  Related:[How to Download Facebook Photos and Videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Make Your Facebook Photos More Accessible
 
@@ -144,5 +145,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-future-of-video-recording-best-camcorders/"><u>[New] Future of Video Recording - Best Camcorders</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-captivating-thumbnails-a-comprehensive-guide-for-youtube-creators/"><u>[Updated] 2024 Approved Crafting Captivating Thumbnails A Comprehensive Guide for YouTube Creators</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-transforming-your-iphone-footage-into-vr/"><u>2024 Approved Transforming Your iPhone Footage Into VR</u></a></li>
+<li><a href="https://common-error.techidaily.com/audio-glitch-on-win-1110-resolved-no-more-complaints/"><u>Audio Glitch on WIN 11/10 Resolved - No More Complaints</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/canon-imageclass-mf4800-printer-drivers-download-and-installation-guide/"><u>Canon ImageCLASS MF4800 Printer Drivers: Download & Installation Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-newly-watched-fb-videos-efficiently/"><u>Exploring Newly Watched FB Videos Efficiently</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-momentum-stalled-by-5-infamous-incidents/"><u>Facebook’s Momentum Stalled by 5 Infamous Incidents</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-is-your-iphone-xs-max-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Is Your iPhone XS Max in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insightful-browsing-through-friends-facebook-journeys/"><u>Insightful Browsing Through Friends' Facebook Journeys</u></a></li>
+<li><a href="https://facebook.techidaily.com/major-mistakes-a-look-at-tech-fails-of-22/"><u>Major Mistakes: A Look at Tech Fails of '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/offline-world-life-beyond-facebook/"><u>Offline World: Life Beyond Facebook</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723211181281-overcoming-class-unregistered-on-windows-11-error-tips-and-tricks-inside/"><u>Overcoming 'Class Unregistered on Windows 11' Error – Tips & Tricks Inside!</u></a></li>
+<li><a href="https://facebook.techidaily.com/re-examine-shared-experiences-via-facebook/"><u>Re-Examine Shared Experiences via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-sign-ins-and-share-strategies-for-fb-groups/"><u>Stealthy Sign-Ins and Share Strategies for FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-emergence-of-meta-charting-a-new-course-for-social-networking/"><u>The Emergence of Meta: Charting a New Course for Social Networking</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-fixing-minecraft-lan-connection-issues-quick-solutions/"><u>Troubleshooting Guide: Fixing 'Minecraft LAN Connection Issues' - Quick Solutions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlock-your-fcp-potential-with-these-10-plugs-for-2024/"><u>Unlock Your FCP Potential with These 10 Plugs for 2024</u></a></li>
+</ul></div>
 

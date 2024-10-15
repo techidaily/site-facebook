@@ -1,7 +1,7 @@
 ---
 title: Pinpointing Unfriended Individuals on Facebook
-date: 2024-10-08T03:53:37.800Z
-updated: 2024-10-08T23:16:16.932Z
+date: 2024-10-09T21:40:16.691Z
+updated: 2024-10-15T02:40:13.383Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ Close
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Your Blocked List on the Web
@@ -56,10 +56,10 @@ Close
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
@@ -72,10 +72,16 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can People Tell if You've Blocked Them on Facebook?
@@ -87,10 +93,16 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
@@ -112,22 +124,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/learn-to-harvest-the-richness-of-facebook-live-experiences-for-2024/"><u>, Learn to Harvest the Richness of Facebook Live Experiences for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-build-a-thriving-biz-channel-proven-strategies-and-examples/"><u>[New] 2024 Approved Build a Thriving Biz Channel Proven Strategies and Examples</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-digital-dreamland-gamers-income-evolution/"><u>[New] 2024 Approved Digital Dreamland Gamers' Income Evolution</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-save-money-on-titles-exclusive-list-of-11-free-creators/"><u>[Updated] 2024 Approved Save Money on Titles - Exclusive List of 11 Free Creators</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-zero-cost-image-amplifier-desktopmobile-edition/"><u>[Updated] 2024 Approved Top Zero-Cost Image Amplifier Desktop/Mobile Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/banish-facebooks-privacy-invasion-with-off-fb-controls/"><u>Banish Facebook's Privacy Invasion with Off-FB Controls</u></a></li>
-<li><a href="https://facebook.techidaily.com/considering-facebooks-role-in-streamlining-multi-app-sign-in-processes/"><u>Considering Facebook's Role in Streamlining Multi-App Sign-In Processes</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-our-picks-the-7-leading-traffic-control-applications/"><u>Discover Our Picks: The 7 Leading Traffic Control Applications</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-recent-facebook-watches/"><u>Discovering Recent Facebook Watches</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-next-step-enhancing-stories-panel-with-reels-and-rooms/"><u>Facebook's Next Step: Enhancing Stories Panel With Reels & Rooms</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-isolation-to-engagement-joining-an-expat-group-on-facebook/"><u>From Isolation to Engagement: Joining an Expat Group on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/harnessing-hashtags-for-prominence/"><u>Harnessing Hashtags for Prominence</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-lava-yuva-2-pro-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Lava Yuva 2 Pro Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/resolving-access-issues-with-your-facebook-id/"><u>Resolving Access Issues with Your Facebook ID</u></a></li>
-<li><a href="https://review-topics.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-vivo-y36i-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Vivo Y36i | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unyielding-nature-of-facebooks-content-advice/"><u>The Unyielding Nature of Facebook's Content Advice</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlock-your-zte-blade-a73-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your ZTE Blade A73 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-to-make-a-youtube-trailer-by-filmora/"><u>[Updated] How to Make a YouTube Trailer by Filmora</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlocking-verified-status-essential-strategies-for-increasing-instagram-popularity/"><u>[Updated] Unlocking Verified Status Essential Strategies for Increasing Instagram Popularity</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-playing-srt-files-in-windowsmac/"><u>2024 Approved Playing SRT Files in Windows/MAC</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-samsung-galaxy-a34-5g-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Samsung Galaxy A34 5G Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/creating-compelling-valorant-thumbnails-for-digital-viewers/"><u>Creating Compelling Valorant Thumbnails for Digital Viewers</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722961239521-easy-synaptic-driver-downloads-and-updates-for-windows-get-started-now/"><u>Easy Synaptic Driver Downloads and Updates for Windows - Get Started Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-brands-profile-top-8-reasons-why-a-company-page-triumphs/"><u>Elevating Your Brand's Profile: Top 8 Reasons Why a Company Page Triumphs</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-to-expand-stories-with-added-reels-and-rooms/"><u>Facebook to Expand Stories with Added Reels & Rooms?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-ambitions-in-physical-retail-spaces-what-it-means-for-us/"><u>Facebook's Ambitions in Physical Retail Spaces - What It Means For Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-innovative-ai-renders-words-in-pictures/"><u>Facebook's Innovative AI Renders Words in Pictures</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-poco-c51-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-digital-collectibles/"><u>Instagram's Digital Collectibles</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-path-implementing-2fa-on-facebook-platform/"><u>Navigating the Path: Implementing 2FA on Facebook Platform</u></a></li>
+<li><a href="https://driver-download.techidaily.com/tutorial-for-refreshing-your-windows-os-and-microsoft-mouse-driver-at-once/"><u>Tutorial for Refreshing Your Windows OS and Microsoft Mouse Driver at Once</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-deceptive-trade-tactics-and-your-defense-strategies-on-fb/"><u>Unveiling Deceptive Trade Tactics and Your Defense Strategies on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-mystery-fbs-insider-speaking-out/"><u>Unveiling The Mystery: FB's Insider Speaking Out</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-motorola-moto-g14-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Motorola Moto G14 | Dr.fone</u></a></li>
 </ul></div>
 

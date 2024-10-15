@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2024-10-06T17:21:50.205Z
-updated: 2024-10-08T21:57:17.592Z
+date: 2024-10-13T17:28:05.507Z
+updated: 2024-10-14T20:04:47.074Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -60,24 +60,24 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-mastering-17-techniques-to-log-digital-broadcasts/"><u>[Updated] 2024 Approved Mastering 17 Techniques to Log Digital Broadcasts</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-mastering-tags-a-must-read-before-uploading/"><u>[Updated] Mastering Tags A Must-Read Before Uploading</u></a></li>
-<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-nokia-g310-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Nokia G310 | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-poco-c51-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Poco C51 is off? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/clarifying-what-counts-as-a-joke-on-fb/"><u>Clarifying What Counts as a Joke on FB</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-philips-hf3505-sunrise-simulation-wake-up-lamp/"><u>Comprehensive Review of the Philips HF3505 Sunrise Simulation Wake-Up Lamp</u></a></li>
-<li><a href="https://facebook.techidaily.com/debunking-myths-the-truth-about-facebook-user-counts/"><u>Debunking Myths: The Truth About Facebook User Counts</u></a></li>
-<li><a href="https://facebook.techidaily.com/explaining-photodnas-role-in-fighting-fraud/"><u>Explaining PhotoDNA's Role in Fighting Fraud</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-group-administrators-and-the-legal-storm-with-amazon/"><u>Facebook's Group Administrators and the Legal Storm with Amazon</u></a></li>
-<li><a href="https://facebook.techidaily.com/freelancers-ultimate-destination-list/"><u>Freelancer's Ultimate Destination List</u></a></li>
-<li><a href="https://facebook.techidaily.com/grasp-the-core-points-in-metas-revised-data-protection-plan/"><u>Grasp the Core Points in Meta's Revised Data Protection Plan</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-fix-windows-10-installation-error-80240020-comprehensive-guide/"><u>How to Fix Windows 10 Installation Error 802^40020 - Comprehensive Guide</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/how-to-upgrade-intelligent-hd-graphics-support-in-windows/"><u>How to Upgrade Intelligent HD Graphics Support in Windows</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-gps-location-on-itel-p40plus-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Itel P40+ Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximize-your-impact-instagrams-latest-payment-avenues-explored/"><u>Maximize Your Impact: Instagram's Latest Payment Avenues Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/potential-game-changer-could-facebook-ditch-giphys-services/"><u>Potential Game Changer: Could Facebook Ditch Giphy's Services?</u></a></li>
-<li><a href="https://facebook.techidaily.com/rethinking-connection-the-unveiling-of-facebooks-new-identity-meta/"><u>Rethinking Connection: The Unveiling of Facebook’s New Identity, Meta</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-sound-pop-issues-on-windows-step-by-step-troubleshooting-tips/"><u>Solving Sound Pop Issues on Windows: Step-by-Step Troubleshooting Tips</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/xsplit-collection-comprehensive-gaming-review/"><u>XSplit Collection Comprehensive Gaming Review</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-lenovo-savvy-efficient-screencasting-made-simple/"><u>[New] Lenovo Savvy Efficient Screencasting Made Simple</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-unlocking-efficiency-incorporating-zoom-into-your-gmail-routine-for-2024/"><u>[New] Unlocking Efficiency Incorporating Zoom Into Your Gmail Routine for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-from-pantry-to-fame-tiktoks-culinary-stars/"><u>[Updated] 2024 Approved From Pantry to Fame TikTok's Culinary Stars</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-hitting-the-sweet-spot-balancing-images-in-your-instagram-story/"><u>[Updated] In 2024, Hitting the Sweet Spot Balancing Images in Your Instagram Story</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-nvidia-shield-tv-pro-analysis-the-ultimate-gaming-streamers-choice/"><u>Comprehensive Nvidia Shield TV Pro Analysis: The Ultimate Gaming Streamer's Choice</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/conquer-the-cursor-flicker-problem-a-comprehensive-guide-for-quick-fixes/"><u>Conquer the Cursor Flicker Problem: A Comprehensive Guide for Quick Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-interaction-use-polls-to-peek-into-friends-lives/"><u>Enhance Interaction: Use Polls to Peek Into Friends' Lives</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exceptional-lg-24lh4830-screen-experience-without-breaking-your-wallet/"><u>Exceptional LG 24LH4830 Screen Experience Without Breaking Your Wallet</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-online-presence-facebook-vs-twitter-identities/"><u>Exploring Online Presence: Facebook vs Twitter Identities</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-app-tutorial-for-seamless-spotify-listening/"><u>Facebook App Tutorial for Seamless Spotify Listening</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-navigate-the-complex-world-of-fb-friendship-changes/"><u>How To Navigate The Complex World of FB Friendship Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/improving-non-responsive-facebook-alerts-and-updates/"><u>Improving Non-Responsive Facebook Alerts & Updates</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-tales-and-truths-the-worlds-finest-schools-top-8/"><u>In 2024, Mastering Tales & Truths The World's Finest Schools (Top 8)</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/is-the-keychron-q5-worth-it-a-detailed-examination-of-performance-vs-cost-for-high-end-tech-enthusiasts/"><u>Is the Keychron Q5 Worth It? A Detailed Examination of Performance Vs. Cost for High-End Tech Enthusiasts</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/mastering-pc-building-with-toms-hardware-wisdom/"><u>Mastering PC Building with Tom's Hardware Wisdom</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-blueprint-to-bar-private-images-online/"><u>Meta's Blueprint to Bar Private Images Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/resilience-in-rebellion-facebooks-sanctioned-sect-of-deniers/"><u>Resilience in Rebellion: Facebook’s Sanctioned Sect of Deniers</u></a></li>
+<li><a href="https://facebook.techidaily.com/seize-profit-with-these-5-online-platform-strategies/"><u>Seize Profit with These 5 Online Platform Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryl-sandberg-and-social-media-dynamics/"><u>Sheryl Sandberg and Social Media Dynamics</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Conversations: Facebook's New Messaging Features Announced"
-date: 2024-10-05T19:51:43.371Z
-updated: 2024-10-09T04:33:03.559Z
+date: 2024-10-09T01:27:24.118Z
+updated: 2024-10-15T12:57:29.749Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,16 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -52,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -85,18 +91,19 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-the-soloists-journey-personal-growth-and-success-on-youtube-for-musicians/"><u>[New] 2024 Approved The Soloist's Journey Personal Growth and Success on YouTube for Musicians</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-gauge-if-an-mcn-is-right-for-your-youtube-journey-for-2024/"><u>[New] How to Gauge if an MCN Is Right for Your YouTube Journey for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-wirecast-critique-and-comparisons/"><u>[New] In 2024, WireCast Critique & Comparisons</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-boost-your-content-ranking-of-top-10-video-editors/"><u>2024 Approved Boost Your Content Ranking of Top 10 Video Editors</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-balanced-look-at-online-expat-communities-via-facebook/"><u>A Balanced Look at Online Expat Communities via Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/addressing-security-token-issues-in-the-faceboook-login-procedure/"><u>Addressing Security Token Issues in the Faceboook Login Procedure</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-bonds-beyond-the-blue-feathered-bird/"><u>Building Bonds Beyond the Blue Feathered Bird</u></a></li>
-<li><a href="https://facebook.techidaily.com/bypass-facebooks-tracking-utilizing-off-fb-tool/"><u>Bypass Facebook's Tracking - Utilizing Off-FB Tool</u></a></li>
-<li><a href="https://techtrends.techidaily.com/comprendi-i-file-webm-guida-completa-su-struttura-e-apertura/"><u>Comprendi I File WebM: Guida Completa Su Struttura E Apertura</u></a></li>
-<li><a href="https://facebook.techidaily.com/conserve-your-time-diminishing-fb-interactions/"><u>Conserve Your Time: Diminishing FB Interactions</u></a></li>
-<li><a href="https://win-dash.techidaily.com/hp-officejet-pro-8620-drivers-download-and-update-in-windows/"><u>HP OfficeJet Pro 8620 Drivers Download & Update in Windows</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Motorola Razr 40 Ultra | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/pro-level-windows-photos-shortcut-guide/"><u>Pro-Level Windows Photos Shortcut Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-become-a-pro-with-our-instagram-story-insights-for-2024/"><u>[Updated] Become a Pro with Our Instagram Story Insights for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-quick-guide-downloading-and-prepping-vrecord/"><u>[Updated] Quick Guide Downloading & Prepping VRecord</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-efficient-movie-file-management-in-windows-11-six-approaches/"><u>2024 Approved Efficient Movie File Management in Windows 11 Six Approaches</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-computer-components-with-tom-your-hardware-hub/"><u>Exploring Computer Components with Tom - Your Hardware Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-on-this-day-enhancing-nostalgia-and-connection/"><u>Facebook On This Day: Enhancing Nostalgia and Connection</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-vivo-s18-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-to-shoot-a-time-lapse-video-with-gopro-hero5-black-for-2024/"><u>How to Shoot a Time-Lapse Video with GoPro Hero5 Black for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/measuring-electrical-use-for-windows-pcs-effectively/"><u>Measuring Electrical Use for Windows PCs Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-previous-friendships-in-fb/"><u>Navigating Previous Friendships in FB</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolve-bootmgr-is-absent-issue-quickly-a-step-by-step-guide-with-images/"><u>Resolve 'BOOTMGR Is Absent' Issue Quickly - A Step-by-Step Guide with Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviving-logins-facebook-oculus-rift-purchases-post-breach/"><u>Reviving Logins: Facebook Oculus Rift Purchases Post-Breach</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/snap-protection-android-and-mac-app-recommendations-for-2024/"><u>Snap Protection Android & Mac App Recommendations for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotlight-on-this-years-top-technology-gaffes/"><u>Spotlight on This Year's Top Technology Gaffes</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-approach-sharing-work-opportunities-on-facebook/"><u>Strategic Approach: Sharing Work Opportunities on Facebook</u></a></li>
 </ul></div>
 

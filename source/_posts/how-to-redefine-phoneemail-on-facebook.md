@@ -1,7 +1,7 @@
 ---
 title: How to Redefine Phone/Email on Facebook
-date: 2024-10-04T01:46:04.511Z
-updated: 2024-10-08T18:41:54.688Z
+date: 2024-10-10T07:07:52.154Z
+updated: 2024-10-14T21:39:35.656Z
 tags:
   - facebook
 categories:
@@ -32,31 +32,24 @@ thumbnail: https://thmb.techidaily.com/dd18e8bc3c9f273d09d135719fd511870ffe57b02
 
  Another reason why you might want to update your email or phone number is if you are moving or traveling and will be using a new email address or phone number temporarily. Whatever the reason, updating your information is easy to do and can be done in just a few minutes.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Update Your Email Address and Phone Number on Facebook
 
  You can change the email address and phone number linked to your account on the Facebook app as well as the web version.
 
 Here's how...
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Update Your Email Address and Phone Number on Mobile
 
 To change your email address on the Facebook app, follow these steps:
 
 ![screenshot showing facebook main menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-main-menu.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![screenshot showing facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-menu.jpg)
 
@@ -83,6 +76,13 @@ Here's how to do this:
 
 ![screenshot showing how to remove phone number from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-how-to-remove-phone-number-from-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
 1. Tap on the email or phone number on the**Manage Contact Info** page.
@@ -100,10 +100,10 @@ Close
 4. Click on**Account Settings** .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 5. Click on**Edit** in line with the previously linked email address and then click on**\+ Add another email or mobile number** .  
@@ -111,19 +111,19 @@ Close
 6. Enter your new email address in the provided field and click**Add** or click on**Add your phone number?** .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![screenshot showing enter email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-enter-email-address-page.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Updating Your Contact Information on Facebook
@@ -145,17 +145,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/2024-approved-premium-listings-where-to-download-snappy-tones-directly/"><u>2024 Approved Premium Listings Where to Download Snappy Tones Directly</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-secure-your-free-green-screen-assets-with-these-top-8-sites/"><u>2024 Approved Secure Your FREE Green Screen Assets with These Top 8 Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/adopt-dark-scheme-change-facebook-theme/"><u>Adopt Dark Scheme: Change Facebook Theme</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-identifying-compromised-accounts-on-facebook/"><u>Alert! Identifying Compromised Accounts on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-scenes-at-facebook-exploring-the-policies-center/"><u>Behind-the-Scenes at Facebook: Exploring the Policies Center</u></a></li>
-<li><a href="https://facebook.techidaily.com/connecting-the-dots-facebook-aids-global-pandemic-response/"><u>Connecting the Dots: Facebook Aids Global Pandemic Response</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/expert-advice-on-preserving-your-webex-sessions-how-to-record-and-enhance-audio-visuals-for-clarity/"><u>Expert Advice on Preserving Your Webex Sessions: How to Record and Enhance Audio-Visuals for Clarity</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-honor-x9a-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Honor X9a to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-apple-id-from-iphone-xr-without-password-by-drfone-ios/"><u>In 2024, How to Remove Apple ID from iPhone XR without Password?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-samsungs-gear-360-challenger-the-best-cameras-of-the-year/"><u>In 2024, Samsung’s Gear 360 Challenger The Best Cameras of the Year</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/miniature-movie-dialogue-draft/"><u>Miniature Movie Dialogue Draft</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/top-10-border-tools-for-professional-instagram-images-for-2024/"><u>Top 10 Border Tools for Professional Instagram Images for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-50-top-tier-virtual-bgms-for-zoomgoogle-for-2024/"><u>[New] 50 Top-Tier Virtual BGMs for Zoom/Google for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/breaking-down-the-barriers-to-knowing-your-fans-for-2024/"><u>Breaking Down the Barriers to Knowing Your Fans for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-alternatives-seven-compelling-reasons-to-steer-clear-of-generative-ai-in-message-services/"><u>Exploring Alternatives: Seven Compelling Reasons to Steer Clear of Generative AI in Message Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-profile-change-your-significant-date-quickly/"><u>FB Profile - Change Your Significant Date Quickly</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/get-enhanced-gaming-with-updated-amd-radeon-video-card-software-version-2410/"><u>Get Enhanced Gaming with Updated AMD Radeon Video Card Software (Version 24.10)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-capturing-the-action-a-twitch-broadcasters-handbook/"><u>In 2024, Capturing the Action A Twitch Broadcaster's Handbook</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-vivo-v27-pro-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Vivo V27 Pro to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-realme-narzo-n55-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Realme Narzo N55 Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-pioneers-next-level-personalized-simulations/"><u>Oculus Pioneers Next Level Personalized Simulations</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/passionate-prose-crafting-compelling-spanish-compliments/"><u>Passionate Prose: Crafting Compelling Spanish Compliments</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinstating-facebook-login-in-the-wake-of-code-loss/"><u>Reinstating Facebook Login in the Wake of Code Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-clearing-frozen-fb-alerts-and-posts/"><u>Strategies for Clearing Frozen FB Alerts and Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-control-of-your-online-sessions-via-facebook-alerts/"><u>Taking Control of Your Online Sessions via Facebook Alerts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719575683005-virtual-verbal-journey-transform-flingish-to-fluent/"><u>Virtual Verbal Journey: Transform Flingish to Fluent</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Facebook Friend Requests: Unwritten Rules and Hidden Settings"
-date: 2024-09-13T16:41:56.518Z
-updated: 2024-09-16T22:20:27.507Z
+date: 2024-10-13T04:52:12.938Z
+updated: 2024-10-15T09:52:08.241Z
 tags:
   - facebook
 categories:
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/94f7e6bb0d500f60edc6e34b363527bd47bbfffa4
  If you can't send them a friend request at all, they may have changed who can add them or they denied your friend request less than a year ago.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Unfollowing vs. Unfriending on Facebook
@@ -74,22 +74,15 @@ thumbnail: https://thmb.techidaily.com/94f7e6bb0d500f60edc6e34b363527bd47bbfffa4
 ![Facebook on-post menu to unfollow or snooze a friend.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-Friend.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Alternatively, head to your friend's profile, expand the menu right next to your friendship status, and select**Unfollow** from the bottom.
 
 ![Unfollow a Facebook friend from their profile page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-Friend-Profiile-Page.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Unwritten Facebook Friend Request Rules
 
@@ -109,6 +102,13 @@ thumbnail: https://thmb.techidaily.com/94f7e6bb0d500f60edc6e34b363527bd47bbfffa4
 
  In other words: don't look like a fake account, don't add random strangers, and don't be a stranger yourself.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Add Friends Conservatively
 
  You will often want to add a new friend immediately, even though you don't have mutual friends on Facebook. And it might be more awkward to send a message first than to add them directly.
@@ -125,16 +125,16 @@ thumbnail: https://thmb.techidaily.com/94f7e6bb0d500f60edc6e34b363527bd47bbfffa4
 
 ![Block person after unsolicited friend request on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Block-Friend-Request.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Use the first option to report fake accounts, strangers, or people who harass you.
 
 ![Report an unwelcome friend request on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Report-Friend-Request.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Keep in mind that if you do this, the person may be penalized.
 
@@ -151,10 +151,10 @@ Keep in mind that if you do this, the person may be penalized.
  Check through your sent requests to make sure you haven't unwittingly sent someone an invite on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Block Friend Requests From Strangers
@@ -166,6 +166,13 @@ Keep in mind that if you do this, the person may be penalized.
  Expand the**Account menu** (your profile picture) in the top right and click through to**Settings & privacy > Settings > Privacy** . Under**How People Find and Contact You** , find the**Who can send you friend requests?** option and click**Edit** . Your choices are**Everyone** or**Friends of friends** .
 
 ![Facebook friend request settings in the Privacy section.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friend-Request-Settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Hide Your Friends List
 
@@ -197,6 +204,13 @@ Keep in mind that if you do this, the person may be penalized.
 
  You can't friend someone you've blocked. See if you can[unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. They Don't Permit Friend Requests From Strangers
 
  As outlined above, Facebook allows you to restrict who can send you a friend request. If that's the reason you can't friend someone, ask them to send you a friend request instead.
@@ -214,6 +228,13 @@ Keep in mind that if you do this, the person may be penalized.
  According to[the Facebook Help Center](https://www.facebook.com/help/320587401313728?helpref=faq%5Fcontent) , Facebook cannot lift a block early, but fortunately, it's only temporary and will expire within a few days.
 
 Follow our guidelines above to avoid this from happening again.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Master Your Facebook Friendships
 
@@ -234,5 +255,22 @@ Follow our guidelines above to avoid this from happening again.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-innovating-image-presentations-how-to-add-text-and-captions-to-videos-within-windows-10-photos/"><u>[Updated] In 2024, Innovating Image Presentations How to Add Text and Captions to Videos Within Windows 10 Photos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-top-windows-10-capture-apps-ultimate-guide/"><u>[Updated] Top Windows 10 Capture Apps Ultimate Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/clearing-up-the-night-how-to-restore-visibility-to-a-black-display-on-android-devices/"><u>Clearing Up the Night: How To Restore Visibility to a Black Display on Android Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/decembers-silence-on-instagram-thread-activity/"><u>December's Silence on Instagram Thread Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/deep-dive-into-facebooks-metaverse-three-concerns-raised/"><u>Deep Dive Into Facebook's Metaverse: Three Concerns Raised</u></a></li>
+<li><a href="https://facebook.techidaily.com/deleting-with-determination-strategies-for-discarding-your-fb-brand-pages/"><u>Deleting with Determination: Strategies for Discarding Your FB Brand Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-bonds-that-matter-the-top-9-advantages-of-social-networks/"><u>Digital Bonds That Matter: The Top 9 Advantages of Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-latest-fb-views-quickly/"><u>Discovering Latest FB Views Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-into-deeper-connections-facebooks-past-narrative/"><u>Diving Into Deeper Connections: Facebook’s Past Narrative</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-methods-for-managing-page-followings/"><u>Effective Methods for Managing Page Followings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/cing-video-content-iphoneipad-screen-capture-basics/"><u>Enhancing Video Content IPhone/iPad Screen Capture Basics</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/essential-steps-to-engage-with-youtubes-comment-section/"><u>Essential Steps to Engage with YouTube's Comment Section</u></a></li>
+<li><a href="https://network-issues.techidaily.com/preventing-pulsing-monitor-glitches/"><u>Preventing Pulsing Monitor Glitches</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-petsafe-healthy-pet-feeder-unveiled-how-this-innovative-device-supports-managing-your-pets-weight/"><u>The PetSafe Healthy Pet Feeder Unveiled: How This Innovative Device Supports Managing Your Pet's Weight</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/transform-your-copy-with-strategic-slug-line-usage/"><u>Transform Your Copy with Strategic Slug Line Usage</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Enlightened Exclusion of Political Posts
-date: 2024-09-12T23:32:48.237Z
-updated: 2024-09-16T19:29:19.076Z
+date: 2024-10-08T20:21:15.161Z
+updated: 2024-10-15T02:35:07.199Z
 tags:
   - facebook
 categories:
@@ -42,9 +42,23 @@ thumbnail: https://thmb.techidaily.com/f2d53ebba5315caabb937b6a02076182259db722e
 
  We've talked about[how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People
 
 ![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Did you know that Facebook lets you block articles from specific pages, groups, and people? One good way to use this is to keep an eye out for articles that annoy you. That means clickbait, politics, the works.
 
@@ -56,16 +70,16 @@ thumbnail: https://thmb.techidaily.com/f2d53ebba5315caabb937b6a02076182259db722e
 
  The only thing to keep an eye out for here is that some sources are a mixed bag, and have genuine value to offer, even if they are occasionally annoying. In those cases, you're probably better off letting that source stay and using the more sophisticated strategy to get rid of these posts.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Remove Your Political Views From Your Profile
 
 ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  When you create your Facebook profile, it asks you about your political views, among other things. If you do add your views, however, Facebook uses this information to suggest political posts and ads to you. Adding this piece of information to your profile is not really necessary, unless you are affiliated with a political party, and you have to put your views on display.
 
@@ -74,13 +88,6 @@ thumbnail: https://thmb.techidaily.com/f2d53ebba5315caabb937b6a02076182259db722e
  This will open an overlay window on top of your profile. Scroll to the bottom and click on**Edit your about info** . Now, under**About** , click on**Contact and basic info** . Here, you'll see your**Political views** under**Basic info** .
 
  To edit this information, click on the**Pen button** next to it. Now, in the editable text section, delete whatever is written and press**Save** . That's it. Your profile has no information about your political views anymore and Facebook will not suggest those posts and ads anymore.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Use a Browser Extension
 
@@ -91,6 +98,13 @@ thumbnail: https://thmb.techidaily.com/f2d53ebba5315caabb937b6a02076182259db722e
  This is a really versatile plugin, and you can spend a long-time tweaking all the options. It even lets you rank posts in sequential order, instead of letting Facebook guess what you most want to see. This fixes another common complaint about the site.
 
  FB Purity is basically an intelligent filter that lets you get rid of anything you don't like. It's also updated frequently to adapt to changes to Facebook's UI and features. Our only complaint is that the graphic design clashes with Facebook a little, and its interface can be hard to navigate.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Creating a Facebook Feed You Enjoy
 
@@ -109,5 +123,18 @@ thumbnail: https://thmb.techidaily.com/f2d53ebba5315caabb937b6a02076182259db722e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-decoding-instagram-the-technique-for-video-downloads-on-pcmac-devices/"><u>[New] Decoding Instagram The Technique for Video Downloads on PC/Mac Devices</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-ultimate-memory-upgrade-for-sony-a7c/"><u>[New] Ultimate Memory Upgrade for Sony A7C</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unearthing-the-best-free-mac-apps-for-speech-to-text/"><u>2024 Approved Unearthing the Best Free Mac Apps for Speech to Text</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-verification-protocols/"><u>Decoding Facebook's Verification Protocols</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-silent-editors-of-social-media-platforms/"><u>Decoding the Silent Editors of Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dominance-claiming-the-top-tier-title-meta-gold-or-twitters-bronze/"><u>Digital Dominance: Claiming the Top Tier Title – Meta-Gold or Twitter's Bronze?</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-selection-of-your-facebook-promotions/"><u>Dissecting the Selection of Your Facebook Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-career-with-facebooks-business-tools/"><u>Elevate Your Career with Facebook's Business Tools</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-tecno-spark-10-pro-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Tecno Spark 10 Pro Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/movaviape/"><u>Movavi提供線上免費的APE類型音效更換工具</u></a></li>
+<li><a href="https://win-bits.techidaily.com/understanding-the-role-of-tpm-in-windows-11-a-comprehensive-guide/"><u>Understanding the Role of TPM in Windows 11: A Comprehensive Guide</u></a></li>
+</ul></div>
 

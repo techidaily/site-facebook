@@ -1,7 +1,7 @@
 ---
 title: Fine-Tuning Who Sees Your On-Demand Activity
-date: 2024-09-15T18:39:24.704Z
-updated: 2024-09-16T16:24:32.181Z
+date: 2024-10-10T07:11:00.872Z
+updated: 2024-10-15T03:50:53.781Z
 tags:
   - facebook
 categories:
@@ -50,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/0f5e0d66222e22041fd69d85c280c4d0b12cd9d4f
 
  But what if you don't want certain people to see you online or you don't want your online status reflected at all? Here's how to adjust your Active Status settings so that only certain people can see you online on Facebook...
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Change Who Can See You Online on Facebook (Web)
 
  To alter the specific people who can see you online on Facebook, you should adjust your Active Status settings on the browser version of the platform. If you really don't want people to see you online, we recommend switching off your Active Status on the website as well as the app.
@@ -60,6 +67,14 @@ thumbnail: https://thmb.techidaily.com/0f5e0d66222e22041fd69d85c280c4d0b12cd9d4f
 2. In the dropdown menu, select**Active Status: ON** .  
 ![facebook chat settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-chat-settings-updated.jpg)
 3. This will bring up a popup where you can select your options. You can toggle Active Status to**OFF** , allow**Active Status ON for some** , or turn**Active Status OFF for some** . If you want to change the Facebook friends who can or cannot see you online by selecting the**Edit** button next to the relevant option.  
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![facebook active status settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-active-status-settings-updated.jpg)
 4. Select whichever setting you prefer. If you select**Edit** , a popup will appear allowing you to search for contacts you want to add to the Active Status ON or Active Status OFF list. Then choose**Save** to implement the settings.  
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
@@ -74,7 +89,21 @@ thumbnail: https://thmb.techidaily.com/0f5e0d66222e22041fd69d85c280c4d0b12cd9d4f
 
 ![facebook chat settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-chat-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
 
@@ -90,19 +119,6 @@ Close
  Switching off your Active Status also prevents you from seeing when other people are online. In our test, switching off Active Status on the mobile app did not carry over to the desktop browser version of Facebook.
 
  You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
@@ -124,13 +140,6 @@ This is different from a full Facebook block.
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
 4. Choose the option for**Block messages and calls** .  
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
@@ -155,5 +164,20 @@ This is different from a full Facebook block.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-from-vision-to-execution-the-full-spectrum-of-personal-branding-on-youtube/"><u>[New] From Vision to Execution The Full Spectrum of Personal Branding on YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-easeus-tech-diverse-viewpoints-for-2024/"><u>[Updated] EaseUS Tech, Diverse Viewpoints for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-unveiling-the-top-8-beginner-friendly-cameras-35mm-to-pands/"><u>2024 Approved Unveiling the Top 8 Beginner-Friendly Cameras (35Mm to P&S)</u></a></li>
+<li><a href="https://win-able.techidaily.com/enhance-your-gaming-experience-optimize-horizon-zero-dawn-for-maximum-fps/"><u>Enhance Your Gaming Experience: Optimize Horizon Zero Dawn for Maximum FPS</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-continues-to-host-anti-vax-theme-profile-borders-despite-ban/"><u>Facebook Continues to Host Anti-Vax Theme Profile Borders Despite Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/facts-behind-fears-redefining-our-understanding-of-facebook-files/"><u>Facts Behind Fears: Redefining Our Understanding of Facebook Files</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-vivo-v29e-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Vivo V29e</u></a></li>
+<li><a href="https://facebook.techidaily.com/immersive-synergy-defining-the-metaverse-concept/"><u>Immersive Synergy: Defining the Metaverse Concept</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-poco-c50-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Poco C50 Device SIM</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencers-insight-amplifying-your-online-alliance/"><u>Influencers' Insight: Amplifying Your Online Alliance</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlocking-iphone-12-mini-passcode-without-a-computer-by-drfone-ios/"><u>Unlocking iPhone 12 mini Passcode without a Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-social-medias-pros-outweigh-the-cons-a-top-9-list/"><u>Why Social Media's Pros Outweigh the Cons: A Top 9 List</u></a></li>
+</ul></div>
 

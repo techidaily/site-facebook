@@ -1,7 +1,7 @@
 ---
 title: "Into New Realities: The Emergence and Explanation of Metaverse by FB"
-date: 2024-10-06T21:17:36.806Z
-updated: 2024-10-08T21:07:28.629Z
+date: 2024-10-09T23:31:35.258Z
+updated: 2024-10-15T11:36:02.960Z
 tags:
   - facebook
 categories:
@@ -37,21 +37,22 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
  With most acquisitions done in private, it’s likely that this number is even higher. But why would Facebook want to spend so much to acquire companies from a variety of industries? While we don't know for sure, what we do know is that they can benefit from knowing customers, unlike other companies.
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Effects of a Granular Customer Profile
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
 
@@ -63,13 +64,6 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Algorithmic Biases
 
  Many people talk about the algorithm that runs social media platforms and the ads that fund them. While algorithms are not inherently bad, they’re not entirely safe from biases, either. Similar to the people who code them, algorithms fulfill certain needs like efficiency, effectiveness, and so on. Unfortunately, these hallmarks for success often don't necessarily include ethics.
@@ -78,19 +72,6 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 
  When it comes to social media, it’s important to remember that access to information on a curated newsfeed always comes with an agenda, even if it wasn’t the original intention.
 
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Security Risks of Granular Data
 
  With this in mind, it’s necessary to understand that most governments still don’t have the full grasp of the social, economic, and psychological impact the internet has on people. In many ways, this lack of tech knowledge by governing bodies puts regulation on the back seat.
@@ -98,6 +79,13 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
  In recent years, Facebook has been accused of several alarming things, from helping[manipulate election results](https://www.makeuseof.com/tag/facebook-data-influence-elections/) , allowing the rise of politicization on all sides, and even giving advertisers the power to know intimate details about their users without their consent.
 
  Because the regulation often inhibits progress, many would tout the lag of regulation around technology to be a boon. However, the regulation also works to protect end-users from exploitation, especially due to ignorance. For this reason, many data brokers think more about profit than they do about protecting their consumers.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## A Battle Among Giants
 
@@ -110,10 +98,10 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Perils of Being an Ordinary Person
@@ -139,24 +127,24 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-comprehensively-covering-minecraft-playback-setup/"><u>[New] 2024 Approved Comprehensively Covering Minecraft Playback Setup</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-free-windows-10-recorder-tools-a-comprehensive-updated-guide/"><u>[Updated] Free Windows 10 Recorder Tools A Comprehensive, Updated Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-dare-greatly-with-these-10-movies-that-matter-most/"><u>[Updated] In 2024, Dare Greatly with These 10 Movies That Matter Most</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-safe-surveillance-strategies-blurring-sensitive-content/"><u>[Updated] Safe Surveillance Strategies Blurring Sensitive Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/3-alarms-for-metas-social-colossus/"><u>3 Alarms for Meta's Social Colossus</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-to-enhanced-fb-security/"><u>A Step-by-Step Approach to Enhanced FB Security</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-you-apart-from-friends-on-fb-truths-unveiled/"><u>Are You Apart From Friends on FB? Truths Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/be-direct-be-quick-understanding-3-tagging-techniques-for-fb-friends/"><u>Be Direct, Be Quick: Understanding 3 Tagging Techniques for FB Friends</u></a></li>
-<li><a href="https://facebook.techidaily.com/charting-a-course-through-meta-user-management-portal/"><u>Charting a Course Through Meta User Management Portal</u></a></li>
-<li><a href="https://facebook.techidaily.com/converting-connectivity-into-corp-achievements-via-top-sites/"><u>Converting Connectivity Into Corp Achievements via Top Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/could-facebooks-reels-disrupt-tiktoks-dominance/"><u>Could Facebook’s Reels Disrupt TikTok's Dominance?</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-conversation-clarity-formatting-highlights/"><u>Crafting Conversation Clarity: Formatting Highlights</u></a></li>
-<li><a href="https://win-blog.techidaily.com/detailed-steps-to-rectify-your-dota-2-vac-ban-expert-advice-and-strategies/"><u>Detailed Steps to Rectify Your Dota 2 VAC Ban – Expert Advice and Strategies</u></a></li>
-<li><a href="https://win-forum.techidaily.com/diagnosing-and-fixing-your-laptops-performance-issues-with-revo-uninstaller/"><u>Diagnosing and Fixing Your Laptop's Performance Issues with Revo Uninstaller</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/essential-ai-toolkits-for-newcomers-insights-from-9-tech-communities/"><u>Essential AI Toolkits for Newcomers - Insights From 9 Tech Communities</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722978845400-get-the-newest-drivers-for-your-netgear-wi-fi-adapter-here/"><u>Get the Newest Drivers for Your NETGEAR Wi-Fi Adapter Here!</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719152494885-newsfeed-no-more-complicated-facebooks-revolutionary-upgrade/"><u>Newsfeed No More Complicated – Facebook's Revolutionary Upgrade!</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/unleash-your-inner-meme-lord-top-10-mobile-apps-for-meme-creation-for-2024/"><u>Unleash Your Inner Meme Lord Top 10 Mobile Apps for Meme Creation for 2024</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-achieving-tiktok-peace-effective-strategies-for-dialing-down-volume-for-2024/"><u>Updated Achieving TikTok Peace Effective Strategies for Dialing Down Volume for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-screen-capture-essentials-the-finest-zero-cost-apps-for-win-10-users/"><u>[New] Screen Capture Essentials The Finest Zero-Cost Apps for Win 10 Users</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-smooth-operation-file-transfer-between-different-os-phones/"><u>[New] Smooth Operation File Transfer Between Different OS Phones</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-10-best-video-editors-for-webcam-videos/"><u>[Updated] 2024 Approved 10 Best Video Editors for Webcam Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/7-best-and-free-srt-translation-websites-unveiled/"><u>7 Best & Free SRT Translation Websites Unveiled</u></a></li>
+<li><a href="https://extra-information.techidaily.com/8k-tv-showdown-highest-resolution-screens-compared-for-2024/"><u>8K TV Showdown Highest Resolution Screens Compared for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-clarity-in-facebook-posts-across-languages/"><u>Ensuring Clarity in Facebook Posts Across Languages</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-helping-hand-resources/"><u>Exploring Facebook's Helping Hand Resources</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-metaverse-understanding-the-concerns/"><u>Facebook Metaverse: Understanding the Concerns</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-rebounds-insights-behind-its-revival/"><u>Facebook Rebounds: Insights Behind Its Revival</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-discord-sound-glitches-a-comprehensive-guide-to-perfect-calls-in-202/"><u>Fixing Discord Sound Glitches: A Comprehensive Guide to Perfect Calls in 202</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/free-templates-for-bespoke-video-epilogues/"><u>Free Templates for Bespoke Video Epilogues</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-fb-messengers-privacy-viable/"><u>Is FB Messenger's Privacy Viable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/leaders-behind-todays-social-network/"><u>Leaders Behind Today’s Social Network</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/market-maven-tutorials-top-15-online-stock-streams-for-2024/"><u>Market Maven Tutorials Top 15 Online Stock Streams for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-with-facts-amidst-covid-19-chaos/"><u>Navigating Social Media with Facts Amidst COVID-19 Chaos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/precision-visuals-mastering-close-ups-in-msteams-for-2024/"><u>Precision Visuals Mastering Close-Ups in MSTEAMS for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-issues-with-the-release-of-urban-planners-challenge-skycrapes-unbound/"><u>Resolving Issues with the Release of Urban Planner's Challenge: Skycrapes Unbound</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-digital-footprint-in-facebook/"><u>Streamlining Your Digital Footprint in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-veiled-guidelines-behind-accepting-facebook-friends/"><u>The Veiled Guidelines Behind Accepting FACEBOOK Friends</u></a></li>
 </ul></div>
 

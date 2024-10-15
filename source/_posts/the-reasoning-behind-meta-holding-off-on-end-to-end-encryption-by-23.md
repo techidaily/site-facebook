@@ -1,7 +1,7 @@
 ---
 title: The Reasoning Behind Meta Holding Off on End-to-End Encryption by '23
-date: 2024-10-05T02:49:21.323Z
-updated: 2024-10-08T16:54:33.405Z
+date: 2024-10-07T20:35:16.620Z
+updated: 2024-10-15T12:12:07.994Z
 tags:
   - facebook
 categories:
@@ -37,16 +37,10 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
@@ -60,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
@@ -89,18 +83,18 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-guiding-you-to-enable-auto-video-feature-on-facebook/"><u>[New] In 2024, Guiding You to Enable Auto-Video Feature on Facebook</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-creating-compelling-sports-content-from-the-ground-up/"><u>[Updated] 2024 Approved Creating Compelling Sports Content From the Ground Up</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-walking-through-time-a-guide-to-inverted-videos-on-instagram/"><u>[Updated] 2024 Approved Walking Through Time A Guide to Inverted Videos on Instagram</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-an-overview-of-basic-and-simplified-hdr-photography-for-2024/"><u>[Updated] An Overview of Basic and Simplified HDR Photography for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-ideal-obs-parameters-for-economical-pcs/"><u>[Updated] Ideal OBS Parameters for Economical PCs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-securing-yourself-from-motion-sickness-in-vr/"><u>[Updated] In 2024, Securing Yourself From Motion Sickness in VR</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-the-2023-update-facebooks-new-landscape-explained/"><u>[Updated] The 2023 Update Facebook's New Landscape Explained</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/easy-ways-to-get-your-epson-printer-online-with-wifi-the-ultimate-guide/"><u>Easy Ways to Get Your Epson Printer Online with WiFi – The Ultimate Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/enhance-your-content-utilizing-the-green-screen-on-instagram/"><u>Enhance Your Content Utilizing the Green Screen on Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhanced-administrator-capabilities-for-online-communities-on-fb/"><u>Enhanced Administrator Capabilities for Online Communities on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-different-post-formats-for-optimal-social-media-reach/"><u>Exploring Different Post Formats for Optimal Social Media Reach</u></a></li>
-<li><a href="https://facebook.techidaily.com/next-step-for-teens-rethinking-daily-instagram-interactions-with-facebook-insights/"><u>Next Step for Teens: Rethinking Daily Instagram Interactions with Facebook Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailored-guide-to-dissolve-your-facebook-collective/"><u>Tailored Guide to Dissolve Your Facebook Collective</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-tuned-demystifying-the-factors-for-facebooks-longevity/"><u>'Stay Tuned': Demystifying the Factors for Facebook's Longevity</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-advancing-zoom-clarity-in-online-gatherings-google-meet/"><u>[New] In 2024, Advancing Zoom Clarity in Online Gatherings (Google Meet)</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-iphones-simple-methods-for-effective-screening-for-2024/"><u>[New] IPhone's Simple Methods for Effective Screening for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-perfect-your-podcast-sound-editing-techniques-in-garageband/"><u>[Updated] Perfect Your Podcast Sound Editing Techniques in GarageBand</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/first-steps-in-ai-tool-development-engaging-with-top/"><u>First Steps in AI Tool Development: Engaging With Top</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-oppo-k11-5g-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Oppo K11 5G Fingerprint Lock</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-tecno-spark-20-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Tecno Spark 20? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-the-newsfeed-with-4-easy-customization-tactics/"><u>Navigate the Newsfeed with 4 Easy Customization Tactics</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/pioneering-idea-generation-discover-the-leading-5-ai-engines/"><u>Pioneering Idea Generation: Discover the Leading 5 AI Engines</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-profile-picture-change-scheduling/"><u>Strategic Profile Picture Change Scheduling</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-masterful-fb-image-selection-and-display/"><u>Strategies for Masterful FB Image Selection and Display</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/where-to-secure-your-amd-ryzen-chips-9700x-and-ryzen-5-9600x-buying-options/"><u>Where to Secure Your AMD Ryzen Chips: 9700X and Ryzen 5 9600X Buying Options</u></a></li>
 </ul></div>
 

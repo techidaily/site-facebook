@@ -1,7 +1,7 @@
 ---
 title: Securely Engage with Friends on Facebook, Here’s How
-date: 2024-10-02T20:31:34.321Z
-updated: 2024-10-09T00:41:55.679Z
+date: 2024-10-12T06:25:43.736Z
+updated: 2024-10-14T20:12:50.871Z
 tags:
   - facebook
 categories:
@@ -40,16 +40,16 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * To tighten your security even further, you can add[two-factor authentication](https://www.facebook.com/security/2fac/setup/intro/) to your Facebook account. You can use an authentication app, receive an SMS message, or security key when logging in from an unrecognized browser or device.
 * Be made aware of any[unrecognized Facebook login attempts](https://www.makeuseof.com/tag/check-accessing-facebook-account/) by option to**Get alerts about unrecognized logins** under the**Setting up extra security** section.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2. Privacy
 
 ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
 
@@ -63,10 +63,10 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * Don't want to be hassled by strangers via Facebook Messenger? You can decide whether chats are received or filtered to message requests by adjusting your**Potential connections** and**Other people** in the**How you get message requests** settings.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3. Profile and Tagging
@@ -93,15 +93,22 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5. Blocking
 
 ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: Paparacy/[Shutterstock](https://www.shutterstock.com/image-photo/moscow-russia-april-19-2018-logo-1071882503)
 
@@ -119,13 +126,6 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * To ensure your privacy settings are up-to-date, you should run Facebook's Privacy Checkup under**Settings & Privacy** . This is a short overview of your existing settings showing you who can see what you share, how people find you, and more.
 * Under**General Settings** , you should make sure your name and contact details are accurate. If you lose access to your account and need to prove your identity, you'll have to be able to confirm your details.
 * Don't want Facebook to know where you are? Check the**Location** tab and turn off location history for your mobile devices.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Be Facebook Privacy Aware
 
@@ -146,22 +146,20 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-avoiding-common-nocturnal-photography-errors-for-2024/"><u>[New] Avoiding Common Nocturnal Photography Errors for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-prime-websites-to-increase-video-viewership/"><u>[New] Prime Websites to Increase Video Viewership</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-podcast-openings-unveiled-scripted-appeals/"><u>[Updated] 2024 Approved Podcast Openings Unveiled Scripted Appeals</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-locate-inexpensive-deals-on-gopro-cameras-near-you/"><u>2024 Approved Locate Inexpensive Deals on GoPro Cameras Near You</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-top-5-youtube-like-gbv-snippets-on-fb/"><u>2024 Approved Top 5 YouTube-Like GBV Snippets on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/4-reasons-why-facebook-is-starting-to-lose-users/"><u>4 Reasons Why Facebook Is Starting to Lose Users</u></a></li>
-<li><a href="https://techtrends.techidaily.com/aol-mail-not-working-understanding-if-its-a-global-outage-or-personal-problem/"><u>AOL Mail Not Working - Understanding if It’s a Global Outage or Personal Problem</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/capturing-epic-moments-three-techniques-for-recording-wild-hearts-gaming-sessions-on-your-pc/"><u>Capturing Epic Moments: Three Techniques for Recording Wild Hearts Gaming Sessions on Your PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/december-brings-the-end-of-instas-thoughtful-threads/"><u>December Brings the End of Insta's Thoughtful Threads</u></a></li>
-<li><a href="https://facebook.techidaily.com/fact-or-fantasy-dissecting-10-common-facebook-myths/"><u>Fact or Fantasy? Dissecting 10 Common Facebook Myths</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-your-fb-page-pristine-banning-inappropriate-users/"><u>Keeping Your FB Page Pristine: Banning Inappropriate Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/misinformation-currents-linked-to-influencer-actions/"><u>Misinformation Currents Linked to Influencer Actions</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-more-footprints-purge-facebook-history-efficiently/"><u>No More Footprints: Purge Facebook History Efficiently</u></a></li>
-<li><a href="https://facebook.techidaily.com/propel-your-presence-profitably-top-5-monetization-tactics-on-fbig/"><u>Propel Your Presence Profitably: Top 5 Monetization Tactics on FB/IG</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/step-by-step-instruction-loading-windows-movie-maker-60-for-2024/"><u>Step-by-Step Instruction Loading Windows Movie Maker 6.0 for 2024</u></a></li>
-<li><a href="https://media-tips.techidaily.com/top-3-recommended-dvd-players-for-pcs-on-windows-11-free-versions-available/"><u>Top 3 Recommended DVD Players for PCs on Windows 11 - FREE Versions Available</u></a></li>
-<li><a href="https://facebook.techidaily.com/zucks-farming-ventures-crypto-inspired-goat-name-revealed/"><u>Zuck's Farming Ventures: Crypto-Inspired Goat Name Revealed.</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-solving-sound-disconnection-on-live-feeds/"><u>[New] In 2024, Solving Sound Disconnection on Live Feeds</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-unlocking-obs-studios-full-creative-potential-with-top-methods/"><u>[New] In 2024, Unlocking OBS Studio's Full Creative Potential with Top Methods</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-apowersoft-free-screen-recorder-review-for-2024/"><u>[Updated] Apowersoft Free Screen Recorder Review for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-techniques-to-elevate-your-gopro-work/"><u>[Updated] Innovative Techniques to Elevate Your GoPro Work</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-seamless-video-snapshots-on-smartphones-with-optical-stabilization/"><u>[Updated] Seamless Video Snapshots on Smartphones with Optical Stabilization</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-appreciative-adjacencies-templates-for-any-spend-plan/"><u>2024 Approved Appreciative Adjacencies Templates for Any Spend Plan</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-profit-from-publishing-shopping-reviews/"><u>2024 Approved Profit From Publishing Shopping Reviews?</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-the-features-and-build-quality-of-the-anker-powercoreplus-26800-energy-bank-a-stylish-companion/"><u>Exploring the Features and Build Quality of the Anker PowerCore+ 26800 Energy Bank - A Stylish Companion</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-virtual-takeoff-the-top-6-predictive-innovations-in-its-metaverse-project/"><u>Facebook’s Virtual Takeoff: The Top 6 Predictive Innovations in Its Metaverse Project</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-creation-to-collection-metric-mastery-in-making-money-with-reels/"><u>From Creation to Collection: Metric Mastery in Making Money with Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/getting-your-hands-on-pieces-from-facebooks-class-action-money/"><u>Getting Your Hands on Pieces From Facebook’s Class-Action Money</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-xiaomi-mix-fold-3-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Xiaomi Mix Fold 3 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-your-chat-using-whatsapp-with-facebook-avatars/"><u>Maximizing Your Chat: Using WhatsApp with Facebook Avatars</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevent-data-breach-understanding-9-social-signals/"><u>Prevent Data Breach: Understanding 9 Social Signals</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dual-face-of-fb-expat-collectives/"><u>The Dual Face of FB Expat Collectives</u></a></li>
 </ul></div>
 

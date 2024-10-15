@@ -1,7 +1,7 @@
 ---
 title: "Obscuring Online Networks: FB List Hiding"
-date: 2024-09-17T21:49:20.390Z
-updated: 2024-09-22T00:46:12.427Z
+date: 2024-10-13T00:54:12.241Z
+updated: 2024-10-14T19:21:24.471Z
 tags:
   - facebook
 categories:
@@ -50,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/dfd36bdece1f9de4c3b950ac0cec685d6ee5d1281
 
 ![facebook more menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-more-menu.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![facebook settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-and-privacy.jpeg)
 
 ![facebook settings scrolled down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-scrolled-down.jpeg)
@@ -58,14 +65,14 @@ thumbnail: https://thmb.techidaily.com/dfd36bdece1f9de4c3b950ac0cec685d6ee5d1281
 
 ![facebook who can view your friends list menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-who-can-view-your-friends-list-menu.jpeg)
 
-Close
-
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Close
 
 ### Hiding Your Friends List on Desktop
 
@@ -81,22 +88,29 @@ The steps are similar on Facebook's desktop website.
 
 ![desktop facebook change friends list viewers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-change-friends-list-viewers.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  4\. Scroll to**How people find and contact you** .
 
 ![desktopfacebooksettings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktopfacebooksettings.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  5\. Click**Edit** next to**Who can see you friends list?** and change the setting to your preference.
 
  On either device, you can change your friends list from Public to only viewable by friends, only certain friends, or no one at all. This makes who can see your friends list easily customizable, and you can change the setting at any time. There are other[ways to boost your privacy on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) too if you are looking for more protection over your information.
 
  No one will receive a notification that the setting was changed or that they can't see your friends list anymore. They would only know if they try to look at your friends list from your profile and notice that they can no longer access it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Gaining Privacy on Facebook
 
@@ -117,5 +131,24 @@ The steps are similar on Facebook's desktop website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-windows-10s-complete-guide-to-saving-mov-content-with-ease/"><u>[Updated] 2024 Approved Windows 10'S Complete Guide to Saving .mov Content with Ease</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-screen-stream-showdown-who-wins-obs-or-shadowgl/"><u>[Updated] Screen Stream Showdown Who Wins, OBS or ShadowGL?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-smooth-path-from-instagram-visuals-to-mp3-sound/"><u>2024 Approved Smooth Path From Instagram Visuals to Mp3 Sound</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-disguised-user-figures/"><u>Decoding Facebook's Disguised User Figures</u></a></li>
+<li><a href="https://facebook.techidaily.com/defending-discretion-meta-against-image-sharing/"><u>Defending Discretion: Meta Against Image Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-the-digital-dissonance-against-facebook-like-platforms/"><u>Delving Into the Digital Dissonance Against Facebook-Like Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-diaries-what-instagrams-advice-to-unplug-reveals/"><u>Digital Detox Diaries: What Instagram's Advice to Unplug Reveals</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dynamics-making-friends-without-feuds/"><u>Digital Dynamics: Making Friends without Feuds</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-expression-a-double-edged-sword/"><u>Digital Expression: A Double-Edged Sword</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebook-for-event-management-successes-and-failures/"><u>Dissecting Facebook for Event Management Successes and Failures</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-methods-to-retract-online-tales-on-fb/"><u>Efficient Methods to Retract Online Tales on FB</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-12-mini-to-others-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 12 mini to others devices? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock iPhone 12 Pro Max</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-a23-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy A23 5G to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 14 Plus? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/second-generation-google-nest-hub-a-comprehensive-review-missing-just-the-camera-feature/"><u>Second Generation Google Nest Hub: A Comprehensive Review - Missing Just the Camera Feature</u></a></li>
+</ul></div>
 

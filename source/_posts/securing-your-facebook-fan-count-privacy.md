@@ -1,7 +1,7 @@
 ---
 title: Securing Your Facebook Fan Count Privacy
-date: 2024-09-12T21:48:44.137Z
-updated: 2024-09-16T20:03:26.135Z
+date: 2024-10-12T05:49:10.367Z
+updated: 2024-10-14T23:24:06.272Z
 tags:
   - facebook
 categories:
@@ -46,6 +46,13 @@ To hide the number of reactions on your posts, follow these steps.
 4. Scroll down to**News Feed Settings** and select **Reaction Preferences** . This will take you to the Reactions preferences settings page. From here, you can disable the reactions count on your posts, from posts of other users, or both.
 5. Toggle the slider next to**On posts from others** to hide the total number of reactions on Facebook posts from other users. To hide the number of reactions on your posts, toggle the slider adjacent to**On your posts** .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Hiding the Reaction Count on Facebook on the Web
 
  If you’re accessing Facebook via a browser using your PC, Mac, or mobile device, follow these steps instead.
@@ -57,15 +64,35 @@ To hide the number of reactions on your posts, follow these steps.
 
 ![The settings and privacy section on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/settings-privacy-section-facebook-web.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Your new settings are saved automatically.
 
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Understanding Facebook's Reaction Preferences
@@ -79,13 +106,6 @@ Your new settings are saved automatically.
  You will continue to see reaction counts in other places—for example, content in Facebook’s Marketplace section. And if someone wants to do the count manually, they can.
 
  If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or[permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Depressurize Your Experience on Facebook
 
@@ -104,5 +124,18 @@ Your new settings are saved automatically.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-recollection-runway-your-easy-path-to-story-archives/"><u>[New] In 2024, Recollection Runway Your Easy Path to Story Archives</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-seamless-video-recording-on-facebook-with-top-5-tools/"><u>[New] In 2024, Seamless Video Recording on Facebook with Top 5 Tools</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-streamline-your-path-to-youtubes-srt-files/"><u>[New] In 2024, Streamline Your Path to YouTube's SRT Files</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-tips-to-triumph-in-spotifys-ad-marketplace/"><u>2024 Approved Expert Tips to Triumph in Spotify's Ad Marketplace</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-y78t-phone-without-pin-by-drfone-android/"><u>How to Unlock Vivo Y78t Phone without PIN</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-transforming-digital-art-with-free-versatile-lut-tools/"><u>In 2024, Transforming Digital Art with Free, Versatile LUT Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-security-email-legitimate-at-facebookmailcom-ensuring-fb-safety/"><u>Is Security Email Legitimate at facebookmail.com, Ensuring FB Safety?</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-the-unchallenged-online-kingpin/"><u>Meta: The Unchallenged Online Kingpin</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-digital-life-dont-become-an-easy-target/"><u>Protect Your Digital Life: Don't Become an Easy Target</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-posts-automated-captions-for-facebook-photos/"><u>Revolutionizing Posts: Automated Captions for Facebook Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotlight-everyone-listing-full-groups-on-fb-posts/"><u>Spotlight Everyone: Listing Full Groups on FB Posts</u></a></li>
+</ul></div>
 

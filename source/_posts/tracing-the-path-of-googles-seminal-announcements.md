@@ -1,7 +1,7 @@
 ---
 title: Tracing the Path of Google's Seminal Announcements
-date: 2024-09-14T19:55:02.829Z
-updated: 2024-09-16T20:38:44.185Z
+date: 2024-10-13T09:59:00.634Z
+updated: 2024-10-15T06:07:39.722Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b1
 
  This lawsuit is yet to conclude, as it was only filed in late 2022\. In 2023, we may see this suit progress, or even come to a completion. The jury's still out on whether Google will have to pay this mammoth amount.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. The End of YouTube Originals
 
 ![youtube logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/utube-phone-1.jpg)
@@ -55,15 +62,22 @@ thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b1
  It seems that Google did this so that it could focus on investing in other projects, such as the Black Voice Fund and Creator Shorts Fund. However, it was evident to the public that YouTube Originals shows, such as Cobra Kai, didn't do as well as expected, which also may have played a role in Google's decision to shut down this YouTube feature in 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. The Violation of Sonos Patents
 
 ![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Both Sonos and Google produce smart speaker products, such as the Sonos One SL and[various Google Nest devices](https://www.makeuseof.com/google-nest-device-comparison/) . But in 2020, these two companies clashed heads when Sonos filed a lawsuit against Google for allegedly violating its audio technology patents. Sonos claimed in this suit that Google was copying its audio technology in the development of its smart speakers.
 
@@ -71,35 +85,22 @@ thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b1
 
  Google and Sonos have now been in a back-and-forth dispute for over two years. We may see who comes out as the true winner of these ongoing legal battles in 2023, or this may extend into further years if a conclusive verdict cannot be met.
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. A "Secret" Facebook Deal
 
 ![elemental block showing fb facebook abbreviation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/fb-block-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Google and[Facebook (now known as Meta)](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) are undoubtedly giants in the tech industry, with their combined worth coming to over a trillion dollars. But in early 2022, rumors began circulating about a possible secret deal existing between the two companies.
 
  This deal was reportedly proposed to consolidate the online advertising market and was formed in 2018, with suspicions arising around its possible existence back in 2020\. The CEO of Facebook, as it was then called, Mark Zuckerberg, and Google CEO Sundar Pichai allegedly formed the deal, though it was originally thought that the signature was solely provided by Facebook COO Sheryl Sandberg.
 
  What was particularly controversial about this deal, dubbed "Jedi Blue", is that it allegedly sought to benefit Google and Facebook in the online ad space by granting platform privileges to Facebook in Google's ad-buying auctions. In return, Facebook was asked by Google to pull back in its ad competitiveness.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. The FTC Pixel Lawsuit
 
@@ -108,6 +109,13 @@ thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b1
  In late 2022, it was revealed that the US Federal Trade Commission was suing Google and iHeartMedia Inc. for airing almost 30,000 deceptive endorsements for the Pixel 4\. These endorsements contained the voices of radio hosts discussing their positive experiences with the Pixel 4 phone when in reality they had never used it.
 
  Google settled the court charges with the FTC in late November 2022, agreeing to pay a substantial $9.4 million fine for this deceptive advertising scheme.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. The $25B UK and Netherlands Lawsuits
 
@@ -134,5 +142,18 @@ thumbnail: https://thmb.techidaily.com/c2ff7acd78dea76e7429574a96f5d83925797a8b1
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-elevate-your-snapchat-creativity-with-these-6-editors/"><u>[New] 2024 Approved Elevate Your Snapchat Creativity with These 6 Editors</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-uncapped-video-recording-utility/"><u>[Updated] 2024 Approved Uncapped Video Recording Utility</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-quitting-as-friends-on-social-media/"><u>Digital Detox: Quitting as Friends on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disruption-all-key-social-networks-downed/"><u>Digital Disruption: All Key Social Networks Downed</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-frontier-contributes-to-health-crisis-alleviation/"><u>Digital Frontier Contributes to Health Crisis Alleviation</u></a></li>
+<li><a href="https://facebook.techidaily.com/digitally-dividable-social-sites-revenue-rules/"><u>Digitally Dividable: Social Sites' Revenue Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-facebooks-updated-policy-framework-with-hub-debut/"><u>Dive Into Facebook’s Updated Policy Framework with Hub Debut</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-compatible-drivers-for-techkeys-bluetooth-adapter-optimized-for-windows-11-7-and-8/"><u>Download Compatible Drivers for Techkey's Bluetooth Adapter - Optimized for Windows 11, 7, and 8</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-realme-c51-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Realme C51 to Roku | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-poco-c55-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Poco C55 Location | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/unlock-high-res-video-leading-4k-conversion-tools-for-2024/"><u>Unlock High-Res Video Leading 4K Conversion Tools for 2024</u></a></li>
+</ul></div>
 

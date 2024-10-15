@@ -1,7 +1,7 @@
 ---
 title: Tech Titans Under Scrutiny, but Facebook Sees Worst Impact
-date: 2024-09-15T18:46:07.431Z
-updated: 2024-09-16T16:40:04.094Z
+date: 2024-10-10T01:12:10.979Z
+updated: 2024-10-14T18:11:23.187Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/64fcfc6286de188c8366d6a329563edab62ff52b5
 
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Is the Least Trusted
 
  About 44% of Americans trust Apple and Microsoft. Google does better with 48% trust. Amazon does really well comparatively, as it has the trust of a majority 53% of users (Amazon and Washington Post are both owned by Jeff Bezos). Other users either distrust these four companies or have no opinion.
@@ -46,9 +53,23 @@ thumbnail: https://thmb.techidaily.com/64fcfc6286de188c8366d6a329563edab62ff52b5
 
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is Facebook So Distrusted?
 
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
 
@@ -65,10 +86,10 @@ thumbnail: https://thmb.techidaily.com/64fcfc6286de188c8366d6a329563edab62ff52b5
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -94,5 +115,22 @@ thumbnail: https://thmb.techidaily.com/64fcfc6286de188c8366d6a329563edab62ff52b5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-masterclass-in-live-streaming-integrating-dslr-into-your-digital-space/"><u>[New] Masterclass in Live Streaming Integrating DSLR Into Your Digital Space</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-ninja-level-strategies-for-instagram-video-magic/"><u>[Updated] In 2024, Ninja-Level Strategies for Instagram Video Magic</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-honor-play-8t-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Honor Play 8T Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-perfect-panning-crossfading-in-logic-pro-x/"><u>2024 Approved Perfect Panning Crossfading in Logic Pro X</u></a></li>
+<li><a href="https://facebook.techidaily.com/december-the-final-month-for-insta-threads/"><u>December: The Final Month for Insta Threads</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-online-deceit-dispelling-10-facebook-falsehoods/"><u>Decoding Online Deceit: Dispelling 10 Facebook Falsehoods</u></a></li>
+<li><a href="https://facebook.techidaily.com/delayed-dictum-social-media-court-hesitates/"><u>Delayed Dictum: Social Media Court Hesitates</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-how-photodna-identifies-counterfeits/"><u>Demystifying How PhotoDNA Identifies Counterfeits</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decorum-or-discretion-managing-late-family-members-on-fb/"><u>Digital Decorum or Discretion? Managing Late Family Members on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-metas-strategy-delaying-full-encryption-until-2023-rollout/"><u>Dive Into Meta's Strategy: Delaying Full Encryption Until 2023 Rollout</u></a></li>
+<li><a href="https://facebook.techidaily.com/dividing-lines-in-digital-districts-with-facebook-update/"><u>Dividing Lines in Digital Districts with Facebook Update</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-samsung-galaxy-xcover-6-pro-tactical-edition-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Samsung Galaxy XCover 6 Pro Tactical Edition to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solutions-for-unfreezing-deathloop-game-on-pc-and-playstation-5/"><u>Solutions for Unfreezing Deathloop Game on PC and PlayStation 5</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-gaming-giants-tussle-with-video-powerhouse-youtube-for-2024/"><u>The Gaming Giant's Tussle with Video Powerhouse YouTube for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/top-5-techniques-for-storing-lol-battles/"><u>Top 5 Techniques for Storing LOL Battles</u></a></li>
+</ul></div>
 

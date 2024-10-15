@@ -1,7 +1,7 @@
 ---
 title: FB Profile - Change Your Significant Date Quickly
-date: 2024-09-12T22:17:32.376Z
-updated: 2024-09-16T22:37:06.349Z
+date: 2024-10-11T22:38:19.287Z
+updated: 2024-10-14T18:25:03.626Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ Follow the steps below to edit your birthday on the Facebook app.
 
 ![edit facebook birthdate](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-facebook-birthdate.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
 1. Log in to the Facebook app on your phone and navigate to your profile.
@@ -56,6 +63,13 @@ Close
 4. Tap**Edit** in the**Basic Info** section.
 5. Make your desired corrections.
 6. Check the confirmation box, scroll down, and tap**Save** .
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Change Your Facebook Birthday on the Web
 
@@ -73,19 +87,33 @@ Here's how:
 
 ![contact-info-facebook-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/contact-info-facebook-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Scroll down to where you'll find your birth date and birth year.
 
 ![change facebook birthday](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Make your desired corrections, tick the age confirmation box, and click**Save** .
 
 ![change facebook birthday 2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday-2.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Request a Birthday Change to Facebook
@@ -95,13 +123,6 @@ Here's how:
 * Click on the**contact us** link in the notification telling you that you've used up all your birthday changes.
 
 ![contact facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/contact-facebook.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Input your desired changes.
 * Select a reason for the change in the dropdown menu and click send.
@@ -129,5 +150,22 @@ Here's how:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-10-comprehensible-and-cost-free-subtitle-downloader-sites-for-2024/"><u>[New] 10 Comprehensible & Cost-Free Subtitle Downloader Sites for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-simple-steps-to-document-online-meetings-on-os-xwindows/"><u>[New] In 2024, Simple Steps to Document Online Meetings on OS X/Windows</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solved-6-fixes-for-zoom-high-cpu-usage/"><u>[Solved] 6 Fixes for Zoom High CPU Usage</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-essential-steps-to-record-your-hp-laptop-screen-efficiently/"><u>[Updated] In 2024, Essential Steps to Record Your HP Laptop Screen Efficiently</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-the-seven-finest-stardew-valley-customizations-unveiled-for-2024/"><u>[Updated] The Seven Finest Stardew Valley Customizations Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ators-guide-to-understanding-youtube-policies/"><u>A Creator’s Guide to Understanding YouTube Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-security-standards-on-fb-profile/"><u>Elevating Security Standards on FB Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-group-formation-a-facebook-perspective/"><u>Guide to Group Formation: A Facebook Perspective</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-to-label-safe-user-on-fb/"><u>Guidelines to Label Safe User on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacked-facebook-act-fast-with-these-security-tips/"><u>Hacked Facebook? Act Fast with These Security Tips</u></a></li>
+<li><a href="https://win-blog.techidaily.com/movavi-wmvavi/"><u>Movavi 官方指南：無成本網站上，如何改變WMV到AVI - 直接轉檔器</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-up-stronger-teen-facebook-privacy-measures/"><u>Setting Up Stronger Teen Facebook Privacy Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-titans-and-their-enemies-governments-role-analyzed/"><u>Tech Titans and Their Enemies: Government's Role Analyzed</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-infinix-smart-7-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-world-or-illusion-debunking-metaverse-myths/"><u>Virtual World or Illusion? Debunking Metaverse Myths</u></a></li>
+</ul></div>
 

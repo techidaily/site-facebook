@@ -1,7 +1,7 @@
 ---
 title: Tips to Ensure Facebook Only Seen by Friends
-date: 2024-10-05T20:37:16.160Z
-updated: 2024-10-09T00:25:50.395Z
+date: 2024-10-12T23:47:34.292Z
+updated: 2024-10-15T11:51:46.706Z
 tags:
   - facebook
 categories:
@@ -40,10 +40,10 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Lock Your Facebook Profile Down
@@ -69,13 +69,6 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Change Your Facebook Profile Discovery Settings
 
  Everyone gets the odd invite from random people, like people you went to high school with or mutual friends you don't really want to connect with. You've probably ignored a few invites for so long that you barely notice them on your Facebook account anymore. But it doesn't have to be that way.
@@ -91,17 +84,10 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Change Your Facebook Post Settings
@@ -116,6 +102,20 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 4. Choose the**Friends** option in the**drop-down menu** . You can also choose**Specific friends** or exclude some people by selecting the**Friends except** option. Click**Close** when you're done.
 
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Keep a Low Profile on Facebook
 
@@ -138,22 +138,20 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/updated-building-brand-identity-with-instagram-video-content/"><u>[Updated] Building Brand Identity with Instagram Video Content</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-streamline-your-virtual-adventure-with-kinemaster-tips-and-competitor-analysis/"><u>[Updated] Streamline Your Virtual Adventure with KineMaster Tips & Competitor Analysis</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-snippet-screenplay-guide/"><u>2024 Approved Snippet Screenplay Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-versatile-intro-editing-app-for-your-device-repertoire/"><u>2024 Approved Versatile Intro Editing App for Your Device Repertoire</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-visionary-logo-designs-that-define-your-podcast-brand/"><u>2024 Approved Visionary Logo Designs that Define Your Podcast Brand</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/5-tips-for-picking-your-dream-cellphone-case-with-ease/"><u>5 Tips for Picking Your Dream Cellphone Case with Ease</u></a></li>
-<li><a href="https://facebook.techidaily.com/act-now-restore-control-over-a-stolen-social-media-account/"><u>Act Now! Restore Control Over a Stolen Social Media Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/boosting-productivity-on-facebook-using-shortcuts/"><u>Boosting Productivity on Facebook Using Shortcuts</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/digital-game-chronicles-for-2024/"><u>Digital Game Chronicles for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/embarking-on-a-global-journey-the-ups-and-downs-of-fb-expat-circles/"><u>Embarking on a Global Journey: The Ups and Downs of FB Expat Circles</u></a></li>
-<li><a href="https://facebook.techidaily.com/groups-mobilize-push-1-star-rating-on-social-media-platforms/"><u>Groups Mobilize: Push 1-Star Rating on Social Media Platforms</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/maximizing-value-comprehensive-review-of-the-portable-yet-mighty-acer-predator-triton-amoled-se/"><u>Maximizing Value: Comprehensive Review of the Portable Yet Mighty Acer Predator Triton Amoled SE</u></a></li>
-<li><a href="https://program-issues.techidaily.com/optimizing-play-how-to-enhance-avatar-frontiers-of-pandora-load-times/"><u>Optimizing Play: How to Enhance Avatar: Frontiers of Pandora Load Times</u></a></li>
-<li><a href="https://facebook.techidaily.com/seamless-image-posts-with-built-in-descriptions-on-fb/"><u>Seamless Image Posts with Built-In Descriptions on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamline-your-instagram-live-experience/"><u>Streamline Your Instagram Live Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-biggest-tech-fails-an-exploration-of-22/"><u>The Biggest Tech Fails: An Exploration of '22</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-technological-missteps-unveiled/"><u>Top 5 Technological Missteps Unveiled</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-shopping-spree-simplified-the-compreenas-guide-to-creating-and-crafting-haul-vids/"><u>[New] In 2024, Shopping Spree Simplified The Compreenas Guide to Creating & Crafting Haul Vids</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-elite-air-racers-picks-top-5-fpv-eyewear-options/"><u>[Updated] In 2024, Elite Air Racers' Picks Top 5 FPV Eyewear Options</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-unleash-potential-in-online-engagement-through-zoom-screenshares-for-2024/"><u>[Updated] Unleash Potential in Online Engagement Through Zoom Screenshares for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-cutting-edge-computer-technologies-with-tomn-gear-guides/"><u>Discover Cutting-Edge Computer Technologies with Tom'n Gear Guides</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/fix-there-is-no-sound-on-twitter-videos/"><u>Fix There Is No Sound on Twitter Videos</u></a></li>
+<li><a href="https://win-net.techidaily.com/how-to-fix-your-iphone-stuck-in-boot-cycle-for-ios-versions-16-and-17/"><u>How to Fix Your iPhone Stuck in Boot Cycle for iOS Versions 16 & 17</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/humorous-harmonics-optimal-ringtone-sites/"><u>Humorous Harmonics Optimal Ringtone Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-a-facebook-retail-venture-on-the-horizon-for-local-shoppers/"><u>Is a Facebook Retail Venture on the Horizon for Local Shoppers?</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-someone-else-in-your-life-on-facebook/"><u>Is Someone Else in Your Life on Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/managing-online-reputation-block-users-on-business-fb-page/"><u>Managing Online Reputation: Block Users on Business FB Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-move-facebook-allocates-5m-amidst-rising-competition-from-substack/"><u>Strategic Move: Facebook Allocates $5M Amidst Rising Competition From Substack</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-comprehensive-guide-to-group-leave-on-social-media/"><u>The Comprehensive Guide to Group Leave on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-every-saturday-and-sunday-via-fb-shops/"><u>Unlock Every Saturday and Sunday via FB Shops</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-disclosed-privacy-fears-in-facebook-expose/"><u>Who Disclosed Privacy Fears in Facebook Expose</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/zero-price-to-zero-limit-lifetime-language-access/"><u>Zero Price to Zero Limit - Lifetime Language Access</u></a></li>
 </ul></div>
 

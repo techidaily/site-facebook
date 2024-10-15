@@ -1,7 +1,7 @@
 ---
 title: "Renewable Rush at FB: Complete Energy Overhaul for the Future"
-date: 2024-10-02T22:34:34.183Z
-updated: 2024-10-09T06:24:23.208Z
+date: 2024-10-11T22:16:31.541Z
+updated: 2024-10-15T12:35:25.721Z
 tags:
   - facebook
 categories:
@@ -41,16 +41,10 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Has Already Set Its Next Environmental Target
@@ -58,16 +52,10 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
@@ -95,19 +83,18 @@ So, things may, finally, be moving in the right direction.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-enriching-slides-video-incorporation-from-youtube/"><u>[New] In 2024, Enriching Slides Video Incorporation From YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-facebook-marketplace-scams-and-how-to-avoid-them/"><u>5 Facebook Marketplace Scams and How to Avoid Them</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-changes-that-have-redirected-online-community-gatherings/"><u>6 Changes That Have Redirected Online Community Gatherings</u></a></li>
-<li><a href="https://facebook.techidaily.com/activating-and-benefitting-from-the-sleep-mode-on-messenger-kids/"><u>Activating and Benefitting From the Sleep Mode on Messenger Kids</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-fun-and-safe-combinations-on-facebook-real/"><u>Are Fun and Safe Combinations on Facebook Real?</u></a></li>
-<li><a href="https://facebook.techidaily.com/combatting-online-fraud-action-needed-from-facebook-and-google/"><u>Combatting Online Fraud: Action Needed From Facebook & Google</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discover-the-ideal-spots-to-purchase-your-next-smartphone/"><u>Discover the Ideal Spots to Purchase Your Next Smartphone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/essential-insights-into-hands-free-interaction/"><u>Essential Insights Into Hands-Free Interaction</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-change-location-on-facebook-dating-for-your-honor-100-pro-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Honor 100 Pro | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-resolve-your-audacity-error-when-trying-to-play-sounds-top-5-solutions/"><u>How to Resolve Your Audacity Error When Trying to Play Sounds: Top 5 Solutions</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/immerse-yourself-in-5-ingenious-online-detection-games-utilizing-cutting-edge-artificial-intelligence-solutions/"><u>Immerse Yourself in 5 Ingenious Online Detection Games Utilizing Cutting-Edge Artificial Intelligence Solutions</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-methods-for-time-loop-illusions/"><u>In 2024, Innovative Methods for Time Loop Illusions</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/mastering-the-nuances-of-high-resolution-vr-recordings/"><u>Mastering the Nuances of High-Resolution VR Recordings</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-5-benefits-of-investing-in-your-own-laser-engraving-machine/"><u>Top 5 Benefits of Investing in Your Own Laser Engraving Machine</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-rapid-audience-expansion-without-breaking-the-bank/"><u>[Updated] 2024 Approved Rapid Audience Expansion Without Breaking the Bank</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-5-cutting-edge-streamers-camera-recommendations-for-2024/"><u>[Updated] 5 Cutting-Edge Streamers' Camera Recommendations for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-shorts-guide-what-is-it-and-how-to-make-shorts-video/"><u>[Updated] In 2024, YouTube Shorts Guide What Is It and How To Make Shorts Video?</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-experience-via-shortcut-customization/"><u>Enhancing Your Facebook Experience via Shortcut Customization</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-big-secret-an-examination-of-its-files/"><u>Facebook's Big Secret: An Examination of Its Files</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-infinix-note-30-vip-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Infinix Note 30 VIP FRP</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-motorola-edge-40-pro-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Motorola Edge 40 Pro Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-xiaomi-redmi-13c-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Xiaomi Redmi 13C 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-vivo-y36i-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Vivo Y36i Phone?</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-tecno-camon-20-premier-5g-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Tecno Camon 20 Premier 5G</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-rated-diamond-cut-engagement-ring-choices-beyond-traditional-al-alternative/"><u>Top Rated Diamond Cut Engagement Ring Choices : Beyond Traditional Al Alternative</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-messengers-without-a-facebook-account/"><u>Unlocking Messengers Without a Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/winning-back-your-money-requesting-a-refund-on-facebook/"><u>Winning Back Your Money: Requesting a Refund on Facebook</u></a></li>
 </ul></div>
 

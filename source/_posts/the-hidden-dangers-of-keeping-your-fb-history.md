@@ -1,7 +1,7 @@
 ---
 title: The Hidden Dangers of Keeping Your FB History
-date: 2024-10-08T02:01:36.521Z
-updated: 2024-10-08T17:51:10.963Z
+date: 2024-10-07T21:59:20.083Z
+updated: 2024-10-14T17:34:01.706Z
 tags:
   - facebook
 categories:
@@ -26,16 +26,16 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 * [Why You Should Delete Your Facebook Watch History](#why-you-should-delete-your-facebook-watch-history)
 
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Key Takeaways
@@ -60,22 +60,22 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 
 ![screenshot showing facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-menu-page.jpg)
 
-![screenshot showing facebook activity log page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-facebook-activity-log-page-on-android.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![screenshot showing facebook activity log page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-facebook-activity-log-page-on-android.jpg)
 
 ![screenshot showing watched videos page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-watched-videos-page-on-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -95,15 +95,22 @@ Close
  Go to[Facebook.com](https://www.facebook.com/) and open your profile.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 2. Click on the**three-dot icon** , then click**Activity log** .
 3. ![profile page screenshot on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/profile-page-screenshot-on-facebook-web-desktop.jpg)  
  Click on**Videos you’ve watched** .
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 4. ![screenshot showing activity log page on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-page-on-facebook-web.jpg)  
  You will see a list of all the videos you have watched on Facebook. To clear your watch history, click on**Clear Video Watch History** .
@@ -118,19 +125,6 @@ Close
 4. ![screenshot showing activity log sidebar on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-sidebar-on-facebook.jpg)  
  You can then clear any videos you find there.  
 ![live videos youve watched page screenshot on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/live-videos-youve-watched-page-screenshot-on-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Why You Should Delete Your Facebook Watch History
 
@@ -157,20 +151,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-sync-your-sound-instagrams-musical-world/"><u>[New] 2024 Approved Sync Your Sound Instagram's Musical World</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-a-compreayer-study-of-magix-image-suite/"><u>[Updated] In 2024, A Compreayer Study of MAGIX Image Suite</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-audit-your-channels-financial-success/"><u>[Updated] In 2024, Audit Your Channel's Financial Success</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-dive-into-broadcasting-proficiency-with-obs-on-youtube-and-twitch/"><u>[Updated] In 2024, Dive Into Broadcasting Proficiency with OBS on YouTube and Twitch</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-streamline-multimedia-with-pip-in-apple-browsers/"><u>[Updated] Streamline Multimedia with PIP in Apple Browsers</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-trending-image-memes-unveiling-the-real-story/"><u>2024 Approved Trending Image Memes Unveiling the Real Story</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-60-minutes-whistleblowers-claims/"><u>Decoding the 60 Minutes Whistleblower's Claims</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dialogue-deciphered-a-guide-to-understanding-30-abbreviations/"><u>Digital Dialogue Deciphered: A Guide to Understanding 30 Abbreviations</u></a></li>
-<li><a href="https://facebook.techidaily.com/discreet-discourse-on-fb-utilizing-archive-for-secrecy/"><u>Discreet Discourse on FB: Utilizing Archive for Secrecy</u></a></li>
-<li><a href="https://facebook.techidaily.com/earn-prestigious-badge-via-metas-investment/"><u>Earn Prestigious Badge via Metas Investment</u></a></li>
-<li><a href="https://facebook.techidaily.com/easy-steps-for-a-seamless-disconnection-from-digital-groups/"><u>Easy Steps for a Seamless Disconnection From Digital Groups</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-protecting-your-privacy-how-to-remove-apple-id-from-apple-iphone-xs-max-by-drfone-ios/"><u>In 2024, Protecting Your Privacy How To Remove Apple ID From Apple iPhone XS Max</u></a></li>
-<li><a href="https://facebook.techidaily.com/three-fears-from-metas-social-empire/"><u>Three Fears From Meta’s Social Empire</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ubuntu-terminal-power-up-using-shellgpt-for-gpt-conversations/"><u>Ubuntu Terminal Power-Up: Using ShellGPT for GPT Conversations</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-potential-in-groups-with-targeted-fb-queries/"><u>Unlock Potential in Groups with Targeted FB Queries</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-enhancing-visuals-in-remote-collaborations-with-google-meet/"><u>[Updated] 2024 Approved Enhancing Visuals in Remote Collaborations with Google Meet</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-tiktok-mastery-on-chrome-android-iphone-platforms/"><u>[Updated] 2024 Approved TikTok Mastery on Chrome, Android, iPhone Platforms</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-kickstart-a-successful-charity-contest-via-social-media-for-2024/"><u>[Updated] Kickstart a Successful Charity Contest via Social Media for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-from-iphone-12-pro-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication From iPhone 12 Pro? 5 Tips You Must Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-choices-at-the-click-of-a-button-for-fb-feeds/"><u>Making Choices at the Click of a Button for FB Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-during-outages-a-survival-guide/"><u>Social Networking During Outages: A Survival Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-scope-scouting-discovering-profile-and-group-links/"><u>Social Scope Scouting: Discovering Profile & Group Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-updating-fb-contacts/"><u>Step-by-Step Guide to Updating FB Contacts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/upside-down-visuals-instagrams-guide-to-flipping-and-sharing-videos/"><u>Upside Down Visuals Instagram's Guide to Flipping & Sharing Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up/"><u>What Is Big Tech and Why Is the Government Trying to Break It Up?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Major Stakeholders Owning Facebook
-date: 2024-10-08T00:06:42.686Z
-updated: 2024-10-08T22:34:33.741Z
+date: 2024-10-11T03:11:58.829Z
+updated: 2024-10-14T23:58:23.083Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Who Owns Facebook Now?
@@ -46,10 +46,16 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
@@ -63,10 +69,10 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Did Facebook Rebrand to Meta?
@@ -78,10 +84,10 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Zuckerberg Still (Largely) Owns Meta
@@ -105,20 +111,18 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-pristine-palette-aligner/"><u>[New] Pristine Palette Aligner</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-simple-guide-making-your-windows-computer-speak-like-a-fish/"><u>[New] The Simple Guide Making Your Window's Computer Speak Like a Fish</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-elevate-views-with-science-backed-timing-tactics-for-2024/"><u>[Updated] Elevate Views with Science-Backed Timing Tactics for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-shield-against-swings-understanding-stablecoin-mechanisms/"><u>A Shield Against Swings: Understanding Stablecoin Mechanisms</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ace-the-rail-zombie-chase-top-tips-and-techniques-for-subway-surfers/"><u>Ace the Rail Zombie Chase: Top Tips and Techniques for 'Subway Surfers'</u></a></li>
-<li><a href="https://facebook.techidaily.com/combating-coronavirus-myths-on-online-communities/"><u>Combating Coronavirus Myths on Online Communities</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/diy-tech-support-corrective-steps-for-windows-bootmgr-errors/"><u>DIY Tech Support: Corrective Steps for Windows BOOTMGR Errors</u></a></li>
-<li><a href="https://facebook.techidaily.com/hidden-technological-evolutions-that-changed-the-game/"><u>Hidden Technological Evolutions That Changed The Game</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-get-a-deceased-family-members-facebook-account-memorialized-or-removed/"><u>How to Get a Deceased Family Member's Facebook Account Memorialized or Removed</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Infinix Hot 40i | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-effortless-video-editing-on-windows-microsoft-video-editor-review/"><u>In 2024, Effortless Video Editing on Windows Microsoft Video Editor Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-facebooks-reel-creation-essential-tips-for-success/"><u>Mastering Facebook's Reel Creation: Essential Tips for Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-digital-gathering-detection/"><u>Mastering the Art of Digital Gathering Detection</u></a></li>
-<li><a href="https://facebook.techidaily.com/professional-growth-on-social-networking-sites-a-guide/"><u>Professional Growth on Social Networking Sites: A Guide</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1722123230450-revolutionize-how-you-find-answers-bings-cutting-edge-ai-integration-ready-for-smartphones/"><u>Revolutionize How You Find Answers: Bing's Cutting-Edge AI Integration Ready for Smartphones</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-highlighting-the-best-ios-psp-emulators-1-5/"><u>[New] 2024 Approved Highlighting the Best iOS PSP Emulators #1-5</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-discover-the-top-3-alternative-video-portals/"><u>[Updated] In 2024, Discover the Top 3 Alternative Video Portals</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/efficiency-in-file-handling-windows-edition-max-156/"><u>Efficiency in File Handling: Windows Edition (Max 156)</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-but-underappreciated-tech-developments-top-4-highlights/"><u>Essential but Underappreciated Tech Developments - Top 4 Highlights</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-core-framework-concept/"><u>Exploring Facebook's Core Framework Concept</u></a></li>
+<li><a href="https://facebook.techidaily.com/hot-off-the-press-fbs-latest-videos/"><u>Hot Off The Press: FB's Latest Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-streamline-conversion-selecting-the-top-10-free-tools/"><u>In 2024, Streamline Conversion Selecting the Top 10 Free Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebranding-in-the-social-realm-update-your-profile-pic/"><u>Rebranding in the Social Realm: Update Your Profile Pic</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/samsung-galaxy-z-flip-6-unveiling-the-costs-launch-timeline-latest-updates-and-key-attributes/"><u>Samsung Galaxy Z Flip 6 - Unveiling the Costs, Launch Timeline, Latest Updates & Key Attributes</u></a></li>
+<li><a href="https://media-tips.techidaily.com/simple-steps-how-to-quickly-access-video-captions-and-insert-them-into-your-content/"><u>Simple Steps: How to Quickly Access Video Captions & Insert Them Into Your Content</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-tutorial-on-transferring-dvd-contents-into-the-videots-folder/"><u>Step-by-Step Tutorial on Transferring DVD Contents Into the Video_Ts Folder</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-meta-direct-path-to-social-network-managers/"><u>Unveiling Meta: Direct Path to Social Network Managers</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-whitelisting/"><u>What Is Facebook Whitelisting?</u></a></li>
 </ul></div>
 

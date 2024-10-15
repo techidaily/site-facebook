@@ -1,7 +1,7 @@
 ---
 title: Oculus Pioneers Next Level Personalized Simulations
-date: 2024-09-12T19:40:36.240Z
-updated: 2024-09-16T22:37:28.272Z
+date: 2024-10-13T19:25:53.993Z
+updated: 2024-10-14T22:02:33.738Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/d03b713b6f6bb665862fd62a3d2bf27a022b75c76
 
  With the new update, the Editor allows users to view their Avatar's legs as well. Users can select their desired clothing for the legs, although it won't be visible outside the Editor. Oculus mentioned that "elsewhere in VR, avatars will only display from the waist up."
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Updated Avatars Available For a Few Games
 
  In the blog post, Oculus mentioned that on the release date, new Avatars in a handful of games only—Epic Roller Coasters, Poker Stars VR, and Topgolf with Pro Putt. Naturally, the list of supported games will expand soon. Currently, Facebook has confirmed the new Avatars will soon be supported in Synth Riders, ForeVR Bowling, and Facebook Horizon.
@@ -43,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/d03b713b6f6bb665862fd62a3d2bf27a022b75c76
  Related:[Is Virtual Reality Really the Future of Everything?](https://www.makeuseof.com/virtual-reality-future-of-everything/)
 
  The company also plans to make these Avatars available on platforms such as the Facebook app, Messenger, and Instagram.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The New Avatars Come With Better Movement
 
@@ -65,18 +79,24 @@ thumbnail: https://thmb.techidaily.com/d03b713b6f6bb665862fd62a3d2bf27a022b75c76
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-overwatch-playback-techniques-explained/"><u>[New] In 2024, Overwatch Playback Techniques Explained</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/treaming-smarts-engaging-viewers-on-multiple-networks/"><u>[New] Streaming Smarts Engaging Viewers on Multiple Networks</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-enhance-your-channels-voice-dive-into-the-world-of-banner-makers-apps-for-2024/"><u>[Updated] Enhance Your Channel's Voice Dive Into the World of Banner Makers (Apps) for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-mastering-photo-capture-techniques-of-smart-hdr-3-and-4-modules-for-2024/"><u>[Updated] Mastering Photo Capture Techniques of Smart HDR 3 & 4 Modules for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-of-the-lenovo-thinkpad-x12-detachable-best-for-hybrid-use-and-unmatched-keys/"><u>Comprehensive Review of the Lenovo ThinkPad X12 Detachable: Best for Hybrid Use & Unmatched Keys</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/effortless-prompt-crafting-a-browser-extension-for-chatgpt-users/"><u>Effortless Prompt Crafting: A Browser Extension for ChatGPT Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-streamlines-your-conversations-upgraded-messaging-on-instagram-and-messenger-awaits/"><u>FB Streamlines Your Conversations: Upgraded Messaging on Instagram & Messenger Awaits</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-alerting-about-child-users-in-virtual-spaces/"><u>Guidelines for Alerting About Child Users in Virtual Spaces</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-xiaomi-redmi-note-12t-pro-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Xiaomi Redmi Note 12T Pro Location | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/insta-tiktik-mastery-uniting-two-social-giants/"><u>Insta-TikTik Mastery Uniting Two Social Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-urges-step-back-from-screen-embrace-life/"><u>Instagram Urges: Step Back From Screen, Embrace Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconsidering-ties-unfriending-someone-from-fb/"><u>Reconsidering Ties: Unfriending Someone From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/reject-the-auto-suggestions-on-social-platforms/"><u>Reject the Auto-Suggestions on Social Platforms</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/revolutionizing-your-brand-with-the-top-30-fb-hacks-all-levels/"><u>Revolutionizing Your Brand with the Top 30 FB Hacks (All Levels)</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-mastery-nurturing-professional-client-relations-on-fb/"><u>Social Media Mastery: Nurturing Professional Client Relations on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-whispers-predicting-facebooks-woes/"><u>The Silent Whispers Predicting Facebook's Woes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-strategy-for-departing-facebook-communities/"><u>The Strategy for Departing Facebook Communities</u></a></li>
+</ul></div>
 

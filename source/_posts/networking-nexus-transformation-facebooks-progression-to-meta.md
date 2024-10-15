@@ -1,7 +1,7 @@
 ---
 title: "Networking Nexus Transformation: Facebook's Progression to Meta"
-date: 2024-09-12T17:00:48.890Z
-updated: 2024-09-16T23:40:39.082Z
+date: 2024-10-07T16:00:23.112Z
+updated: 2024-10-14T21:31:49.525Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/549ca928829525c9c386345bc34f0e1c4ffcbb461
 
  By December 2005, Facebook had six million users. It also had several new features, including the infamous Facebook Wall and News Feed. In April 2006, Facebook was out on mobile, and in September, they made the platform available to everyone on the internet of age 13 or above.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2007–2009: The Inception of the Facebook Like Button
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
@@ -60,13 +67,6 @@ thumbnail: https://thmb.techidaily.com/549ca928829525c9c386345bc34f0e1c4ffcbb461
 
 ![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Image Credit: Temitiman/[Shutterstock](https://www.shutterstock.com/image-photo/magelang-central-java-indonesia-april-29-1383449651)
 
  Soon after the IPO, investors accused Facebook of misleading them about its true state while revealing the truth to only a few handpicked clients. This resulted in over 40 lawsuits and a $35 million settlement.
@@ -76,15 +76,22 @@ thumbnail: https://thmb.techidaily.com/549ca928829525c9c386345bc34f0e1c4ffcbb461
  On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know[how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2016–2018: Controversies and Scandals
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
@@ -96,16 +103,16 @@ thumbnail: https://thmb.techidaily.com/549ca928829525c9c386345bc34f0e1c4ffcbb461
 
  The scandal led Zuckerberg and Facebook COO Sheryl Sandberg to testify before Congress. And the company paid a fine of £500,000 to the UK's Information Commissioner's Office for its part in the scandal.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2019–2021: Rebranding to Meta Backfires
 
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
 
@@ -116,6 +123,13 @@ thumbnail: https://thmb.techidaily.com/549ca928829525c9c386345bc34f0e1c4ffcbb461
  Unsurprisingly, this led a chunk of users to switch to other apps. However, barely affected by this, Facebook realized a peak market value of $1 trillion on June 28, 2021\. In October, a[global outage of Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) resulted in a loss of $6 billion.
 
  Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2022 and Beyond: Layoffs, Chaos, and Recovery
 
@@ -148,5 +162,21 @@ What comes next? Massive layoffs.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-from-fresh-to-famous-elevating-your-channels-views-and-youtube-subs/"><u>[New] In 2024, From Fresh to Famous Elevating Your Channels Views & Youtube Subs</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-keep-your-identity-under-wraps-while-livestreaming/"><u>[New] Keep Your Identity Under Wraps While Livestreaming</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-the-secrets-of-firefoxs-pip-mode/"><u>2024 Approved Unlocking the Secrets of Firefox's PIP Mode</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/editing-epub-files-using-microsoft-word-a-comprehensive-guide/"><u>Editing EPUB Files Using Microsoft Word: A Comprehensive Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-motorola-moto-e13-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Motorola Moto E13 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-transform-your-images-with-easy-color-changes/"><u>In 2024, Transform Your Images with Easy Color Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-vk-a-journey-through-russias-internet-culture/"><u>Inside VK: A Journey Through Russia's Internet Culture</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-2023-update-facebooks-new-landscape-explained-for-2024/"><u>The 2023 Update Facebook's New Landscape Explained for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-algorithm-of-affluence-for-social-sites/"><u>The Algorithm of Affluence for Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silver-lining-in-the-social-web-discovering-9-reasons-to-engage/"><u>The Silver Lining in the Social Web: Discovering 9 Reasons to Engage</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-enhancing-account-security-via-2fa/"><u>The Ultimate Guide to Enhancing Account Security via 2FA</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-weighing-up-the-usefulness-of-facebook-events/"><u>The Ultimate Guide to Weighing Up the Usefulness of Facebook Events</u></a></li>
+<li><a href="https://fox-search.techidaily.com/tutorial-completo-sobre-como-desactivar-una-eliminacion-en-la-computadora-guia-de-2024/"><u>Tutorial Completo Sobre Cómo Desactivar Una Eliminación en La Computadora (Guía De 2024)</u></a></li>
+<li><a href="https://facebook.techidaily.com/unifying-your-gaming-experience-and-online-presence-via-xbox/"><u>Unifying Your Gaming Experience and Online Presence via Xbox</u></a></li>
+</ul></div>
 

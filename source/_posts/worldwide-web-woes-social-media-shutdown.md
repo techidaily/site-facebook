@@ -1,7 +1,7 @@
 ---
 title: "Worldwide Web Woes: Social Media Shutdown"
-date: 2024-09-18T22:13:35.770Z
-updated: 2024-09-22T00:15:34.169Z
+date: 2024-10-13T01:57:54.184Z
+updated: 2024-10-15T10:09:26.081Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/829f3e424c1b3b1991d559a20a197c8257f098aee
 
  So, why were Facebook's apps down? And what caused this epic outage?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Facebook Went Down for Six Hours
 
  Facebook's platforms are now back up and running, and Facebook has since apologized and offered an explanation for the outage. The social media platform has blamed the outage on a "faulty configuration change."
@@ -53,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/829f3e424c1b3b1991d559a20a197c8257f098aee
  Facebook has vowed to learn a lesson from this outage, with Janardhan concluding:
 
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
 
@@ -73,12 +87,22 @@ thumbnail: https://thmb.techidaily.com/829f3e424c1b3b1991d559a20a197c8257f098aee
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-top-picks-ultimate-portable-devices-for-cutting-edge-editing/"><u>[New] 2024 Approved Top Picks Ultimate Portable Devices for Cutting-Edge Editing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-the-directors-eye-15-essential-camera-shots-explained/"><u>[New] In 2024, The Director's Eye 15 Essential Camera Shots Explained</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-13-simple-ways-to-document-webinars-cost-free/"><u>[Updated] 2024 Approved 13 Simple Ways to Document Webinars Cost-Free</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-guide-to-selecting-8-best-instagram-scheduler-tools/"><u>[Updated] The Ultimate Guide to Selecting 8 Best Instagram Scheduler Tools</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-streamlined-approaches-for-zoom-utility-on-chromebook/"><u>2024 Approved Streamlined Approaches for Zoom Utility on Chromebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-keys-to-protecting-personal-data-on-facebooks-network/"><u>5 Keys to Protecting Personal Data on Facebook's Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-ideal-planning-platforms-for-content-release-management/"><u>7 Ideal Planning Platforms for Content Release Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-in-digital-employment-advertising/"><u>Best Practices in Digital Employment Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-up-with-spotify-remove-it-from-facebook/"><u>Break Up with Spotify: Remove It From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/career-development-tips-integrating-facebook-into-your-plan/"><u>Career Development Tips: Integrating Facebook Into Your Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/connected-culture-facebooks-journey-to-meta-universe/"><u>Connected Culture: Facebook’s Journey to Meta Universe</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/gemini-by-google-innovating-artificial-intelligence-and-its-current-pursuits/"><u>Gemini by Google: Innovating Artificial Intelligence and Its Current Pursuits</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-samsung-galaxy-f34-5g-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Samsung Galaxy F34 5G Phone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Nokia C32? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-disk-errors-in-windows/"><u>Resolving Disk Errors in Windows</u></a></li>
+</ul></div>
 

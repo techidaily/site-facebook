@@ -1,7 +1,7 @@
 ---
 title: Methods for Severing Instagram Ties with FB
-date: 2024-09-12T18:53:14.480Z
-updated: 2024-09-16T22:20:14.729Z
+date: 2024-10-08T16:19:27.538Z
+updated: 2024-10-15T00:20:22.254Z
 tags:
   - facebook
 categories:
@@ -50,6 +50,13 @@ Close
 
  Removing your Facebook or Instagram account from the Accounts Center is not the same as[deleting or deactivating your Instagram account](https://www.makeuseof.com/tag/deactivate-delete-instagram-account/) . You will need to follow different steps to do this.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Remove Instagram Posts From Facebook
 
  If you want to remove your existing Instagram posts from your Facebook profile, there are two ways you could go about it.
@@ -66,7 +73,21 @@ Close
 
 ![facebook activity log page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-activity-log-page-screenshot.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook manage post page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-manage-post-page-screenshot.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -78,6 +99,13 @@ Close
 
  You'll see all the posts you've shared from other apps. Mark all the ones posted from Instagram and tap**Trash** at the bottom right of your screen. Facebook will move all the photos to trash and automatically delete them after 30 days.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What to Know Before Disconnecting Your Accounts
 
 ![Instagram on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/instagram-on-laptop.jpg)
@@ -87,13 +115,6 @@ Close
  However, connecting your accounts also means sharing more data between the two platforms. This can affect your privacy and control over who sees your personal information and content. You may also prefer to have different audiences on each platform and tailor your content accordingly.
 
  Disconnecting your Instagram account from Facebook enhances your privacy and allows for more independent account management across the platforms. However, you will lose some of the convenience and features that come with syncing your accounts, such as cross-sharing and login options.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Should You Unsync Your Facebook and Instagram Accounts?
 
@@ -114,5 +135,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-a-comprehensive-tutorial-on-vimeo-in-insta/"><u>[New] 2024 Approved A Comprehensive Tutorial on Vimeo in Insta</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-upgrade-your-youtube-bio-with-pro-templates/"><u>[New] 2024 Approved Upgrade Your Youtube Bio with Pro Templates</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-innovative-recording-screen-and-camera-with-vimeo-record-for-2024/"><u>[Updated] Innovative Recording Screen & Camera with Vimeo Record for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-beginners-guide-top-10-easy-to-fly-drones/"><u>2024 Approved Beginner's Guide Top 10 Easy-to-Fly Drones</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/al-divas-top-ten-gamers-on-youtube-for-2024/"><u>Digital Divas Top Ten Gamers on YouTube for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/from-amateur-to-professional-iphone-filmmaking-8-key-tips/"><u>From Amateur to Professional iPhone Filmmaking (8 Key Tips)</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-evasive-language-within-fbc-discussions/"><u>Interpreting Evasive Language Within FBC Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivating-trumps-virtual-footprint/"><u>Reactivating Trumps' Virtual Footprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sites-converging-facebook-meets-instagram/"><u>Social Sites Converging: Facebook Meets Instagram</u></a></li>
+<li><a href="https://media-tips.techidaily.com/step-by-step-guide-maintaining-high-quality-audio-in-mp3-editing-on-any-device/"><u>Step-by-Step Guide: Maintaining High-Quality Audio in MP3 Editing on Any Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-4-tricks-for-finding-exciting-online-communities/"><u>Top 4 Tricks for Finding Exciting Online Communities</u></a></li>
+</ul></div>
 

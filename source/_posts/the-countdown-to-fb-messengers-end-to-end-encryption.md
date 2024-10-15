@@ -1,7 +1,7 @@
 ---
 title: The Countdown to FB Messenger's End-to-End Encryption
-date: 2024-09-16T19:31:49.326Z
-updated: 2024-09-21T22:57:03.121Z
+date: 2024-10-10T16:33:40.528Z
+updated: 2024-10-14T22:07:02.298Z
 tags:
   - facebook
 categories:
@@ -32,9 +32,23 @@ thumbnail: https://thmb.techidaily.com/f52859b8cd9dd422cf0c712696f19c9a8d2ea9a54
 
  However, Kent added that the work was a long-term project. At the earliest, users should expect the feature to be released in 2022.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Facebook Messenger Chats Are Yet to Be Encrypted
 
 ![Photo of the Facebook Messenger app logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-messenger-logo.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  One thing all Facebook users can attest to is how easy Messenger is to access; you can easily log into your account from any device with an internet connection. Facebook even allows you to log into your account on multiple devices simultaneously.
 
@@ -45,6 +59,13 @@ thumbnail: https://thmb.techidaily.com/f52859b8cd9dd422cf0c712696f19c9a8d2ea9a54
  You can only access most of these from with one device at a time, and all old messages are lost when there’s a device switch, unless the chats were backed up. And in that case, they’re no longer end-to-end encrypted.
 
  Facebook’s drive to keep the platform easily accessible is why it is yet to offer end-to-end encryption by default on Messenger.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Should You Be Worried About the Privacy of Your Messenger Chats?
 
@@ -65,12 +86,20 @@ thumbnail: https://thmb.techidaily.com/f52859b8cd9dd422cf0c712696f19c9a8d2ea9a54
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-master-your-media-free-fb-video-conversion-techniques/"><u>[New] 2024 Approved Master Your Media - Free FB Video Conversion Techniques</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-digital-dollars-crafting-an-online-wealth-journey-for-2024/"><u>[New] Digital Dollars Crafting an Online Wealth Journey for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-getting-started-with-windows-10-sound-recording/"><u>[New] Getting Started with Windows 10 Sound Recording</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-elevating-design-skills-for-career-advancement/"><u>[Updated] Elevating Design Skills for Career Advancement</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-on-the-best-time-for-fb-visual-update/"><u>Deciding on the Best Time for Fb Visual Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-purpose-of-facebooks-regulatory-body/"><u>Deciphering the Purpose of Facebook's Regulatory Body</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-authentic-relationships-without-facebooks-influence/"><u>Discover Authentic Relationships Without Facebook's Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-perks-of-taking-a-digital-pause/"><u>Discover the Perks of Taking a Digital Pause</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-samsung-galaxy-s23-fe-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-realme-v30t-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Realme V30T</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-ispoofer-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Samsung Galaxy M34? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-youtube-video-shooting-equipment-choosing-guide/"><u>In 2024, YouTube Video Shooting Equipment Choosing Guide</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/personalized-book-selection-simplified-top-5-ai-driven-literature-services/"><u>Personalized Book Selection Simplified: Top 5 AI-Driven Literature Services</u></a></li>
+</ul></div>
 

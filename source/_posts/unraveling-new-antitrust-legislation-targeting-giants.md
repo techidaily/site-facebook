@@ -1,7 +1,7 @@
 ---
 title: Unraveling New Antitrust Legislation Targeting Giants
-date: 2024-09-11T16:08:42.610Z
-updated: 2024-09-16T21:59:20.902Z
+date: 2024-10-12T17:29:20.089Z
+updated: 2024-10-15T06:54:37.089Z
 tags:
   - facebook
 categories:
@@ -38,9 +38,23 @@ thumbnail: https://thmb.techidaily.com/08b59308ea1479863a214168a367629cf0b139333
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -53,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/08b59308ea1479863a214168a367629cf0b139333
  In short, this antitrust bill will ban companies from preferring their own products or services unfairly on their marketplace platforms. "Choosing" winners or losers will become a thing of the past.
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
@@ -86,22 +107,15 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
@@ -135,5 +149,20 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-pioneering-quests-and-thrills-top-10-game-wonders-top-10/"><u>[New] 2024 Approved Pioneering Quests & Thrills – Top 10 Game Wonders (Top 10)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-hairstyles-for-visual-gurus/"><u>[Updated] Hairstyles for Visual Gurus</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-ultimate-monitor-guide-transform-your-xbox-series-x-experience-today/"><u>[Updated] In 2024, The Ultimate Monitor Guide Transform Your Xbox Series X Experience Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/equestrian-societies-shun-internet-sessions/"><u>Equestrian Societies Shun Internet Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolving-identity-online-changing-your-facebook-username/"><u>Evolving Identity Online: Changing Your Facebook Username</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-home-and-feeds-tabs-what-you-need-to-know/"><u>Facebook's New Home and Feeds Tabs: What You Need to Know</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-reviving-the-past-flipping-iphone-video-streams/"><u>In 2024, Reviving the Past Flipping iPhone Video Streams</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-friends-out-of-your-facebook-replay-time/"><u>Keep Friends Out of Your Facebook Replay Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/restoring-accessibility-of-your-deactivated-facebook-account/"><u>Restoring Accessibility of Your Deactivated Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-guide-personalizing-your-fb-browsing-journey/"><u>Simplified Guide: Personalizing Your Fb Browsing Journey</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-guide-getting-farming-simulator-ks-22-running-smoothly-again/"><u>Ultimate Guide: Getting Farming Simulator ˈɛks 22 Running Smoothly Again</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/unveiling-the-top-10-facebook-video-platforms-for-2024/"><u>Unveiling the Top 10 Facebook Video Platforms for 2024</u></a></li>
+<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-oneplus-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from OnePlus</u></a></li>
+</ul></div>
 

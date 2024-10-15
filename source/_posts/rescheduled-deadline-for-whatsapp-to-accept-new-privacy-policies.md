@@ -1,7 +1,7 @@
 ---
 title: Rescheduled Deadline for WhatsApp to Accept New Privacy Policies
-date: 2024-09-14T22:31:44.747Z
-updated: 2024-09-16T17:23:42.752Z
+date: 2024-10-10T19:57:16.584Z
+updated: 2024-10-15T01:03:27.884Z
 tags:
   - facebook
 categories:
@@ -36,13 +36,40 @@ thumbnail: https://thmb.techidaily.com/9b6e560f5ae8bf8946a31c995d6c73a4779b962b2
 
  For the past few weeks, WhatsApp has been showing a notification inside its app to provide more information about its privacy policy. It is also sending reminders if you have not accepted its new privacy policy. Eventually, if you don't accept the privacy policy, the reminder from WhatsApp will become persistent.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Your WhatsApp Account Functionality Will Be Limited
 
 ![WhatsApp running on an iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/india-investigating-whatsapp-featured.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Once a persistent reminder is shown, the functionality of your WhatsApp account will be limited. Initially, you'll only lose access to your chat list. You can, however, still answer incoming video or voice calls. You'll also be able to read and respond to messages or call back a missed voice or video call via notifications. In an[FAQ](https://faq.whatsapp.com/general/security-and-privacy/what-happens-when-our-terms-and-privacy-policy-updates-take-effect/?lang=en) , WhatsApp says the limitations will not apply to everyone at the same time.
 
  A few weeks after your WhatsApp account's functionality is limited, you will lose the ability to receive incoming calls and messages. At this point, your WhatsApp account will basically be of no use as you won't be able to send or receive messages.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Inactive WhatsApp Accounts Are Deleted After 120 Days
 
@@ -63,12 +90,23 @@ thumbnail: https://thmb.techidaily.com/9b6e560f5ae8bf8946a31c995d6c73a4779b962b2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-record-itunes-videos/"><u>[New] How to Record iTunes Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-is-splitcam-the-ultimate-in-video-capture/"><u>[New] In 2024, Is SplitCam The Ultimate in Video Capture?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-mastering-youtube-notes-and-alerts-implementation/"><u>[Updated] In 2024, Mastering YouTube Notes & Alerts Implementation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-the-financial-seas-of-youtube-success-carryminati/"><u>[Updated] Navigating the Financial Seas of YouTube Success (CarryMinati)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-iconic-imagery-stories-a-peek-inside/"><u>2024 Approved Iconic Imagery Stories A Peek Inside</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-guide-to-captivating-gmeet-audiences-with-flawless-ppt-presentations/"><u>In 2024, Guide to Captivating GMeet Audiences with Flawless PPT Presentations</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-iphone-14-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>In 2024, How To Fix iPhone 14 Unavailable Issue With Ease | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-away-from-unappealing-facebook-pages/"><u>Navigating Away From Unappealing Facebook Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/opting-out-of-iphones-personal-data-harvesting/"><u>Opting Out of iPhones' Personal Data Harvesting</u></a></li>
+<li><a href="https://facebook.techidaily.com/owning-facebook-the-current-face/"><u>Owning Facebook: The Current Face</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-your-social-space-setting-up-an-avatar-themed-fb-cover/"><u>Personalize Your Social Space: Setting Up an Avatar-Themed FB Cover</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-policy-shift-facebook-and-honest-marketing-link/"><u>Potential Policy Shift: Facebook and Honest Marketing Link</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/smartphone-showdown-pixel-6-pro-against-iphone-13-pro-for-tech-enthusiasts/"><u>Smartphone Showdown: Pixel 6 Pro Against iPhone 13 Pro for Tech Enthusiasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-displaying-3d-pictures-on-fb/"><u>Step-by-Step: Displaying 3D Pictures on FB</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-infinix-hot-40-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Infinix Hot 40 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-is-the-facebook-whistleblower-and-what-did-they-say-on-60-minutes/"><u>Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?</u></a></li>
+</ul></div>
 

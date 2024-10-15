@@ -1,7 +1,7 @@
 ---
 title: Pioneering NFT Trends with Meta Drop's Short-Term Support Test
-date: 2024-09-15T19:41:04.347Z
-updated: 2024-09-16T21:31:57.365Z
+date: 2024-10-11T02:03:23.842Z
+updated: 2024-10-14T16:48:27.760Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/60a777af346560d9b3330b89f1a2cdfdf0449c805
 
  Meta rolled out[NFT sales for Instagram creators in November 2022](https://www.makeuseof.com/meta-pushes-instagram-nfts-who-is-buying/) , so its quick retraction and change of direction won't do much to inspire confidence in the social media giant's other metaverse and Web3 plans.
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What's Next for Meta, Crypto, and the Metaverse?
 
  Meta's move has caught the crypto world by surprise. While the initial rollout of NFTs on Instagram and Facebook was limited, it aligned with Meta's long-term vision of leading the world in metaverse services.
@@ -55,12 +62,24 @@ thumbnail: https://thmb.techidaily.com/60a777af346560d9b3330b89f1a2cdfdf0449c805
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-the-hero5-users-blueprint-for-incredible-time-lapse-videos/"><u>[New] 2024 Approved The Hero5 User's Blueprint for Incredible Time-Lapse Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-brighter-boundaries-three-strategies-for-instagram-spotlight/"><u>[Updated] 2024 Approved Brighter Boundaries Three Strategies for Instagram Spotlight</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-comprehensive-razer-video-feedback-for-2024/"><u>[Updated] Comprehensive Razer Video Feedback for 2024</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/depanner-la-selection-incorrecte-de-votre-disque-dur-par-windows-11-guide-dinstallation-facile-et-efficace/"><u>Dépanner La Sélection Incorrecte De Votre Disque Dur Par Windows 11 : Guide D'installation Facile Et Efficace</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/dive-into-sonys-virtual-reality-revolution-projecting-costs-debut-date-and-technical-insights/"><u>Dive Into Sony's Virtual Reality Revolution - Projecting Costs, Debut Date, and Technical Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-vow-to-e2ee-when-will-it-be-enacted-in-messenger/"><u>Facebook's Vow to E2EE: When Will It Be Enacted in Messenger?</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-arbitral-body-and-its-decision-making-process/"><u>FB's Arbitral Body and Its Decision-Making Process</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/st-rated-smartphone-camera-and-recording-apps-iphone-vs-android-for-2024/"><u>Highest Rated Smartphone Camera & Recording Apps IPhone vs Android for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-audio-file-alchemy-converting-srt-to-multiple-formats-professionally/"><u>In 2024, The Audio File Alchemy Converting SRT to Multiple Formats Professionally</u></a></li>
+<li><a href="https://facebook.techidaily.com/increasing-impact-through-message-styling-bold-italicize/"><u>Increasing Impact Through Message Styling: Bold, Italicize</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-apples-reasons-to-avoid-metaverse-immersion/"><u>Investigating Apple’s Reasons to Avoid Metaverse Immersion</u></a></li>
+<li><a href="https://facebook.techidaily.com/journalism-journey-extended-facebook-spends-5-million-amidst-rise-of-self-publishing/"><u>Journalism Journey Extended: Facebook Spends $5 Million Amidst Rise of Self-Publishing</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/say-cheese-top-apps-to-convert-your-photos-into-cartoons-for-2024/"><u>Say Cheese! Top Apps to Convert Your Photos Into Cartoons for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotlight-on-your-preferred-snapchatinstatiktok/"><u>Spotlight on Your Preferred Snapchat/Insta/TikTok</u></a></li>
+<li><a href="https://article-files.techidaily.com/the-core-language-of-cutting-edge-vr-experiences/"><u>The Core Language of Cutting-Edge VR Experiences</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-back-to-the-moment-i-embraced-facebook/"><u>Tracing Back to the Moment I Embraced Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-public-aversion-to-social-media-monoliths/"><u>Unveiling Public Aversion to Social Media Monoliths</u></a></li>
+</ul></div>
 

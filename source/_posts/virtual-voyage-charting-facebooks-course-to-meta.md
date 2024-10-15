@@ -1,7 +1,7 @@
 ---
 title: "Virtual Voyage: Charting Facebook's Course to Meta"
-date: 2024-09-13T19:33:49.044Z
-updated: 2024-09-16T19:29:27.667Z
+date: 2024-10-12T19:24:09.708Z
+updated: 2024-10-14T22:35:55.301Z
 tags:
   - facebook
 categories:
@@ -36,9 +36,23 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 
  By December 2005, Facebook had six million users. It also had several new features, including the infamous Facebook Wall and News Feed. In April 2006, Facebook was out on mobile, and in September, they made the platform available to everyone on the internet of age 13 or above.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2007–2009: The Inception of the Facebook Like Button
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
 
@@ -50,11 +64,25 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 
 ![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  After the advent of the Like button, Facebook made several changes to the platform. It improved the tagging of people in photos, liking comments, and the home page. Later, it launched new features like Facebook Places, Groups, Timeline, and Video calling.
 
  By July 2010, Facebook had more than 500 million active users. And in November, it became the third-largest web company valued at a whopping $41 billion. Later, in August 2011, Facebook launched Messenger—a dedicated instant messaging app.
 
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2013–2015: Facebook Enters New Territories
 
@@ -82,16 +110,16 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 
  The scandal led Zuckerberg and Facebook COO Sheryl Sandberg to testify before Congress. And the company paid a fine of £500,000 to the UK's Information Commissioner's Office for its part in the scandal.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2019–2021: Rebranding to Meta Backfires
 
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
 
@@ -107,13 +135,6 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
 
  Fast-forward to 2022, and Meta has already spent billions of dollars trying to build the metaverse and make its VR headsets as technologically advanced as possible—all while eroding more than 70% of its stock value amid a global recession.
@@ -121,13 +142,6 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 What comes next? Massive layoffs.
 
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Meta Is in a Rough Place, But When Is It Not?
 
@@ -148,5 +162,21 @@ What comes next? Massive layoffs.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-noteworthy-14-dynamic-text-artworks/"><u>[New] In 2024, Noteworthy 14 Dynamic Text Artworks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-definitive-guide-to-android-mobas-10-winners-for-2024/"><u>[New] The Definitive Guide to Android MOBAs #10 Winners for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-bits-and-bytes-to-subtitles-the-zip-to-srt-pathway/"><u>[Updated] From Bits and Bytes to Subtitles The ZIP To SRT Pathway</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-mastery-of-tasks-with-the-help-of-ez-grabber/"><u>[Updated] In 2024, Mastery of Tasks with the Help of EZ Grabber</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-joyful-account-access-instructions/"><u>2024 Approved Joyful Account Access Instructions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-galaxy-a14-5g-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Galaxy A14 5G.</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-regaining-lost-facebook-login-credentials/"><u>Essential Steps: Regaining Lost Facebook Login Credentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-group-administrators-on-alert-amazons-legal-moves/"><u>Facebook's Group Administrators on Alert: Amazon's Legal Moves</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendship-fade-out-cutting-off-on-facebook/"><u>Friendship Fade-Out: Cutting Off on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/inclusive-social-media-strategies-with-group-members/"><u>Inclusive Social Media Strategies with Group Members</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovative-methods-to-access-apples-podcast-library-for-2024/"><u>Innovative Methods to Access Apple's Podcast Library for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/smooth-transition-to-sierra-essential-tech-steps/"><u>Smooth Transition to Sierra Essential Tech Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-social-networks-locating-facebook-page-and-groups/"><u>Unlocking Social Networks: Locating Facebook Page & Groups</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/visionmaster-vs-screencapturer/"><u>VisionMaster vs ScreenCapturer</u></a></li>
+</ul></div>
 

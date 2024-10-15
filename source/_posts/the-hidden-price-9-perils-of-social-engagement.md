@@ -1,7 +1,7 @@
 ---
 title: "The Hidden Price: 9 Perils of Social Engagement"
-date: 2024-10-03T17:48:06.172Z
-updated: 2024-10-09T01:20:57.795Z
+date: 2024-10-13T12:10:13.222Z
+updated: 2024-10-15T00:00:33.015Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. Depression and Anxiety
 
  Do you spend several hours per day browsing through social media? Spending too long on social networking sites could adversely affect your mood. In fact, chronic social users are more likely to report poor mental health, including symptoms of anxiety and depression.
@@ -44,6 +51,13 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
  Before social media, bullying was something that was only possible to do face-to-face. However, now people can bully others online—anonymously or not. Today everyone knows[what cyberbullying is](https://www.makeuseof.com/what-is-cyberbullying/) , and most of us have seen what it can do to a person.
@@ -54,13 +68,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. FOMO (Fear of Missing Out)
 
  Fear of Missing Out (FOMO) is a phenomenon that became prominent around the same time as the rise of social media. Unsurprisingly, it's one of the most widespread negative effects of social media on society.
@@ -69,23 +76,9 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know[how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Unrealistic Expectations
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -98,6 +91,13 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  One simple way out of this mess is for everyone to quit lying on social media. But in the era of Instagram influencers and[YouTubers who earn millions](https://www.makeuseof.com/how-much-money-youtubers-make/) from being inauthentic, that isn't going to happen anytime soon.
 
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Negative Body Image
 
@@ -125,6 +125,13 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
  If you're not sure whether you're addicted to social networks, try to remember the last time you went a full day without checking any social media accounts. Do you feel rejected if someone unfollows you? And if your favorite social networks completely disappeared tomorrow, would the absence make you feel empty and depressed?
@@ -132,13 +139,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  At the end of the day, social media sites want to keep you scrolling for as long as possible so they can show you lots of ads and make more money. Because of[the attention economy](https://www.makeuseof.com/tag/what-is-attention-economy/) , these sites need your eyes on them for as long as possible. Apps like TikTok feed you a constant barrage of quick videos that destroy your attention span over time.
 
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our[guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Handle the Negative Effects of Social Media
 
@@ -161,20 +161,20 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-pixelprofilers-picks-top-tools-for-your-screen-snapping-needs/"><u>[Updated] 2024 Approved PixelProfiler's Picks Top Tools for Your Screen Snapping Needs</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-understanding-and-enabling-fbs-auto-video-functionality-for-2024/"><u>[Updated] Understanding and Enabling Fb's Auto-Video Functionality for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/1-top-virtual-camera-app-mastering-live-streams-with-manycam/"><u>1. Top Virtual Camera App: Mastering Live Streams with ManyCam</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/elevate-your-high-school-experience-with-these-10-innovative-apps/"><u>Elevate Your High School Experience with These 10 Innovative Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-future-interactive-enhancements-to-stories-panel/"><u>Facebook's Future: Interactive Enhancements to Stories Panel</u></a></li>
-<li><a href="https://blog-min.techidaily.com/gheeoil-both-are-used-in-cooking-ghee-clarified-butter-adds-an-extra-layer-of-flavor-while-oil-is-generally-more-accessible/"><u>Ghee/Oil: Both Are Used in Cooking; Ghee (Clarified Butter) Adds an Extra Layer of Flavor, While Oil Is Generally More Accessible.</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-eradicating-fb-pop-up-notifications/"><u>Guide to Eradicating Fb Pop-Up Notifications</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-poco-c55-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Poco C55</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-top-8-collage-champions-finding-affordable-premium-video-mosaics-android/"><u>In 2024, Top 8 Collage Champions Finding Affordable, Premium Video Mosaics (Android)</u></a></li>
-<li><a href="https://facebook.techidaily.com/metaverse-meets-social-media-3-things-to-ponder/"><u>Metaverse Meets Social Media: 3 Things to Ponder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/optimal-positioning-guide-setting-up-your-ps4-webcam/"><u>Optimal Positioning Guide: Setting Up Your PS4 Webcam</u></a></li>
-<li><a href="https://driver-install.techidaily.com/revamp-acer-visual-support-on-windows-11/"><u>Revamp Acer Visual Support on Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-undervalued-tech-news-that-worth-paying-attention-to/"><u>The Undervalued Tech News That Worth Paying Attention To</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-old-school-charm-may-reignite-interest-in-instagram/"><u>Why Old-School Charm May Reignite Interest in Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-youll-soon-see-more-crypto-ads-on-facebook-and-instagram/"><u>Why You'll Soon See More Crypto Ads on Facebook and Instagram</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rafting-an-impactful-waterway-teaser/"><u>[New] Crafting an Impactful Waterway Teaser</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-free-software-for-sound-changes-amplify-and-elevate-your-vocal-impact/"><u>[New] Free Software For Sound Changes - Amplify and Elevate Your Vocal Impact</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-premier-ios-platforms-for-ps2-gaming/"><u>[Updated] 2024 Approved Premier iOS Platforms for PS2 Gaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/establishing-a-visual-representation-on-fb/"><u>Establishing a Visual Representation on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagram-add-notices-that-say-user-tracking-keeps-their-apps-free/"><u>Facebook and Instagram Add Notices That Say User Tracking Keeps Their Apps Free</u></a></li>
+<li><a href="https://facebook.techidaily.com/gaining-control-integrate-key-admins-into-your-pages/"><u>Gaining Control: Integrate Key Admins Into Your Pages</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-realme-c53-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-manually-adjust-screen-brightness-and-deactivate-auto-brightness-feature-in-android/"><u>How to Manually Adjust Screen Brightness and Deactivate Auto-Brightness Feature in Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-mend-a-social-gap-on-facebook/"><u>How to Mend a Social Gap on Facebook</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-lightweight-travel-bags-with-camera-integration/"><u>In 2024, Lightweight Travel Bags with Camera Integration</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-sony-a6400-why-is-my-video-playback-failed/"><u>In 2024, Sony A6400 Why Is My Video Playback Failed?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-fb-removing-memories-from-unwanted-contacts/"><u>Mastering FB: Removing Memories From Unwanted Contacts</u></a></li>
+<li><a href="https://media-tips.techidaily.com/simple-conversion-premium-quality-dpg-from-any-video/"><u>Simple Conversion: Premium-Quality DPG From Any Video</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sites-shine-the-top-9-reasons-to-thrive-online/"><u>Social Sites Shine: The Top 9 Reasons to Thrive Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explorers-map-to-your-online-identity-a-detailed-narrative-of-all-fb-exchanges/"><u>The Explorer's Map to Your Online Identity: A Detailed Narrative of All FB Exchanges</u></a></li>
 </ul></div>
 

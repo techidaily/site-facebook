@@ -1,7 +1,7 @@
 ---
 title: "Revelation: Poll Indicates Distrust in Big Technology Firms"
-date: 2024-10-02T20:52:12.100Z
-updated: 2024-10-09T02:38:25.531Z
+date: 2024-10-10T17:12:01.524Z
+updated: 2024-10-15T04:10:46.989Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is the Least Trusted
@@ -54,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Facebook So Distrusted?
@@ -65,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
@@ -86,16 +86,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -123,21 +117,20 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-vivo-y02t-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Vivo Y02T | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/decline-to-share-your-digital-footprint-with-facebook/"><u>Decline to Share Your Digital Footprint with Facebook</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/easy-fixes-when-your-surface-pro-wont-connect-to-wi-fi-networks/"><u>Easy Fixes When Your Surface Pro Won't Connect to Wi-Fi Networks</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-tecno-spark-10-5g-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Tecno Spark 10 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-advanced-conversational-ai-metaai/"><u>Exploring Advanced Conversational AI: MetaAI</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-vivo-y100-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Vivo Y100 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-confidential-communication-on-fb-reliable/"><u>Is Confidential Communication on FB Reliable?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/leveraging-tech-for-efficient-facebook-to-whatsapp-video-sharing-for-2024/"><u>Leveraging Tech for Efficient Facebook to WhatsApp Video Sharing for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719151843193-new-era-for-content-sharing-tackle-transfer-to-leading-3-platforms/"><u>New Era for Content Sharing: Tackle Transfer to Leading 3 Platforms!</u></a></li>
-<li><a href="https://facebook.techidaily.com/opening-doors-to-facebooks-community-platforms/"><u>Opening Doors to Facebook's Community Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/preventing-misinformation-about-pandemic-on-digital-platforms/"><u>Preventing Misinformation About Pandemic on Digital Platforms</u></a></li>
-<li><a href="https://app-tips.techidaily.com/singapore-invests-24-billion-in-enhancing-it-networks-and-digital-solutions-insights-from-zdnet/"><u>Singapore Invests $2.4 Billion in Enhancing IT Networks & Digital Solutions – Insights From ZDNet</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/streaming-success-youtube-broadcasts-of-google-meet-for-2024/"><u>Streaming Success YouTube Broadcasts of Google Meet for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/vivid-visuals-top-10-sites-for-laptop-wallpapers-that-stand-out/"><u>Vivid Visuals Top 10 Sites for Laptop Wallpapers That Stand Out</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-to-anticipate-from-metas-privacy-policy-overhaul/"><u>What to Anticipate From Meta's Privacy Policy Overhaul?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-high-gear-comparison-gopros-best-match-ghost-s-drift/"><u>2024 Approved High Gear Comparison GoPro's Best Match? Ghost-S Drift</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>4 solution to get rid of pokemon fail to detect location On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-updates.techidaily.com/die-umfassende-anleitung-zu-robocpy-in-windows-11-einsatzstrategien-and-fuhrende-ersatzmethoden/"><u>Die Umfassende Anleitung Zu Robocpy in Windows 11: Einsatzstrategien & Führende Ersatzmethoden</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-swiftly-remove-shared-content-from-your-timeline/"><u>How to Swiftly Remove Shared Content From Your Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-it-under-wraps-top-10-personal-disclosures-to-dodge/"><u>Keeping It Under Wraps: Top 10 Personal Disclosures to Dodge</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/mastering-safe-mode-in-windows-8-graphics-cards-driver-uninstallation-methods/"><u>Mastering Safe Mode in Windows 8 - Graphics Cards Driver Uninstallation Methods</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-discover-the-top-10-2d-animation-software-for-windows-and-mac/"><u>New 2024 Approved Discover the Top 10 2D Animation Software for Windows and Mac</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-edit-m4a-files-for-free-top-5-software-recommendations-for-2024/"><u>New Edit M4A Files for Free Top 5 Software Recommendations for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-of-social-chat-for-facebook-users-announced/"><u>New Era of Social Chat for Facebook Users Announced</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/solving-the-problem-why-your-youtube-comments-might-not-appear-and-how-to-resolve-it/"><u>Solving the Problem: Why Your YouTube Comments Might Not Appear and How to Resolve It</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-facebook-papers-arent-as-damning-as-they-seem-heres-why/"><u>The Facebook Papers Aren't as Damning as They Seem. Here's Why</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-earning-cash-on-ig-and-fb/"><u>The Ultimate Guide: Earning Cash on IG and FB</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-nubia-red-magic-9-proplus-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Nubia Red Magic 9 Pro+ to Gmail | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-the-guardian-of-facebooks-secrets/"><u>Unmasking the Guardian of Facebook's Secrets</u></a></li>
+<li><a href="https://blog-min.techidaily.com/vrije-en-duurzame-asf-to-mpeg-conversie-helemaal-vanafafschrijving-met-movavi/"><u>Vrije en Duurzame ASF-to-MPEG Conversie Helemaal Vanafafschrijving Met Movavi!</u></a></li>
 </ul></div>
 

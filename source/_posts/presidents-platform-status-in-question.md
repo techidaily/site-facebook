@@ -1,7 +1,7 @@
 ---
 title: President's Platform Status in Question
-date: 2024-09-10T21:38:21.644Z
-updated: 2024-09-16T21:29:07.221Z
+date: 2024-10-13T00:39:31.309Z
+updated: 2024-10-15T09:10:47.565Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a887661
 
  Clegg continues by explaining that Facebook will apply the same "newsworthiness balancing test" to all content. The company will measure a post's public interest value against the potential harm of leaving it up, and decide on what action to take based on which weighs more.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How We Got Here: A Timeline of Trump's Facebook Ban
 
  To understand why Facebook removed Trump from its social media platforms, we have to roll all the way back to the beginning of the year.
@@ -50,11 +57,25 @@ thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a887661
 
 ![Facebook Tweaked News Feed Election](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/facebook-tweaked-news-feed.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Facebook was given six months to reassess Trump's suspension, and yet it has already announced its its action plan after less than one. On top of that, Facebook has also responded to the Oversight Board's 19 recommended policy changes.
 
 > Out of the board’s 19 recommendations, we are committed to fully implementing 15\. We are implementing one recommendation in part, still assessing two recommendations, and taking no further action on one recommendation.
 
  You can read[Facebook's response](https://about.fb.com/wp-content/uploads/2021/06/Facebook-Responses-to-Oversight-Board-Recommendations-in-Trump-Case.pdf) \[PDF\] in full on Facebook Newsroom.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Did Facebook Really Listen to the Oversight Board?
 
@@ -77,18 +98,24 @@ thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a887661
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/updated-into-the-metaverse-top-8-vr-wearables-listed/"><u>[Updated] Into the Metaverse Top 8 VR Wearables Listed</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/a-deep-dive-into-recmasters-video-capturing-technology-for-2024/"><u>A Deep Dive Into Recmaster's Video Capturing Technology for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-allocates-5-million-in-the-fight-against-substack-dominance/"><u>Facebook Allocates $5 Million in the Fight Against Substack Dominance</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-you-to-me-updating-your-social-network-identifier/"><u>From You to Me: Updating Your Social Network Identifier</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-infinix-note-30-vip-racing-edition-by-drfone-android/"><u>How to Bypass FRP from Infinix Note 30 VIP Racing Edition?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-honor-80-pro-straight-screen-edition-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Honor 80 Pro Straight Screen Edition by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-the-true-score-analyzing-recordcasts-performance/"><u>In 2024, The True Score Analyzing RecordCast's Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-tactics-to-unearth-upcoming-facebook-clubs/"><u>Innovative Tactics to Unearth Upcoming Facebook Clubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-beyond-the-screen-facebooks-potential-physical-ventures/"><u>Marketing Beyond the Screen: Facebook's Potential Physical Ventures</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-glitches-and-hurdles-with-ease/"><u>Navigating FaceBook Glitches & Hurdles with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/rooted-for-progress-what-the-unlock-of-oculus-go-means-for-enthusiasts/"><u>Rooted for Progress: What the Unlock of Oculus Go Means for Enthusiasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-account-what-to-do-when-fbs-verification-fails/"><u>Securing Your Account: What to Do When FB's Verification Fails</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/streamline-email-management-pin-gmail-to-windows-taskbar/"><u>Streamline Email Management: Pin Gmail to Windows Taskbar</u></a></li>
+<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-sony-xperia-10-v-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Sony Xperia 10 V.</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-designating-new-facebook-page-authorities/"><u>Unlocking Potential: Designating New Facebook Page Authorities</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>Updated Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
+</ul></div>
 

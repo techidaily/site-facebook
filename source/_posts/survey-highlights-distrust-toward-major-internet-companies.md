@@ -1,7 +1,7 @@
 ---
 title: Survey Highlights Distrust Toward Major Internet Companies
-date: 2024-10-06T19:09:09.599Z
-updated: 2024-10-08T23:27:54.415Z
+date: 2024-10-14T08:04:22.093Z
+updated: 2024-10-15T04:30:45.223Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is the Least Trusted
@@ -54,10 +54,16 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Facebook So Distrusted?
@@ -65,10 +71,10 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
@@ -86,10 +92,10 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -117,17 +123,19 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-tailoring-your-podcast-content-with-seo-in-mind/"><u>[New] Tailoring Your Podcast Content with SEO in Mind</u></a></li>
-<li><a href="https://facebook.techidaily.com/17-motivating-reasons-to-take-a-social-media-vacation-now/"><u>17 Motivating Reasons to Take a Social Media Vacation Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticating-fbs-safety-mail-service-securityfb-verification/"><u>Authenticating FB's Safety Mail Service: Security@fb Verification</u></a></li>
-<li><a href="https://facebook.techidaily.com/clarifying-the-social-web-mastery-of-facebooks-open-platform-portal/"><u>Clarifying the Social Web: Mastery of Facebook’s Open Platform Portal</u></a></li>
-<li><a href="https://facebook.techidaily.com/community-connectivity-accessing-and-using-facebook-groups/"><u>Community Connectivity: Accessing and Using Facebook Groups</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/cybernetic-breakthroughs-in-live-video-capture-technology-for-2024/"><u>Cybernetic Breakthroughs in Live Video Capture Technology for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/dealing-with-yahoo-mail-not-receiving-incoming-correspondence/"><u>Dealing with Yahoo Mail Not Receiving Incoming Correspondence</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719145917232-fortify-your-online-communications-facebooks-newly-launched-encrypted-chat-features-enhance-privacy/"><u>Fortify Your Online Communications: Facebook's Newly Launched Encrypted Chat Features Enhance Privacy.</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-motorola-moto-g-stylus-2023-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Motorola Moto G Stylus (2023) Device SIM</u></a></li>
-<li><a href="https://extra-support.techidaily.com/lgs-monitor-marvel-an-exhaustive-look-at-ultra-clear-technology-for-2024/"><u>LG's Monitor Marvel An Exhaustive Look at Ultra-Clear Technology for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/overcoming-common-ntdlldll-glitches-in-different-windows-environments/"><u>Overcoming Common Ntdll.dll Glitches in Different Windows Environments</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/smooth-transition-techniques-for-youtube-to-dailymotion-upload-for-2024/"><u>Smooth Transition Techniques for YouTube to Dailymotion Upload for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-exclusive-roundup-the-best-video-to-mp3-converters/"><u>[New] In 2024, Exclusive Roundup The Best Video to Mp3 Converters</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rofitable-pathways-8-steps-for-youtube-earning-for-2024/"><u>[New] Profitable Pathways 8 Steps for YouTube Earning for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-pathway-to-streaming-google-meet-on-youtube-procedures/"><u>[Updated] 2024 Approved The Pathway to Streaming Google Meet on YouTube Procedures</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/bitraser-enterprise-data-erasure-software/"><u>BitRaser Enterprise Data Erasure Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-media-impact-uploading-hd-to-social-media/"><u>Enhancing Media Impact: Uploading HD to Social Media</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-stop-your-windows-11-computer-from-randomly-powering-on-by-itself/"><u>How to Stop Your Windows 11 Computer From Randomly Powering On by Itself</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-creating-magnetic-storylines-for-your-vlog-videos/"><u>In 2024, Creating Magnetic Storylines for Your Vlog Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-online-activity-camouflaging-your-likes/"><u>Invisible Online Activity: Camouflaging Your Likes</u></a></li>
+<li><a href="https://fox-access.techidaily.com/playback-problem-why-cant-i-watch-video-on-sony-a6400/"><u>Playback Problem Why Can't I Watch Video on Sony A6400?</u></a></li>
+<li><a href="https://win-blog.techidaily.com/steps-to-correct-amd-radeon-software-not-opening-error-on-pc/"><u>Steps to Correct 'AMD Radeon Software Not Opening' Error on PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-fb-photo-access-restrictions/"><u>Understanding FB Photo Access Restrictions</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-voices-mentioning-full-group-in-social-media/"><u>Uniting Voices: Mentioning Full Group in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-potential-of-social-networking-through-neighborhoods/"><u>Unlocking the Potential of Social Networking Through Neighborhoods</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-your-fb-blacklist-entities/"><u>Unraveling Your FB Blacklist Entities</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Navigating Your FB Following List
-date: 2024-09-11T23:28:31.572Z
-updated: 2024-09-16T16:56:34.917Z
+date: 2024-10-13T16:29:10.047Z
+updated: 2024-10-15T06:08:30.383Z
 tags:
   - facebook
 categories:
@@ -43,6 +43,13 @@ Close
 3. Scroll to the bottom of the page. Then under**Followers** , tap**See all** to load a list of all your Facebook followers.
 4. Look to the top-right corner of the page (opposite**Followers**) to see the number of people that follow you on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to See Your Followers on Facebook on a Desktop Browser
 
  While you can see your Facebook followers on the web version of Facebook, you can't see the total number of people following you. If you want to see who is following you on Facebook, here's what to do if you're using the browser version...
@@ -55,6 +62,13 @@ Close
 2. Click the**More** dropdown.
 3. From the dropdown list, select**Followers** to view all your Facebook followers.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Can't See Your Facebook Followers? Here's Why
 
  If you've tried to view your Facebook followers on the mobile app but can't see them, your mobile app might be outdated. Make sure you update it from the App Store or Play Store.
@@ -64,6 +78,13 @@ Close
  You may also not get this option if your Facebook account is new, as you likely don't have any followers yet. Or you might need to[switch to a different Facebook account](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) .
 
  Another possible reason is your current account privacy setting might not allow people to follow you on Facebook—we'll explain how to change this below.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Allow People to Follow You on Facebook
 
@@ -78,15 +99,16 @@ To do this on the desktop browser:
 ![Profile icon options Facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/profile-icon-options-facebook-homepage.jpg)
 3. Click**Settings** .  
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook homepage profile icon settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-homepage-profile-icon-settings.jpg)
 4. From the left sidebar of the Settings menu, click**Privacy** .  
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook profile settings privacy option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-settings-privacy-option.jpg)
 5. Select**Public Posts** from the left sidebar.
 
@@ -98,13 +120,6 @@ To change your followers' preference on the Facebook mobile app:
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile-2.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-settings-menu.jpeg)
 
 ![Facebook follower settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-follower-settings-menu.jpeg)
@@ -115,19 +130,6 @@ Close
 2. Tap the three**horizontal dots** immediately to the right of**Edit Profile** (below your name).
 3. Select**Follow** **Settings** .
 4. Under**Who Can Follow Me** , tick**Public** .
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Keep Control Over Your Facebook Followers
 
@@ -148,5 +150,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-exquisite-note-taking-experience-on-mematic/"><u>[New] Exquisite Note-Taking Experience on Mematic</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-top-techniques-for-outstanding-gopro-vlogs/"><u>[New] In 2024, Top Techniques for Outstanding GoPro Vlogs</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-mastering-snap-shots-in-google-meet-a-quick-guide/"><u>[Updated] In 2024, Mastering Snap Shots in Google Meet A Quick Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-motorola-moto-g73-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Motorola Moto G73 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/find-the-hottest-content-on-facebook-lately/"><u>Find the Hottest Content on Facebook Lately</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-still-photography-to-style-varied-writing-facebooks-new-ai/"><u>From Still Photography to Style-Varied Writing - Facebook's New AI</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-check-who-youve-blocked-on-facebook/"><u>How to Check Who You've Blocked on Facebook</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-to-delete-your-chatgpt-history/"><u>How to Delete Your ChatGPT History</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-xiaomi-redmi-note-12-proplus-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Xiaomi Redmi Note 12 Pro+ 5G FRP Bypass</u></a></li>
+<li><a href="https://blog-min.techidaily.com/live-streaming-and-virtual-camera-solutions-with-manycam-top-choice-in-video-production/"><u>Live Streaming and Virtual Camera Solutions with ManyCam - Top Choice in Video Production</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-eloquence-unlocked-top-30-smart-words-and-phrases/"><u>Online Eloquence Unlocked: Top 30 SMART Words and Phrases</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-feed-with-a-new-twist-in-business-advertising/"><u>Personalizing Your Feed with a New Twist in Business Advertising</u></a></li>
+<li><a href="https://win-bits.techidaily.com/playing-flac-audio-tracks-on-your-ipod-a-comprehensive-walkthrough-for-each-model/"><u>Playing FLAC Audio Tracks on Your iPod: A Comprehensive Walkthrough for Each Model</u></a></li>
+<li><a href="https://media-tips.techidaily.com/step-by-step-guide-converting-dat-files-into-3gp-format-a-complete-tutorial/"><u>Step-by-Step Guide: Converting DAT Files Into 3GP Format - A Complete Tutorial</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/sysadmin-augusto-unveils-secrets-to-efficient-mysql-repair/"><u>SysAdmin Augusto Unveils Secrets to Efficient MySql Repair</u></a></li>
+<li><a href="https://facebook.techidaily.com/traverse-through-virtual-relationships-in-fb-timeline/"><u>Traverse Through Virtual Relationships in FB Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vagueness-uncovered-a-glimpse-at-puzzling-content-sharing/"><u>Virtual Vagueness Uncovered: A Glimpse at Puzzling Content Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-holds-title-to-your-web-based-selfies/"><u>Who Holds Title to Your Web-Based Selfies?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-prioritizing-your-online-privacy-is-vital-in-todays-digital-age-facebooks-take/"><u>Why Prioritizing Your Online Privacy Is Vital in Today’s Digital Age - Facebook's Take</u></a></li>
+</ul></div>
 

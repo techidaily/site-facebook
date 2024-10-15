@@ -1,7 +1,7 @@
 ---
 title: "Mastering Facebook Messenger: Adding New Contacts Step-by-Step"
-date: 2024-09-13T21:38:50.530Z
-updated: 2024-09-16T20:35:45.027Z
+date: 2024-10-08T22:14:55.006Z
+updated: 2024-10-15T00:00:35.489Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/8d6fc5e965f8f403ab26d9d65a1bca0fa8c0fcf47
 
  Suggested contacts will appear, or you can type in a name in the “To:” field to filter that list. All applicable Facebook friends and groups will appear, so simply click on the one you want and start talking!
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Does Messenger Automatically Add Contacts?
 
 ![Facebook Messaging service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/The-Messenger-app-logo.jpg)
@@ -46,6 +53,13 @@ thumbnail: https://thmb.techidaily.com/8d6fc5e965f8f403ab26d9d65a1bca0fa8c0fcf47
 
  If you change your mind afterwards, you can do this process again to unsync the two.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How Do I Sync My Contacts From Facebook to Messenger?
 
  You can also open Messenger and navigate to**People** . You’ll see a list of friends who are currently active. Tap the address book symbol on the top-right of your screen; this will show you the people who are in your phone contacts list and who use Facebook. Click on any of them to start chatting.
@@ -53,13 +67,6 @@ thumbnail: https://thmb.techidaily.com/8d6fc5e965f8f403ab26d9d65a1bca0fa8c0fcf47
 ## Can I Add Someone on Messenger but Not Facebook?
 
 ![accepting friends on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-Friend-requests-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![How to add a friend on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Message-a-friend-on-Facebook-1.jpg)
 
@@ -78,16 +85,16 @@ Close
  Essentially, anyone can use Messenger as long as they have had a Facebook account at some point and haven’t deleted it. In this case, you should be able to add them as you would anyone else, i.e. via your contact list if you have them in your address book, or by clicking on**Message** [on their deactivated profile](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Can’t I Add Someone on Messenger?
@@ -115,16 +122,10 @@ So how can you delete old messages on Messenger?
  You can find the latter by going on your profile photo then tapping**Archived chats** . This is probably the better option as these conversations won’t litter your feed, but are still just a couple of taps away.
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Add Friends on Messenger With Ease
@@ -144,5 +145,24 @@ So how can you delete old messages on Messenger?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-avoid-the-quake-optimal-tripod-placement-for-stellar-vlogs/"><u>[New] In 2024, Avoid the Quake Optimal Tripod Placement for Stellar Vlogs</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-revolutionize-your-video-content-with-vce-22-mastery/"><u>2024 Approved Revolutionize Your Video Content with VCE 2.2 Mastery</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/bcm2045a0-driver-troubles-heres-how-to-resolve-them-swiftly/"><u>BCM2045A0 Driver Troubles? Here's How to Resolve Them Swiftly!</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-subtextual-innuendoes-in-messenger-correspondence/"><u>Exploring Subtextual Innuendoes in Messenger Correspondence</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/getting-your-group-video-calls-back-on-track-a-step-by-step-solution-for-common-webcam-glitches-in-windows-11-10-and-7/"><u>Getting Your Group Video Calls Back on Track: A Step-by-Step Solution for Common Webcam Glitches in Windows 11, 10 & 7</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-oppo-a1x-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Oppo A1x 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-a23-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy A23 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/lock-your-vivo-y77t-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Vivo Y77t Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/nine-methods-to-reset-and-secure-fb-password/"><u>Nine Methods to Reset and Secure Fb Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-transition-of-user-identities-facebook-naming-change-guide/"><u>Seamless Transition of User Identities: Facebook Naming Change Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-revealed-attracting-professionals-as-clients-via-fb/"><u>Secrets Revealed: Attracting Professionals as Clients via FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-mirage-uncovering-its-darker-impact-on-users/"><u>The Social Media Mirage: Uncovering Its Darker Impact on Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/tighten-control-over-personalized-ad-delivery-in-social-sites/"><u>Tighten Control Over Personalized Ad Delivery in Social Sites</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/uncapped-screenshot-savior-app/"><u>Uncapped Screenshot Savior App</u></a></li>
+<li><a href="https://facebook.techidaily.com/whispered-ban-for-fb-users-practicing-genuine-business-tactics/"><u>Whispered Ban for FB Users Practicing Genuine Business Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-definitive-guide-to-overcoming-common-social-media-challenges-on-fb/"><u>Your Definitive Guide to Overcoming Common Social Media Challenges on FB</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Preparing For Facebook's Upcoming Challenges
-date: 2024-09-21T00:05:25.700Z
-updated: 2024-09-21T20:33:48.500Z
+date: 2024-10-11T11:24:38.473Z
+updated: 2024-10-15T08:17:23.494Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/6de10ca092ea22440e0ee57b0e4d9c17ed8937d0a
 
  That's because Facebook had caught wind of an upcoming, coordinated release of the leaked documents from Haugen by a consortium of reporters. In the memo, Clegg encouraged employees to, “listen and learn from criticism when it is fair, and push back strongly when it is not.”
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Who Is the Facebook Whistleblower?
 
  The Facebook whistleblower is Frances Haugen, a 37-year-old woman and data scientist from Iowa. Haugen was a product manager on the Civic Integrity team at Facebook. Before joining Facebook, she worked for big tech companies like Google and Pinterest for nearly two decades.
@@ -50,9 +57,23 @@ thumbnail: https://thmb.techidaily.com/6de10ca092ea22440e0ee57b0e4d9c17ed8937d0a
 
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Is the Facebook Consortium?
 
 ![A visual showing manager instructing resources](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Asana-Reporting-Resource-Management.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The Facebook Consortium is a group of reporters tasked with releasing information from copies of leaked documents from Haugen. These include publications like the Associated Press, The New York Times, The Washington Post, and CNN. A few European outlets are also included.
 
@@ -63,10 +84,10 @@ thumbnail: https://thmb.techidaily.com/6de10ca092ea22440e0ee57b0e4d9c17ed8937d0a
  However, that plan fell apart when some outlets contacted Facebook shortly after receiving the documents on October 10, 2021, after which the rest of the news outlets—including The New York Times, CNN, NBC News, and Bloomberg—started publishing their stories.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can Facebook Overcome This Storm?
@@ -88,5 +109,22 @@ thumbnail: https://thmb.techidaily.com/6de10ca092ea22440e0ee57b0e4d9c17ed8937d0a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-vloggers-ultimate-guide-to-best-gaming-microphones/"><u>[New] 2024 Approved Vloggers' Ultimate Guide to Best Gaming Microphones</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-unleash-luxury-top-10-accessories-for-the-sj4000/"><u>[New] Unleash Luxury Top 10 Accessories for the SJ4000</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-videocapture-clash-royale/"><u>[New] VideoCapture Clash Royale</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-stop-video-capture-a-quicktime-guide-for-2024/"><u>[Updated] Stop Video Capture A QuickTime Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-transition-tactics-for-a-hassle-free-macos-11-big-sur-upgrade-for-2024/"><u>[Updated] Transition Tactics for a Hassle-Free macOS 11 Big Sur Upgrade for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-why-facebook-changed-its-name-from-news-feed/"><u>Deciphering Why Facebook Changed Its Name From News Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-defenders-how-facebook-and-google-can-thwart-scam-advertising/"><u>Digital Defenders: How Facebook & Google Can Thwart Scam Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disconnect-top-3-places-without-facebook/"><u>Digital Disconnect: Top 3 Places Without Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dollar-in-pasture-zuckerbergs-peculiar-choice/"><u>Digital Dollar in Pasture: Zuckerberg's Peculiar Choice</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-approach-to-permitted-profile-duplication/"><u>Dissecting Facebook's Approach to Permitted Profile Duplication</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-digital-dialogue-mastering-facebooks-soundemojis/"><u>Dive Into Digital Dialogue: Mastering Facebook’s Soundemojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-timing-for-social-media-visual-refresh/"><u>Effective Timing for Social Media Visual Refresh</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-realme-gt-neo-5-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Realme GT Neo 5 Devices</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-mpow-bluetooth-driver-updates-for-windows-11-8-and-7-users/"><u>Latest MPOW Bluetooth Driver Updates for Windows 11, 8 and 7 Users</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-c53-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme C53 | Dr.fone</u></a></li>
+</ul></div>
 

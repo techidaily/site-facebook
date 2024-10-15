@@ -1,7 +1,7 @@
 ---
 title: Navigating Through Unsettling Trends in Facebook Metaverse
-date: 2024-09-13T18:03:53.170Z
-updated: 2024-09-16T20:54:00.431Z
+date: 2024-10-07T20:02:51.291Z
+updated: 2024-10-15T10:46:13.100Z
 tags:
   - facebook
 categories:
@@ -60,9 +60,29 @@ thumbnail: https://thmb.techidaily.com/4da8b1db0a8dedc0caf245bd9d36532200ad5924e
 
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Another Digital Addiction for Gen Z
 
 ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
 
@@ -77,21 +97,22 @@ thumbnail: https://thmb.techidaily.com/4da8b1db0a8dedc0caf245bd9d36532200ad5924e
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
@@ -102,13 +123,6 @@ thumbnail: https://thmb.techidaily.com/4da8b1db0a8dedc0caf245bd9d36532200ad5924e
  A Meta-dominated metaverse could also spell the death of independent innovation within the metaverse. Meta's business strategies are rooted in scaling and muscling out competitors. It acquired WhatsApp and Instagram, copied Snapchat features (after failing to buy it), and[launched Instagram Reels](https://www.makeuseof.com/tag/what-is-instagram-reels/) to put a check on TikTok.
 
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Meta's Vision of the Metaverse
 
@@ -131,5 +145,20 @@ thumbnail: https://thmb.techidaily.com/4da8b1db0a8dedc0caf245bd9d36532200ad5924e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/updated-film-frames-a-selector-of-snippets-for-editing/"><u>[Updated] Film Frames A Selector of Snippets for Editing</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-subscriber-led-achievement-awards-in-content-space/"><u>[Updated] Subscriber-Led Achievement Awards in Content Space</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-mastering-the-art-of-imitation-for-a-unique-and-authentic-tiktok-presence/"><u>2024 Approved Mastering the Art of Imitation for a Unique and Authentic TikTok Presence</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-xiaomi-redmi-note-12-proplus-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Xiaomi Redmi Note 12 Pro+ 5G Phone? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/erasing-facial-data-impacts-to-user-privacy-and-security/"><u>Erasing Facial Data – Impacts to User Privacy and Security?</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-validity-and-rationale-behind-dual-or-multiple-identities-in-a-single-facebook-id/"><u>Examining the Validity and Rationale Behind Dual or Multiple Identities in a Single Facebook ID</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-apple-iphone-14-ios-system-issues-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone 14 iOS System Issues? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-poll-shows-people-dont-trust-big-tech-but-especially-facebook/"><u>New Poll Shows People Don't Trust Big Tech, but Especially Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-platforms-for-older-peoples-connectivity/"><u>Prime Platforms for Older People's Connectivity</u></a></li>
+<li><a href="https://fox-that.techidaily.com/resolving-not-delivered-messages-on-iphone-a-step-by-step-guide/"><u>Resolving 'Not Delivered' Messages on iPhone - A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-shopping-lists-facebooks-newsfeed-update-awaits-brands/"><u>The Future of Shopping Lists: Facebook’s Newsfeed Update Awaits Brands</u></a></li>
+<li><a href="https://facebook.techidaily.com/together-towards-progress-facebook-and-rust-in-code-development/"><u>Together Towards Progress: Facebook & Rust in Code Development</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unleash-creativity-in-instagram-with-looping-tricks-for-2024/"><u>Unleash Creativity in Instagram with Looping Tricks for 2024</u></a></li>
+</ul></div>
 

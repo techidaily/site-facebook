@@ -1,7 +1,7 @@
 ---
 title: Three Warnings About the Social Media Universe
-date: 2024-10-02T01:39:23.899Z
-updated: 2024-10-08T18:42:37.104Z
+date: 2024-10-08T17:15:48.991Z
+updated: 2024-10-15T11:17:56.347Z
 tags:
   - facebook
 categories:
@@ -44,16 +44,16 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
  Here are some reasons why a Meta-led metaverse is something we should be worried about.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. A Privacy Nightmare
 
 ![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Facebook's poor privacy practices](http://www.makeuseof.com/tag/facebook-security-privacy-nightmare/) have always been a subject of concern. One of the most high-profile examples was the Cambridge Analytica scandal of 2018.
 
@@ -68,22 +68,21 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Another Digital Addiction for Gen Z
 
 ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
 
@@ -97,16 +96,16 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
@@ -117,6 +116,13 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  A Meta-dominated metaverse could also spell the death of independent innovation within the metaverse. Meta's business strategies are rooted in scaling and muscling out competitors. It acquired WhatsApp and Instagram, copied Snapchat features (after failing to buy it), and[launched Instagram Reels](https://www.makeuseof.com/tag/what-is-instagram-reels/) to put a check on TikTok.
 
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Meta's Vision of the Metaverse
 
@@ -141,20 +147,22 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-principles-of-documentary-storytelling/"><u>[New] Principles of Documentary Storytelling</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-how-to-record-a-webinar/"><u>2024 Approved How to Record a Webinar</u></a></li>
-<li><a href="https://facebook.techidaily.com/communication-beyond-facebook-exploring-alternatives/"><u>Communication Beyond Facebook: Exploring Alternatives</u></a></li>
-<li><a href="https://network-issues.techidaily.com/eradicating-windows-10-screen-phantasm/"><u>Eradicating Windows 10 Screen Phantasm</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-the-safety-of-fb-messenger/"><u>Examining the Safety of FB Messenger</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/get-your-free-imgburn-tool-now-ideal-for-transforming-secure-dvds-into-easy-to-use-iso-files/"><u>Get Your Free ImgBurn Tool Now! Ideal for Transforming Secure DVDs Into Easy-to-Use ISO Files</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/going-global-mondlys-selection-from-googled-editors/"><u>Going Global: Mondly's Selection From Googled Editors</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-samsung-galaxy-s23plus-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Samsung Galaxy S23+ to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-headset-face-off-googles-simplicity-and-samsungs-complexity/"><u>In 2024, Headset Face-Off Google's Simplicity and Samsung's Complexity</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-infinix-note-30-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Infinix Note 30 Pro to iPad | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-complete-disconnection-from-fb-alerts/"><u>Mastering Complete Disconnection From FB Alerts</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-digital-community-maze-facebook-group-finds/"><u>Navigating the Digital Community Maze: Facebook Group Finds</u></a></li>
-<li><a href="https://facebook.techidaily.com/unique-mobile-app-linkage-how-facebook-surpasses-apple-payments-system/"><u>Unique Mobile App Linkage: How Facebook Surpasses Apple Payments System</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-identify-malfunctioning-hardware-drivers-with-windows-device-manager-in-windows-11-by-drivereasy-guide/"><u>Use Device Manager to identify malfunctioning hardware drivers with Windows Device Manager in Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/whats-hidden-why-facebook-and-instagram-monitor-us-for-app-access/"><u>What's Hidden: Why Facebook & Instagram Monitor Us for App Access?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-the-essential-funimate-guidebook/"><u>[New] The Essential Funimate Guidebook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-redirect-saved-image-to-custom-folder-on-mac-for-2024/"><u>[Updated] Redirect Saved Image to Custom Folder on Mac for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-motorola-moto-g-5g-2023-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Motorola Moto G 5G (2023) Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721465386658-bypassing-the-blank-overcome-your-iphones-text-message-problem-with-our-expert-fixes-and-tips/"><u>Bypassing the Blank: Overcome Your iPhone's Text Message Problem with Our Expert Fixes & Tips</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-vivo-v29-pro-by-drfone-android/"><u>How to Show Wi-Fi Password on Vivo V29 Pro</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-vivo-y56-5g-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-technology-slip-ups-of-the-2022-era-highlighted/"><u>Key Technology Slip-Ups of the 2022 Era Highlighted</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-unpacked-facebooks-vision-for-virtual-connectivity/"><u>Metaverse Unpacked: Facebook's Vision for Virtual Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/pathway-back-to-facebook-no-original-code-needed/"><u>Pathway Back to Facebook: No Original Code Needed</u></a></li>
+<li><a href="https://windows11.techidaily.com/recover-lost-pin-following-system-breakdown-on-windows-11/"><u>Recover Lost PIN Following System Breakdown on Windows 11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/resolving-audio-without-visuals-fixing-the-silent-movie-mode-in-windows-11/"><u>Resolving Audio Without Visuals: Fixing the Silent Movie Mode in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-harms-of-social-media-top-10-reasons-to-disconnect-from-facebook/"><u>The Hidden Harms of Social Media: Top 10 Reasons to Disconnect From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-overwhelming-tide-against-ios-tracking/"><u>The Overwhelming Tide Against iOS Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-silencing-fb-notifications/"><u>The Ultimate Guide to Silencing Fb Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/timeless-tactics-for-keeping-your-social-media-profile-alive/"><u>Timeless Tactics for Keeping Your Social Media Profile Alive</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-5-platforms-to-download-high-quality-copyright-free-indian-melodies-for-professional-use/"><u>Top 5 Platforms to Download High-Quality, Copyright-Free Indian Melodies for Professional Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-leads-and-owns-facebook-currently/"><u>Who Leads and Owns Facebook Currently?</u></a></li>
 </ul></div>
 

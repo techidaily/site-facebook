@@ -1,7 +1,7 @@
 ---
 title: Handling Late Friends' Online Presence with Sensitivity and Care
-date: 2024-10-02T20:14:00.327Z
-updated: 2024-10-08T16:49:35.507Z
+date: 2024-10-14T10:28:04.847Z
+updated: 2024-10-15T04:06:15.980Z
 tags:
   - facebook
 categories:
@@ -46,28 +46,21 @@ To get a Facebook account memorialized, follow these steps:
  If your case is genuine, Facebook allows you to hold a fundraiser and let people worldwide help you manage money for the deceased person. Use[valuable tips to make your fundraising campaign a success](https://www.makeuseof.com/tag/crowdfunding-campaign-tips/) .
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Get a Facebook Account Removed After the Person Dies
 
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
 
@@ -82,10 +75,10 @@ To get a Facebook account memorialized, follow these steps:
 2. In the**Full Name** section, enter your official credentials.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3. Add your email address currently in use under the**Your** **Contact Email** section. Facebook might contact you and acquire more details if needed.
@@ -95,6 +88,13 @@ To get a Facebook account memorialized, follow these steps:
 1. Enter the email address that was used to create that account in the**Account's Email Address** section.  
 ![Give deceased persons accounts email address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Give-complete-details-in-the-form.jpg)
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
 4. Choose an image or PDF depending on the document you were issued. Make sure they are authentic and come with a state seal for assurance.
@@ -106,10 +106,10 @@ To get a Facebook account memorialized, follow these steps:
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
@@ -135,16 +135,20 @@ To get a Facebook account memorialized, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-a-marketers-manual-for-recognizing-fabricated-supporters/"><u>[New] In 2024, A Marketer’s Manual for Recognizing Fabricated Supporters</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-innovative-ideas-in-immersive-realms-30plus-quotes-to-motivate-you/"><u>[Updated] Innovative Ideas in Immersive Realms 30+ Quotes to Motivate You</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-optimize-chromes-voice-the-best-web-based-vocal-modification-apps-for-2024/"><u>[Updated] Optimize Chrome's Voice The Best Web-Based Vocal Modification Apps for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/common-razer-man-o-war-microphone-problems-and-their-fixes/"><u>Common Razer Man O' War Microphone Problems and Their Fixes</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/die-besten-online-video-editoren-fur-fortgeschrittene-entdecken-sie-die-kronung-der-qualitat-mit-movavi/"><u>Die Besten Online Video Editoren Für Fortgeschrittene - Entdecken Sie Die Krönung Der Qualität Mit Movavi!</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-isolation-to-interaction-unveiling-9-social-perks/"><u>From Isolation to Interaction: Unveiling 9 Social Perks</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-change-your-birthday-on-facebook/"><u>How to Change Your Birthday on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/mute-the-noise-steps-to-silence-post-reactions-on-social/"><u>Mute the Noise: Steps to Silence Post Reactions on Social</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/perfecting-your-content-understanding-facebook-video-sizes-and-ratios-for-2024/"><u>Perfecting Your Content Understanding Facebook Video Sizes and Ratios for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/reality-redefined-a-comparative-analysis-of-the-metaverse-and-virtual-reality/"><u>Reality Redefined: A Comparative Analysis of the Metaverse and Virtual Reality</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-to-safely-acquire-privately-shared-facebook-media/"><u>Steps to Safely Acquire Privately Shared Facebook Media</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unlock-creative-closure-ideas-with-our-template-service/"><u>[Updated] Unlock Creative Closure Ideas with Our Template Service</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>Does Life360 Notify When You Log Out On Apple iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-enterprise-strategies-with-top-5-platforms/"><u>Elevating Enterprise Strategies with Top 5 Platforms</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-realme-12-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-discover-these-exciting-free-tools-to-elevate-your-tiktok-videos-top-10/"><u>In 2024, Discover These Exciting Free Tools to Elevate Your TikTok Videos (Top 10)</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/mastering-fair-use-navigating-youtube-copyright-challenges/"><u>Mastering Fair Use Navigating YouTube Copyright Challenges</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/one-stop-resource-for-apple-devices-detailed-manuals-specs-and-fixes-at-your-fingertps-zdnet/"><u>One-Stop Resource for Apple Devices: Detailed Manuals, Specs and Fixes at Your Fingertps | ZDNET</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimized-audience-engagement-uploading-instagram-reels-to-facebook/"><u>Optimized Audience Engagement: Uploading Instagram Reels to Facebook</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/prime-locations-for-obtaining-got-mobile-melodies/"><u>Prime Locations for Obtaining GoT Mobile Melodies</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-venues-for-unearthing-freelance-opportunities/"><u>Prime Venues for Unearthing Freelance Opportunities</u></a></li>
+<li><a href="https://facebook.techidaily.com/quietude-in-social-sharing-erasing-feedback-on-facebook/"><u>Quietude in Social Sharing: Erasing Feedback on Facebook</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-guide-to-downloading-and-updating-the-driver-for-a-tp-link-bluetooth-adapter-ub400/"><u>Step-by-Step Guide to Downloading and Updating the Driver for a TP-Link Bluetooth Adapter UB400</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-timeline-content-for-lasting-impressions/"><u>Strategic Timeline Content for Lasting Impressions</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toms-tech-reviews-expert-insights-on-the-latest-computer-components-and-gadgets/"><u>Tom's Tech Reviews: Expert Insights on the Latest Computer Components and Gadgets</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-sharing-features-how-to-access-privately-shared-fb-vids/"><u>Unseen Sharing Features: How to Access Privately Shared FB Vids</u></a></li>
 </ul></div>
 

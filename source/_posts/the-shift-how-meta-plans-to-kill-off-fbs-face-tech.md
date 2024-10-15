@@ -1,7 +1,7 @@
 ---
 title: "The Shift: How Meta Plans to Kill Off FB’s Face Tech"
-date: 2024-09-30T19:53:52.742Z
-updated: 2024-10-03T20:53:55.606Z
+date: 2024-10-08T05:41:10.394Z
+updated: 2024-10-15T09:45:08.678Z
 tags:
   - facebook
 categories:
@@ -41,10 +41,16 @@ thumbnail: https://thmb.techidaily.com/6fd0cef62e823c305fb86e64196b6559e3c33c787
  Related:[How Dark Patterns Mislead You Into Making Bad Privacy Choices](https://www.makeuseof.com/tag/dark-patterns-bad-privacy-choices/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Meta Disabling Facial Recognition on Facebook?
@@ -52,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/6fd0cef62e823c305fb86e64196b6559e3c33c787
 ![blonde woman taking photo with phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/blonde-woman-pixabay.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The official reason, given in a[Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
@@ -71,10 +77,10 @@ thumbnail: https://thmb.techidaily.com/6fd0cef62e823c305fb86e64196b6559e3c33c787
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will Meta's Disabling of Facebook's Facial Recognition Enhance Privacy?
@@ -102,24 +108,19 @@ thumbnail: https://thmb.techidaily.com/6fd0cef62e823c305fb86e64196b6559e3c33c787
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-the-essential-guide-to-obs-and-zoom-live-stream-setup/"><u>[New] 2024 Approved The Essential Guide to OBS and Zoom Live Stream Setup</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-capturing-marine-magic-pro-tips-for-filming-oceanic-scenes-using-gopro/"><u>[New] Capturing Marine Magic Pro Tips for Filming Oceanic Scenes Using GoPro</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-crafting-cinematic-magic-making-your-instagram-videos-shine-for-2024/"><u>[Updated] Crafting Cinematic Magic Making Your Instagram Videos Shine for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/complete-guide-download-and-upgrade-drivers-for-hp-officejet-pro-8610-on-all-windows-systems/"><u>Complete Guide: Download & Upgrade Drivers for HP Officejet Pro 8610 on All Windows Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-enhances-experience-with-launch-of-ray-ban-stories/"><u>Facebook Enhances Experience with Launch of Ray-Ban Stories</u></a></li>
-<li><a href="https://driver-install.techidaily.com/fixing-non-operational-windows-drivers-immediately/"><u>Fixing Non-Operational Windows Drivers Immediately</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-use-smschat-without-linking-to-fb/"><u>How to Use SMS/Chat Without Linking to FB</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-oppo-a79-5g-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Oppo A79 5G Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/incredible-savings-in-managing-social-platforms/"><u>Incredible Savings in Managing Social Platforms</u></a></li>
-<li><a href="https://extra-support.techidaily.com/master-the-art-of-pace-control-for-instas-live-videos-for-2024/"><u>Master the Art of Pace Control for Insta's Live Videos for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/poco-support-forgotten-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Poco support - Forgotten screen lock.</u></a></li>
-<li><a href="https://facebook.techidaily.com/potential-for-social-media-to-merge-with-physical-commerce/"><u>Potential for Social Media to Merge with Physical Commerce</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-sleuthing-pinpointing-facebook-profile-links/"><u>Social Sleuthing: Pinpointing Facebook Profile Links</u></a></li>
-<li><a href="https://facebook.techidaily.com/stay-incognito-on-social-media-fb-with-these-7-protocols/"><u>Stay Incognito on Social Media (FB) with These 7 Protocols</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-fantastic-facebook-cover-images/"><u>Step-By-Step Guide to Fantastic Facebook Cover Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-quest-for-truth-identifying-fake-facebooks-users/"><u>The Quest for Truth: Identifying Fake Facebooks Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/think-twice-before-enabling-facebooks-link-tracker/"><u>Think Twice Before Enabling Facebook's Link Tracker</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/unlocking-advanced-tracking-with-cookiebot-integration-for-improved-seo-results/"><u>Unlocking Advanced Tracking with Cookiebot Integration for Improved SEO Results</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-essential-steps-for-crafting-video-based-gifs-on-mobiledesktop-for-2024/"><u>[New] Essential Steps for Crafting Video-Based GIFs on Mobile/Desktop for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-navigating-the-world-of-adobe-storage-options-the-complete-review-and-comparisons/"><u>[New] Navigating the World of Adobe Storage Options The Complete Review & Comparisons</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ushering-bliss-into-your-unboxing-experience/"><u>[Updated] Ushering Bliss Into Your Unboxing Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/harness-the-power-of-technology-save-fb-imagesvideos/"><u>Harness the Power of Technology: Save Fb Images/Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-real-is-the-security-email-at-facebookmailcom-for-fb-account-safety/"><u>How Real Is the Security Email at facebookmail.com? For FB Account Safety</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-deletion-methods-for-youtubes-backlogged-video-collection/"><u>In 2024, Deletion Methods for YouTube's Backlogged Video Collection</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-devise-giggle-generating-pictorials-for-giphy/"><u>In 2024, Devise Giggle-Generating Pictorials for Giphy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-examination-what-you-need-to-know-about-truecaller/"><u>In-Depth Examination: What You Need to Know About TrueCaller</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-methods-for-downloading-your-private-fb-content/"><u>Secure Methods for Downloading Your Private FB Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-update-twitter-like-initiative-by-facebook/"><u>Social Network Update: Twitter-Like Initiative by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-heats-up-5-million-from-social-network-counteracts-substacks-appeal/"><u>The Battle Heats Up: $5 Million From Social Network Counteracts Substack's Appeal</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-purpose-and-function-of-facebooks-whitelist/"><u>The Purpose and Function of Facebook's Whitelist</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/top-video-platforms-safe-and-streamlined-sme-solutions-for-2024/"><u>Top Video Platforms Safe & Streamlined SME Solutions for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/virtual-world-bliss-an-lg-360-vr-reveal-for-2024/"><u>Virtual World Bliss An LG 360 VR Reveal for 2024</u></a></li>
 </ul></div>
 

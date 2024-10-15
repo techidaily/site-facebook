@@ -1,7 +1,7 @@
 ---
 title: Top Tips for a Secure Social Network Experience on FB
-date: 2024-09-10T18:02:05.274Z
-updated: 2024-09-16T19:16:15.834Z
+date: 2024-10-11T07:28:54.093Z
+updated: 2024-10-15T08:52:43.001Z
 tags:
   - facebook
 categories:
@@ -67,15 +67,22 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
 * Allowing friends to tag you in photos or posts can be managed in the**Tagging** section. Here, you can limit who sees the posts you're tagged in, as well as the audience of the post.
 * Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4. Public Posts
 
 ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
@@ -89,13 +96,6 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
 
 ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Image Credit: Paparacy/[Shutterstock](https://www.shutterstock.com/image-photo/moscow-russia-april-19-2018-logo-1071882503)
 
 * Adding people to your restricted list on Facebook via the[Blocking](https://www.facebook.com/settings?tab=blocking) tab means they'll remain your friend on Facebook, but won't be able to see the posts you share with your friends only.
@@ -103,22 +103,29 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
 * To block someone from your Facebook and Facebook Messenger, you can add them to your**Block messages** list. You'll need to ensure you block their profile on Facebook too.
 * Nuisance apps you don't want to receive notifications for? Using the**Block app invites** and**Block apps** options, you can stop invites from certain people to apps, or stop notifications from specific apps altogether.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Quick Tips
 
 ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
 
 * To ensure your privacy settings are up-to-date, you should run Facebook's Privacy Checkup under**Settings & Privacy** . This is a short overview of your existing settings showing you who can see what you share, how people find you, and more.
 * Under**General Settings** , you should make sure your name and contact details are accurate. If you lose access to your account and need to prove your identity, you'll have to be able to confirm your details.
 * Don't want Facebook to know where you are? Check the**Location** tab and turn off location history for your mobile devices.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Be Facebook Privacy Aware
 
@@ -137,5 +144,18 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/updated-capture-every-moment-on-mac-free/"><u>[Updated] Capture Every Moment on Mac, FREE</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-farming-secrets-stardew-on-ginger-isles/"><u>2024 Approved Farming Secrets Stardew on Ginger Isles</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-free-videography-starter-pack-openers-and-more/"><u>2024 Approved Free Videography Starter Pack Openers & More</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-honor-magic-6-pro-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Honor Magic 6 Pro Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-aid-platform-what-it-provides-you-with/"><u>Facebook's Aid Platform: What It Provides You With</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-enhancing-communication-snap-camera-in-microsoft-teams/"><u>In 2024, Enhancing Communication Snap Camera in Microsoft Teams</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-user-preference-shifts-against-tracking/"><u>IPhone User Preference Shifts Against Tracking</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-chromecast-local-media-a-comprehensive-guide-for-windows-mac-android-and-ios-users-for-2024/"><u>New Chromecast Local Media A Comprehensive Guide for Windows, Mac, Android, and iOS Users for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-digital-space-delete-old-fb-watch-data/"><u>Reclaim Digital Space: Delete Old FB Watch Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-profile-on-facebook-with-mtfc/"><u>Safeguarding Your Profile on Facebook with MTFC</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unveiling-of-metaverse-risks-and-realities/"><u>The Unveiling of Metaverse - Risks and Realities</u></a></li>
+</ul></div>
 

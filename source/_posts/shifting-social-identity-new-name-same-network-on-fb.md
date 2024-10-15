@@ -1,7 +1,7 @@
 ---
 title: "Shifting Social Identity: New Name, Same Network on FB"
-date: 2024-10-07T18:47:09.137Z
-updated: 2024-10-09T03:36:00.669Z
+date: 2024-10-07T19:51:47.664Z
+updated: 2024-10-15T02:36:59.717Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/1323edf73cef5ddeb6760a28b46d407c0ed89a315
 The process differs slightly on the website versus the app.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### On the Web
@@ -52,13 +52,6 @@ To change your name on the Facebook website, do the following:
 7. Make your selection, enter your password, and click**Save Changes** .  
 ![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### On the Facebook App
 
 ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
@@ -66,6 +59,13 @@ To change your name on the Facebook website, do the following:
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
 
 ![facebook name change page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-name-change-page-ios.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -96,13 +96,20 @@ Close
 
 ![creating additional names facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/01-creating-additional-names-facebook-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![enter additional name facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/02-creating-additional-names-facebook-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -131,13 +138,6 @@ Close
 
  However, Facebook also accepts other non-government IDs like a bank statement, health insurance, credit card, and so on as long as it shows your official names.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## More Things To Try on Facebook
 
  After you change your name on Facebook, you might also want to try a few other Facebook tools and features.
@@ -159,21 +159,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-finding-the-perfect-screen-recorder-for-games-for-2024/"><u>[New] Finding the Perfect Screen Recorder for Games for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-spectral-synergy-using-color-theories-effectively/"><u>[New] In 2024, Spectral Synergy Using Color Theories Effectively</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-unwind-with-these-favorite-pc-games/"><u>[Updated] In 2024, Unwind with These Favorite PC Games</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-top-tools-to-keep-your-social-calendar-on-track/"><u>8 Top Tools to Keep Your Social Calendar on Track</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/avoiding-camera-induced-image-disruption-for-2024/"><u>Avoiding Camera-Induced Image Disruption for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-practices-safe-digital-connections/"><u>Best Practices: Safe Digital Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-websites-that-foster-elder-engagement/"><u>Best Websites That Foster Elder Engagement</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/comprehensive-guide-steps-for-downloading-and-setting-up-auto-gpt/"><u>Comprehensive Guide: Steps for Downloading and Setting Up Auto-GPT</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-realme-11-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Realme 11 5G Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/next-update-brings-no-surprises-no-oculus-quest-3/"><u>Next Update Brings No Surprises, No Oculus Quest 3</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/1719818327806-no-more-win-graphics-failure/"><u>No More Win Graphics Failure</u></a></li>
-<li><a href="https://program-issues.techidaily.com/overcoming-metro-exodus-pc-gameplay-interruptions-avoidance-of-frequent-crashes-and-freezes/"><u>Overcoming Metro Exodus PC Gameplay Interruptions: Avoidance of Frequent Crashes and Freezes</u></a></li>
-<li><a href="https://facebook.techidaily.com/revive-your-reality-on-facebook-after-a-hiccup/"><u>Revive Your Reality on Facebook After a Hiccup</u></a></li>
-<li><a href="https://facebook.techidaily.com/smart-and-savvy-suggestions-for-virtual-banter-online/"><u>Smart & Savvy Suggestions for Virtual Banter Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/technologys-influential-but-controversial-figures/"><u>Technology's Influential but Controversial Figures</u></a></li>
-<li><a href="https://windows11.techidaily.com/transitioning-from-iphones-calendar-to-windows-smoothly/"><u>Transitioning From iPhone's Calendar to Windows Smoothly</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-quick-capture-audiovisual-screen-shot/"><u>[New] 2024 Approved Quick Capture Audiovisual Screen Shot</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expanding-possibilities-with-virtual-reality/"><u>[New] Expanding Possibilities with Virtual Reality</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-2023s-best-fb-link-exporters-available-for-free-online/"><u>2024 Approved 2023'S Best FB Link Exporters - Available for FREE Online</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ogvwebm-movavi/"><u>立即在線將OGV文件更改為WEBM，利用 Movavi 優化易用的影片編輯工具</u></a></li>
+<li><a href="https://facebook.techidaily.com/extended-timeframe-for-accepting-whatsapps-new-privacy-policy/"><u>Extended Timeframe for Accepting WhatsApp's New Privacy Policy</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-repair-windows-1110/"><u>How to Repair Windows 11/10</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-from-iphone-14-pro-maxipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock from iPhone 14 Pro Max/iPad/iPod</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-a-polished-online-presence-blocking-profiles/"><u>Maintaining a Polished Online Presence: Blocking Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-historical-facebook-posts/"><u>Revisiting Historical Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/streaming-smoothly-using-spotify-on-facebook/"><u>Streaming Smoothly: Using Spotify on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/vote-for-the-ultimate-social-sphere/"><u>Vote for the Ultimate Social Sphere</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/winx-dvd-copy-software-feature-comparison-and-edition-overview-digieity/"><u>WinX DVD Copy Software: Feature Comparison & Edition Overview | Digieity</u></a></li>
 </ul></div>
 

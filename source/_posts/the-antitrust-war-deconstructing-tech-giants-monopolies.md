@@ -1,7 +1,7 @@
 ---
 title: "The Antitrust War: Deconstructing Tech Giants' Monopolies"
-date: 2024-10-08T03:17:19.672Z
-updated: 2024-10-09T00:50:58.013Z
+date: 2024-10-09T19:08:45.635Z
+updated: 2024-10-14T17:34:08.995Z
 tags:
   - facebook
 categories:
@@ -28,13 +28,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
  However, some sources include others, such as Twitter, Samsung, and Netflix. In addition, people often mention Chinese companies such as Alibaba, Tencent, and Baidu while discussing Big Tech firms. However, they are competitors to the Big Five rather than under the same umbrella.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Big Tech’s Beginnings
 
  Big Tech companies didn’t always have such a massive influence on society. When Facebook launched in 2004, only Harvard University students could use it, followed by an expansion to high schools and other universities. It took until 2006 for the company to open usage to people without educational institution-related emails.
@@ -52,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Big Tech companies often provide free resources. For example, there’s no subscription fee required to do a Google search or have a Facebook profile. However, large tech companies gather customer information and use it to profit. Facebook collects information about users’ races, religions, and political views. It can then sell that information to advertisers.
@@ -66,9 +59,29 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Big Tech Fails to Catch Misleading Ads
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
@@ -90,29 +103,22 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
 
  However, Big Tech can also help smaller companies. The Google Play Store and Apple’s App Store give lesser-known developers a larger platform, making it easier for customers to find products. Also, Amazon’s Marketplace allows small companies to sell items on Amazon and let the e-commerce site fulfill those orders. As a result, products often reach customers faster than they otherwise would.
 
  Furthermore, there are ways that you can[help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Big Tech Can Impact Government Decisions and Operations
 
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
 
@@ -143,10 +149,10 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## No Easy Path Forward for Regulating Big Tech
@@ -172,22 +178,19 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-save-your-favorite-tiktok-content-securely-on-devices/"><u>[New] In 2024, Save Your Favorite TikTok Content - Securely on Devices</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-top-20-asmr-youtubers-to-watch/"><u>[New] Top 20 ASMR Youtubers to Watch</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-epic-audio-essentials-top-10-for-trending-yt-shorts/"><u>[Updated] Epic Audio Essentials Top 10 for Trending YT Shorts</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-pushing-packaging-to-new-heights-a-consumers-dream/"><u>[Updated] Pushing Packaging to New Heights A Consumer's Dream</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-sound-clarity-in-media-paid-vs-free-software-solutions/"><u>[Updated] Sound Clarity in Media - Paid Vs. Free Software Solutions</u></a></li>
-<li><a href="https://fox-making.techidaily.com/creative-tims-complimentary-paper-dashboard-bootstrap-admin-layout-for-quick-website-development/"><u>Creative Tim's Complimentary Paper Dashboard Bootstrap Admin Layout for Quick Website Development</u></a></li>
-<li><a href="https://facebook.techidaily.com/enable-the-nocturnal-look-in-facebook-settings/"><u>Enable the Nocturnal Look in Facebook Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/engage-audience-on-ig-livestream-with-less/"><u>Engage Audience On IG Livestream with Less</u></a></li>
-<li><a href="https://howto.techidaily.com/gmail-not-working-on-samsung-galaxy-a15-4g-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Samsung Galaxy A15 4G 7 Common Problems & Fixes | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-ideal-techniques-stream-and-store-major-sports-events-online/"><u>In 2024, Ideal Techniques Stream & Store Major Sports Events Online</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-tips-and-insights-for-successful-spotify-marketing/"><u>In 2024, Tips and Insights for Successful Spotify Marketing</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-encryption-strength-against-facebooks-for-vr-headset-users/"><u>Meta's Encryption Strength Against Facebook's for VR Headset Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/sifting-through-social-networks-narrative-archives/"><u>Sifting Through Social Network's Narrative Archives</u></a></li>
-<li><a href="https://facebook.techidaily.com/stop-the-watchful-eyes-of-facebook/"><u>Stop the Watchful Eyes of Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/swift-profile-management-across-multiple-facebook-ids/"><u>Swift Profile Management Across Multiple Facebook IDs</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-fb-unfollowfollow-uses-and-timing/"><u>Understanding FB Unfollow/Follow: Uses & Timing</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebooks-openness-portal-a-guide-to-platform-clarity/"><u>Unveiling Facebook's Openness Portal: A Guide to Platform Clarity</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-growth-secrets-masterful-narration-techniques/"><u>[New] In 2024, YouTube Growth Secrets Masterful Narration Techniques</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-techniques-for-efficient-discoscreen-sharing-for-2024/"><u>[Updated] Techniques for Efficient DiscoScreen Sharing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-nobody-else-taps-into-your-facebook-space/"><u>Ensuring Nobody Else Taps Into Your Facebook Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-copycat-scams-a-brief-overview/"><u>Facebook Copycat Scams: A Brief Overview</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722881467630-how-to-remove-that-persistent-blue-shade-from-your-tv-easy-steps/"><u>How to Remove That Persistent Blue Shade From Your TV – Easy Steps!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-system-of-iphone-14-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System of iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-ispoofer-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Xiaomi Redmi A2? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/shaping-your-digital-face-on-facebook/"><u>Shaping Your Digital Face on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-best-calendar-software-for-social-media-consistency/"><u>The Best Calendar Software for Social Media Consistency</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-monetizing-machine-how-reels-and-revenue-are-revolutionized-by-meta/"><u>The Monetizing Machine: How Reels and Revenue Are Revolutionized by Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-recent-user-drop/"><u>Understanding Facebook's Recent User Drop</u></a></li>
+<li><a href="https://program-issues.techidaily.com/update-addressing-and-correcting-frames-per-second-drops-in-the-windows-edition-of-farming-simulator-22/"><u>Update: Addressing and Correcting Frames Per Second Drops in the Windows Edition of Farming Simulator 22</u></a></li>
 </ul></div>
 

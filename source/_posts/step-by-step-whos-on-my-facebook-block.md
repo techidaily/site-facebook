@@ -1,7 +1,7 @@
 ---
 title: "Step-by-Step: Who's on My Facebook Block?"
-date: 2024-09-15T23:19:49.170Z
-updated: 2024-09-16T20:32:53.365Z
+date: 2024-10-08T05:49:13.991Z
+updated: 2024-10-14T21:22:14.005Z
 tags:
   - facebook
 categories:
@@ -44,9 +44,23 @@ Close
 
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to View Your Blocked List on the Web
 
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
 
@@ -57,6 +71,13 @@ Close
 
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Can People Tell if You've Blocked Them on Facebook?
 
  People will not be notified when you block them on Facebook. However, there are[ways to figure out if someone has blocked you on Facebook](https://www.makeuseof.com/tag/who-blocked-me-on-facebook/) .
@@ -66,10 +87,10 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
@@ -89,5 +110,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-essential-mac-mkv-software-list-for-2024/"><u>[New] Essential Mac MKV Software List for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-future-proofing-your-mp4s-srt-integration-hacks-for-2024/"><u>[New] Future-Proofing Your MP4s SRT Integration Hacks for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-edge-techniques-for-effective-video-cropping-and-exporting/"><u>[Updated] Instagram Edge Techniques for Effective Video Cropping and Exporting</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-intense-moment-capture-iphone-burst-mode/"><u>[Updated] Intense Moment Capture IPhone Burst Mode</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-fantasy-to-reality-vrs-path/"><u>2024 Approved From Fantasy to Reality VR’s Path</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-youtube-ultimate-guide-to-live-360-degree-streams/"><u>2024 Approved Mastering YouTube Ultimate Guide to Live 360-Degree Streams</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-online-visibility-profile-pics-that-attract-more-engagement/"><u>Enhancing Your Online Visibility: Profile Pics That Attract More Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/excluding-political-and-religious-discussions-in-social-media/"><u>Excluding Political & Religious Discussions in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-approaches-to-restore-deactivated-facebook-id/"><u>Key Approaches to Restore Deactivated Facebook ID</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-messenger-kids-sleep-mode-for-smoother-experience/"><u>Navigating Through Messenger Kids' Sleep Mode for Smoother Experience</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/stream-the-hottest-tunes-discover-top-5-platforms-for-watching-hit-music-videos/"><u>Stream the Hottest Tunes: Discover Top 5 Platforms for Watching Hit Music Videos</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Why Does Meta Forsake Facial Recognition on Facebook Platform?
-date: 2024-09-12T21:23:54.025Z
-updated: 2024-09-16T21:02:02.198Z
+date: 2024-10-11T05:32:06.350Z
+updated: 2024-10-14T23:03:56.979Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,29 @@ thumbnail: https://thmb.techidaily.com/f3b9ebc545f359ab98a545c4a62ebaee9fb8e9ec4
 
  Related:[How Dark Patterns Mislead You Into Making Bad Privacy Choices](https://www.makeuseof.com/tag/dark-patterns-bad-privacy-choices/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is Meta Disabling Facial Recognition on Facebook?
 
 ![blonde woman taking photo with phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/blonde-woman-pixabay.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The official reason, given in a[Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
 
@@ -55,6 +75,13 @@ thumbnail: https://thmb.techidaily.com/f3b9ebc545f359ab98a545c4a62ebaee9fb8e9ec4
  At the time of writing, Meta is battling yet another major controversy after whistleblower, Frances Haugen, released[internal documents dubbed “the Facebook papers”](https://www.makeuseof.com/what-are-facebook-papers/) alleging that Facebook prioritizes profits over truth.
 
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Will Meta's Disabling of Facebook's Facial Recognition Enhance Privacy?
 
@@ -79,12 +106,16 @@ thumbnail: https://thmb.techidaily.com/f3b9ebc545f359ab98a545c4a62ebaee9fb8e9ec4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-laptop-and-web-navigating-live-video-communication-in-whatsapp/"><u>[New] Laptop & Web Navigating Live Video Communication in WhatsApp</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-essential-blueprint-to-utilizing-google-docs-voice-recognition/"><u>[New] The Essential Blueprint to Utilizing Google Docs Voice Recognition</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-making-avatar-creation-a-breeze-in-the-digital-realm/"><u>2024 Approved Making Avatar Creation a Breeze in the Digital Realm</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-top-8-choices-affordable-open-source-videoconferencing-apps/"><u>2024 Approved Top 8 Choices Affordable, Open Source Videoconferencing Apps</u></a></li>
+<li><a href="https://win-guides.techidaily.com/5lij44gk44gu5oml6acg44gn44ob44kn44od44kv44oh44kj44k544kv44ov44kh44kk44or44ks5lplusu5q2j44gx55u044gz6kmz57sw44ks44kk44oj/"><u>三つの手順でチェックディスクファイルを修正し直す詳細ガイド</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-innovation-to-imposition-government-strikes-back-on-big-tech/"><u>From Innovation to Imposition: Government Strikes Back on Big Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-content-moderation-insights-into-fbs-tribunal/"><u>Navigating Content Moderation: Insights Into FB's Tribunal</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-interaction-exploring-metaverse-landscapes/"><u>Redefining Interaction: Exploring Metaverse Landscapes</u></a></li>
+<li><a href="https://facebook.techidaily.com/whos-covid-battle-fund-enhanced-by-5m-from-facebook/"><u>WHO's COVID Battle Fund Enhanced by $5M From Facebook</u></a></li>
+</ul></div>
 

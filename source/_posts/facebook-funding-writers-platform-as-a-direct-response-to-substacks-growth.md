@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2024-10-02T17:28:30.077Z
-updated: 2024-10-09T03:09:20.873Z
+date: 2024-10-11T04:05:10.012Z
+updated: 2024-10-14T23:11:39.959Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,16 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -66,22 +72,24 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/new-2024-approved-how-to-establish-and-run-a-discochannel-successfully/"><u>[New] 2024 Approved How to Establish and Run a DiscoChannel Successfully</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-sparking-inspiration-outstanding-youtube-content-themes/"><u>[New] 2024 Approved Sparking Inspiration Outstanding YouTube Content Themes</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-essential-tech-for-instant-time-lapse-videos/"><u>[New] Essential Tech for Instant Time-Lapse Videos</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-mastering-minecraft-the-best-practices-to-record-gameplay/"><u>[New] In 2024, Mastering Minecraft The Best Practices to Record Gameplay</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-crafting-a-captivating-voice-the-art-of-writing-film-dialogues/"><u>[Updated] Crafting a Captivating Voice The Art of Writing Film Dialogues</u></a></li>
-<li><a href="https://facebook.techidaily.com/epic-games-discloses-tracking-for-unlimited-game-playtime/"><u>Epic Games Discloses Tracking for Unlimited Game Playtime</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-access-to-whatsapp-users-reined-in-by-germany-legislation/"><u>Facebook's Access to WhatsApp Users Reined in by Germany Legislation</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-13-passcode-without-computer-by-drfone-ios/"><u>How to Unlock Apple iPhone 13 Passcode without Computer?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-tecno-spark-20c-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Tecno Spark 20C | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/investing-in-your-segment-of-the-725-million-facebook-payout/"><u>Investing in Your Segment of the $725 Million Facebook Payout</u></a></li>
-<li><a href="https://facebook.techidaily.com/silent-salesmen-in-your-pocket-a-truth-or-tale-of-coincidence/"><u>Silent Salesmen in Your Pocket: A Truth or Tale of Coincidence?</u></a></li>
-<li><a href="https://facebook.techidaily.com/smarter-more-personalized-advertising-awaits-you-on-facebook/"><u>Smarter, More Personalized Advertising Awaits You on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/steady-as-she-goes-unveiling-the-world-of-crypto-stability-coins/"><u>Steady as She Goes: Unveiling the World of Crypto Stability Coins</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/tesla-robotaxi-update-a-closer-look-at-rumored-costs-launch-dates-and-vehicle-specifications/"><u>Tesla Robotaxi Update - A Closer Look at Rumored Costs, Launch Dates, and Vehicle Specifications</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/unlocking-student-potential-with-instructional-videos-for-2024/"><u>Unlocking Student Potential with Instructional Videos for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-distinctions-between-fb-pages-and-unames/"><u>Unveiling the Distinctions Between FB Pages & UNAMES</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-vanish-mode-on-facebook-messenger/"><u>What Is Vanish Mode on Facebook Messenger?</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-decoding-the-code-for-quick-fb-media/"><u>[New] 2024 Approved Decoding the Code for Quick FB Media</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-crafting-sound-saturated-instagram-visuals/"><u>2024 Approved Crafting Sound-Saturated Instagram Visuals</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-these-8-steps-that-newcomers-often-miss-on-youtube/"><u>Avoid These 8 Steps that Newcomers Often Miss on YouTube</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-drone-buddies-kids-most-enjoyed-toy-companions/"><u>Best Drone Buddies Kids' Most Enjoyed Toy Companions</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/cutting-edge-captures-top-10-online-video-recorders-for-2024/"><u>Cutting-Edge Captures Top 10 Online Video Recorders for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacked-into-harmony-protests-lead-to-a-drop-in-facebook-stardom/"><u>Hacked Into Harmony? Protests Lead to a Drop in Facebook Stardom</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>How to Change Location On Facebook Dating for your Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-poco-c55-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Poco C55 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-livestream-audio-and-video-optional/"><u>Instagram Livestream: Audio & Video Optional</u></a></li>
+<li><a href="https://facebook.techidaily.com/karate-krews-ban-social-media-engagement/"><u>Karate Krews Ban Social Media Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-myths-unveiled-beyond-facebooks-domain/"><u>Metaverse Myths Unveiled – Beyond Facebook's Domain</u></a></li>
+<li><a href="https://facebook.techidaily.com/missing-message-photos-get-notified-via-messenger/"><u>Missing Message Photos: Get Notified via Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevalence-of-hacking-on-digital-spaces/"><u>Prevalence of Hacking on Digital Spaces</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solution-guide-restoring-soundscape-in-valheim-on-your-computer/"><u>Solution Guide: Restoring Soundscape in Valheim on Your Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotting-facebook-downtime-your-guide-to-check-backup/"><u>Spotting Facebook Downtime - Your Guide to Check Backup</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-choosing-the-best-facebook-profile-picture/"><u>The Art of Choosing the Best Facebook Profile Picture</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-guide-converting-your-dvds-into-digital-formats-on-pc-mac-and-mobile-devices/"><u>Ultimate Guide: Converting Your DVDs Into Digital Formats on PC, Mac & Mobile Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/unspoken-revolution-the-veiled-emergence-of-facebooks-smart-device/"><u>Unspoken Revolution: The Veiled Emergence of Facebook’s Smart Device</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-s-leading-online-vertical-video-editor-platforms-for-2024/"><u>Updated S Leading Online Vertical Video Editor Platforms for 2024</u></a></li>
 </ul></div>
 

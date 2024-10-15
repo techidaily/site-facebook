@@ -1,7 +1,7 @@
 ---
 title: Facebook's Group Administrators Face Legal Scrutiny by Amazon
-date: 2024-10-08T04:50:13.984Z
-updated: 2024-10-09T02:08:45.738Z
+date: 2024-10-08T16:30:37.393Z
+updated: 2024-10-15T07:02:57.741Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Amazon Filed the Case
@@ -50,10 +50,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
@@ -65,16 +65,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -88,10 +82,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -115,22 +109,24 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-covert-chronicles-of-viewing-instagram-stories-pc-android-and-iphone-edition/"><u>[New] The Covert Chronicles of Viewing Instagram Stories - PC, Android & iPhone Edition</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-tailoring-content-advanced-pc-video-editing-methods-for-youtube/"><u>[Updated] Tailoring Content Advanced PC Video Editing Methods for YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/7-negative-effects-of-social-media-on-people-and-users/"><u>7 Negative Effects of Social Media on People and Users</u></a></li>
-<li><a href="https://fox-links.techidaily.com/accelerating-content-consumption-on-facebook/"><u>Accelerating Content Consumption on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/boosting-engagement-with-an-impactful-profile-photo/"><u>Boosting Engagement with an Impactful Profile Photo</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-news-ios-145-complicates-facebook-tracking/"><u>Breaking News: IOS 14.5 Complicates Facebook Tracking</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-brand-loyalty-through-interactive-fb-campaigns/"><u>Building Brand Loyalty Through Interactive FB Campaigns</u></a></li>
-<li><a href="https://facebook.techidaily.com/clarifying-misunderstandings-in-fb-data-revelations/"><u>Clarifying Misunderstandings in FB Data Revelations</u></a></li>
-<li><a href="https://facebook.techidaily.com/connecting-through-sound-facebooks-audio-revolution/"><u>Connecting Through Sound: Facebook's Audio Revolution</u></a></li>
-<li><a href="https://facebook.techidaily.com/curating-personalized-social-network-content-on-fb/"><u>Curating Personalized Social Network Content on FB</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-vivo-v29e-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Vivo V29e FRP Bypass</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/myspace-gurus-gabbing-via-snapchat-for-2024/"><u>MySpace Gurus Gabbing via Snapchat for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/navigating-chatbot-risks-key-privacy-concerns-explored/"><u>Navigating Chatbot Risks: Key Privacy Concerns Explored</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/section-3c-qandas-on-admixtures/"><u>Section 3C: Q&As on Admixtures</u></a></li>
-<li><a href="https://extra-information.techidaily.com/tailored-soundscapes-key-audio-setup-for-podcasters/"><u>Tailored Soundscapes Key Audio Setup for Podcasters</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ltimate-comparison-of-gif-creators-for-2024/"><u>The Ultimate Comparison of GIF Creators for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719152659864-zuck-reveals-naming-his-goat-after-digital-currency/"><u>Zuck Reveals: Naming His Goat After Digital Currency</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-polishing-zoom-picture-quality-simple-solutions/"><u>[New] 2024 Approved Polishing Zoom Picture Quality Simple Solutions</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-bend-the-rules-of-livestreaming-on-youtube-without-a-subscriber-hurdle/"><u>[New] Bend the Rules of Livestreaming on YouTube, Without a Subscriber Hurdle</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-battery-life-to-final-cut-a-drone-editors-journey/"><u>[New] From Battery Life to Final Cut A Drone Editor's Journey</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-cinematic-basics-unveiled-fundamental-shots-explained-clearly/"><u>[Updated] Cinematic Basics Unveiled Fundamental Shots Explained Clearly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-money-matters-choosing-best-stocks-yts-guide-for-2024/"><u>[Updated] Money Matters Choosing Best Stocks YTs Guide for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/5-best-no-cost-video-enhancement-platforms/"><u>5 Best No-Cost Video Enhancement Platforms</u></a></li>
+<li><a href="https://win-popular.techidaily.com/achieve-success-in-fat-to-fit-ultimate-tips-and-strategies-for-pc-gamers/"><u>Achieve Success in 'Fat to Fit': Ultimate Tips and Strategies for PC Gamers</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-how-fbs-adjudicative-panel-operates/"><u>Examining How FB's Adjudicative Panel Operates</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-customization-secrets-must-try-app-options/"><u>Facebook Customization Secrets: Must-Try App Options</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-cyberpunk-2077-analysis-a-game-of-brilliance-marred-by-imperfections/"><u>In-Depth Cyberpunk 2077 Analysis: A Game of Brilliance Marred by Imperfections</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/install-hp-thunderbolt-docking-station-g2-complete-guide-to-downloading-120w230w-drivers/"><u>Install HP Thunderbolt Docking Station G2: Complete Guide to Downloading 120W/230W Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-phones-algorithm-making-marketing-decisions-for-you/"><u>Is Your Phone's Algorithm Making Marketing Decisions For You?</u></a></li>
+<li><a href="https://facebook.techidaily.com/professional-networking-meets-friend-circles-fb-or-linkedin-groups/"><u>Professional Networking Meets Friend Circles: FB or LinkedIn Groups?</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-online-leadership-new-admin-resources-by-fb/"><u>Redefining Online Leadership: New Admin Resources by FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-the-virtual-world-social-medias-new-heroes/"><u>Revolutionizing the Virtual World: Social Media's New Heroes</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-governance-panel-prepares-verdict-on-trump-ban/"><u>Social Media Governance Panel Prepares Verdict on Trump Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-best-apps-for-erasing-past-facebook-faux-pas/"><u>The Best Apps for Erasing Past Facebook Faux Pas</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncover-disappearing-images-from-online-discussions/"><u>Uncover Disappearing Images From Online Discussions</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-how-to-use-adjustment-layer-in-photoshop-for-2024/"><u>Updated How to Use Adjustment Layer in Photoshop for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Uncovering Your FB Block List: A Guide"
-date: 2024-10-05T17:30:32.520Z
-updated: 2024-10-09T04:44:55.846Z
+date: 2024-10-10T11:27:51.459Z
+updated: 2024-10-14T23:26:17.946Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ Close
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Your Blocked List on the Web
@@ -56,10 +56,10 @@ Close
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
@@ -72,10 +72,10 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can People Tell if You've Blocked Them on Facebook?
@@ -87,10 +87,10 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
@@ -112,21 +112,14 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-4-ways-to-set-up-your-youtube-talking-head-shots/"><u>[New] 2024 Approved 4 Ways To Set Up Your YouTube Talking-Head Shots</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-complete-snapchat-editors-toolbox-for-photo-finesse/"><u>[Updated] 2024 Approved The Complete Snapchat Editor's Toolbox for Photo Finesse</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-5-things-you-should-know-when-using-tiktok-web-on-mac-for-2024/"><u>[Updated] 5 Things You Should Know When Using TikTok Web on Mac for 2024</u></a></li>
-<li><a href="https://discover-great.techidaily.com/10-2024/"><u>卒業記念曲トップ10 〜鮮烈に残る歌のリコメンド:2024年 - 明るさと情感が調和した選曲、合唱で思い出を作る</u></a></li>
-<li><a href="https://facebook.techidaily.com/augmented-reality-takes-a-leap-forward-on-messenger/"><u>Augmented Reality Takes a Leap Forward on Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-facebooks-link-tracking-the-hidden-costs/"><u>Avoid Facebook's Link Tracking: The Hidden Costs</u></a></li>
-<li><a href="https://win11.techidaily.com/breaking-into-windows-passwords-the-11-easiest-ways-to-open-credential-manager/"><u>Breaking Into Windows Passwords: The 11 Easiest Ways to Open Credential Manager</u></a></li>
-<li><a href="https://facebook.techidaily.com/complementing-text-with-visuals-whatsapp-and-facebook-images/"><u>Complementing Text with Visuals: WhatsApp & Facebook Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-upsurge-is-it-nearing-climb-out/"><u>Facebook's Upsurge: Is It Nearing Climb-Out?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-samsung-galaxy-a05s-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Samsung Galaxy A05s to iPhone | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-platforms-alleged-ban-on-authentic-marketing/"><u>Online Platform's Alleged Ban on Authentic Marketing</u></a></li>
-<li><a href="https://facebook.techidaily.com/recognize-privacy-breaches-pc-and-email-monitoring/"><u>Recognize Privacy Breaches: PC & Email Monitoring</u></a></li>
-<li><a href="https://fox-that.techidaily.com/struggling-with-find-my-iphone-heres-why-it-shows-offline-and-how-to-fix-it/"><u>Struggling with Find My iPhone? Here’s Why It Shows ‘Offline’ & How to Fix It</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-pursuit-of-ultra-clarity-the-4k-z32x-reviewed/"><u>The Pursuit of Ultra Clarity The 4K Z32X Reviewed</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/unlock-full-scale-viewing-on-facebook/"><u>Unlock Full-Scale Viewing on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-the-metaverse/"><u>What Is the Metaverse?</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-harmonious-hits-where-to-find-rare-ringtone-files/"><u>[New] 2024 Approved Harmonious Hits Where to Find Rare Ringtone Files</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-face-to-face-video-glitch-9-quick-fixes-for-fir-chrome-safari-users/"><u>[Updated] Face-to-Face Video Glitch 9 Quick Fixes for Fir, Chrome, Safari Users</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-improving-hues-a-beginners-approach-to-ps-grading/"><u>2024 Approved Improving Hues A Beginner's Approach to PS Grading</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/innovative-tactics-for-stellar-facebook-ad-videos/"><u>Innovative Tactics for Stellar Facebook Ad Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/revelations-post-fb-account-termination/"><u>Revelations Post-FB Account Termination</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/stay-motivated-while-exercising-with-the-new-garmin-vivoactive-3-music-and-tracking-combined/"><u>Stay Motivated While Exercising with the New Garmin Vivoactive 3 – Music & Tracking Combined</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-downfall-of-trust-five-times-facebook-disappointed-users/"><u>The Downfall of Trust: Five Times Facebook Disappointed Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essence-and-mechanics-of-photodna-explored/"><u>The Essence and Mechanics of PhotoDNA Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pivotal-aspects-of-metas-new-online-privacy-policy/"><u>The Pivotal Aspects of Meta’s New Online Privacy Policy</u></a></li>
 </ul></div>
 

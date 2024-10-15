@@ -1,7 +1,7 @@
 ---
 title: Spotlight on Today's Popular FB Video Sessions
-date: 2024-10-03T00:02:51.220Z
-updated: 2024-10-08T22:17:11.802Z
+date: 2024-10-11T04:21:05.039Z
+updated: 2024-10-15T09:59:41.105Z
 tags:
   - facebook
 categories:
@@ -45,13 +45,6 @@ That's it. Here you will find all the recently watched videos.
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Filter Facebook Watched Videos by Date on the Web
 
  If you want to view videos watched in a particular month and year, you can do that too. Here's how:
@@ -60,23 +53,17 @@ That's it. Here you will find all the recently watched videos.
 2. Click the**Date** option in the left sidebar.  
 ![Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date-option.jpg)
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to View Recently Watched Facebook Videos on Android and iOS
 
@@ -87,6 +74,13 @@ That's it. Here you will find all the recently watched videos.
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -105,14 +99,14 @@ Close
 
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
-![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
 Close
 
@@ -120,6 +114,13 @@ Close
 2. Slide the available activities to the left and choose the Videos watched option.
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
 
@@ -140,18 +141,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-blend-mp3s-with-presentation-content-in-ppt-for-2024/"><u>[New] Blend MP3s with Presentation Content in PPT for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-clipcutting-masterwin8/"><u>[Updated] ClipCutting MasterWin8</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-restore-natural-tones-reviving-overexposed-iphone-hdr-videos-in-premiere-pro/"><u>[Updated] Restore Natural Tones Reviving Overexposed iPhone HDR Videos in Premiere Pro</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-vr-frontier-who-holds-the-crown-for-2024/"><u>[Updated] The VR Frontier Who Holds the Crown for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-detailed-walkthrough-for-renaming-yourself-on-facebook/"><u>A Detailed Walkthrough for Renaming Yourself on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/becoming-a-brand-ambassador-online/"><u>Becoming a Brand Ambassador Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/before-you-disconnect-key-steps-to-consider-for-your-fb-exit/"><u>Before You Disconnect: Key Steps to Consider for Your FB Exit</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-bridges-between-games-and-growth-integrating-social-accounts-on-xbox/"><u>Building Bridges Between Games and Growth: Integrating Social Accounts on Xbox</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/discover-easy-methods-to-identify-your-videos-codec-top-3-solutions-inside/"><u>Discover Easy Methods to Identify Your Video's Codec – Top 3 Solutions Inside</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-mastering-audible-content-conversion-into-slide-ready-format-with-powerpoint/"><u>In 2024, Mastering Audible Content Conversion Into Slide-Ready Format with PowerPoint</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/pro-video-editing-compatible-software-across-windows-systems-for-2024/"><u>Pro Video Editing Compatible Software Across Windows Systems for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-a-non-charging-surface-is-it-really-plugged-in/"><u>Troubleshooting a Non-Charging Surface: Is It Really Plugged In?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-ultimate-speed-boost-for-vimeo-videos/"><u>[New] In 2024, Ultimate Speed Boost for Vimeo Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-direction-and-intensity-in-video-lighting/"><u>[Updated] 2024 Approved Direction and Intensity in Video Lighting</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-best-of-the-best-curated-list-of-spectacular-offline-ios-titles/"><u>[Updated] In 2024, Best of the Best Curated List of Spectacular Offline iOS Titles</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-inexpensive-high-quality-cameras/"><u>[Updated] Inexpensive High-Quality Cameras</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-complete-guide-to-whatsapp-audio-communication-for-2024/"><u>[Updated] The Complete Guide to WhatsApp Audio Communication for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-100-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on 100</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-netizen-language-30-must-learn-abbreviations/"><u>Navigating Netizen Language: 30 Must-Learn Abbreviations</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/passfab-iphone-6-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>PassFab iPhone 6 Backup Unlocker Top 4 Alternatives</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/simplifying-mail-management-a-comprehensive-guide-to-multi-selection-in-googles-email-platform/"><u>Simplifying Mail Management: A Comprehensive Guide to Multi-Selection in Google's Email Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-anonymous-advocates-playbook/"><u>The Anonymous Advocate's Playbook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-impact-on-protection-the-deletion-of-user-faceprints-on-fb/"><u>Unraveling the Impact on Protection: The Deletion of User Faceprints on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebook-layout-and-navigation-updates/"><u>Unveiling Facebook Layout & Navigation Updates</u></a></li>
 </ul></div>
 

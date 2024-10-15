@@ -1,7 +1,7 @@
 ---
 title: The New Game for Facebook Post-iOS 14.5 Release
-date: 2024-09-13T00:15:20.289Z
-updated: 2024-09-17T00:17:35.591Z
+date: 2024-10-13T10:05:36.090Z
+updated: 2024-10-14T19:48:51.636Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/1139b752cbc32f334a7708e871f23f8ed96ff0366
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
 
  Facebook's primary source of revenue is selling advertising space on its social media platforms.
@@ -56,31 +63,37 @@ thumbnail: https://thmb.techidaily.com/1139b752cbc32f334a7708e871f23f8ed96ff0366
 
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Many Users Allow App Tracking?
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What Does This All Mean for Facebook?
 
@@ -95,6 +108,13 @@ thumbnail: https://thmb.techidaily.com/1139b752cbc32f334a7708e871f23f8ed96ff0366
  While this seems like a disaster for Facebook at first glance, it remains to be seen how badly it will affect the company.
 
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Facebook's Likely Response
 
@@ -119,5 +139,26 @@ thumbnail: https://thmb.techidaily.com/1139b752cbc32f334a7708e871f23f8ed96ff0366
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-the-ultimate-guide-to-free2x-cam-recorders/"><u>[New] 2024 Approved The Ultimate Guide to Free2X Cam Recorders</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-seamless-setup-swift-sharing-the-essential-guide-to-ifunny-apps-for-2024/"><u>[Updated] Seamless Setup, Swift Sharing The Essential Guide to iFunny Apps for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-organizing-soundtracks-formulating-a-youtube-music-list/"><u>2024 Approved Organizing Soundtracks Formulating a YouTube Music List</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-perfecting-elite-canon-time-lapse-cinematic/"><u>2024 Approved Perfecting Elite Canon Time-Lapse Cinematic</u></a></li>
+<li><a href="https://win11.techidaily.com/a-primer-on-locating-and-navigating-components-management-console/"><u>A Primer on Locating & Navigating Components Management Console</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-coding-capabilities-through-facebook-rust-alliance/"><u>Enhancing Coding Capabilities Through Facebook-Rust Alliance</u></a></li>
+<li><a href="https://win-blog.techidaily.com/expert-tips-to-resolve-rapid-steam-crashes-and-enjoy-uninterrupted-gaming/"><u>Expert Tips to Resolve Rapid Steam Crashes and Enjoy Uninterrupted Gaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/fighting-fib-facebook-bolsters-its-penalty-power-against-lies/"><u>Fighting Fib: Facebook Bolsters Its Penalty Power Against Lies</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/how-often-do-youtubers-receive-income-for-2024/"><u>How Often Do YouTubers Receive Income for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-mention-all-group-members-in-a-facebook-post/"><u>How to Mention All Group Members in a Facebook Post</u></a></li>
+<li><a href="https://extra-information.techidaily.com/imagemagick-studio-walkthrough/"><u>ImageMagick Studio Walkthrough</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-the-future-web-decoding-facebooks-metaverse-concepts/"><u>Inside The Future Web: Decoding Facebook’s Metaverse Concepts</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/lost-your-ipad-passcode-heres-how-to-regain-entry-easily/"><u>Lost Your iPad Passcode? Here's How to Regain Entry Easily!</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-message-formatting-emphasizing-text-with-bold-and-italics/"><u>Mastering Message Formatting: Emphasizing Text with Bold & Italics</u></a></li>
+<li><a href="https://win-latest.techidaily.com/no-cost-continuous-data-syncing-with-your-external-hard-disk/"><u>No Cost Continuous Data Syncing with Your External Hard Disk</u></a></li>
+<li><a href="https://facebook.techidaily.com/predictive-more-cryptos-more-social-ads/"><u>Predictive: More Cryptos, More Social Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/remain-vigilant-hidden-messages-on-facebook-app/"><u>Remain Vigilant: Hidden Messages on Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-image-ownership-on-web-platforms/"><u>Understanding Image Ownership on Web Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-exposed-the-shadow-behind-fb-written-code/"><u>Who Exposed the Shadow Behind FB’ Written Code</u></a></li>
+</ul></div>
 

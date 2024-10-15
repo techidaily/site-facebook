@@ -1,7 +1,7 @@
 ---
 title: Oculus Launches Customizable Digital Alter Egos
-date: 2024-09-11T20:00:38.559Z
-updated: 2024-09-17T00:09:07.634Z
+date: 2024-10-09T05:49:02.758Z
+updated: 2024-10-15T03:32:48.176Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,19 @@ thumbnail: https://thmb.techidaily.com/d68b2c77d9bc6992a97b4d45a79ba7275bc346cfc
 
  With the new update, the Editor allows users to view their Avatar's legs as well. Users can select their desired clothing for the legs, although it won't be visible outside the Editor. Oculus mentioned that "elsewhere in VR, avatars will only display from the waist up."
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Updated Avatars Available For a Few Games
 
  In the blog post, Oculus mentioned that on the release date, new Avatars in a handful of games only—Epic Roller Coasters, Poker Stars VR, and Topgolf with Pro Putt. Naturally, the list of supported games will expand soon. Currently, Facebook has confirmed the new Avatars will soon be supported in Synth Riders, ForeVR Bowling, and Facebook Horizon.
@@ -43,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/d68b2c77d9bc6992a97b4d45a79ba7275bc346cfc
  Related:[Is Virtual Reality Really the Future of Everything?](https://www.makeuseof.com/virtual-reality-future-of-everything/)
 
  The company also plans to make these Avatars available on platforms such as the Facebook app, Messenger, and Instagram.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The New Avatars Come With Better Movement
 
@@ -65,18 +85,22 @@ thumbnail: https://thmb.techidaily.com/d68b2c77d9bc6992a97b4d45a79ba7275bc346cfc
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/nlock-creative-power-of-youtube-themes-for-2024/"><u>[New] Unlock Creative Power of YouTube Themes for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/creating-comedy-gold-top-8-techniques-that-shape-meme-artistry/"><u>Creating Comedy Gold Top 8 Techniques That Shape Meme Artistry</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-to-limit-fb-profile-image-access/"><u>Essential Steps to Limit FB Profile Image Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-assessment-on-trump-profile-suspension/"><u>Facebook Assessment on Trump Profile Suspension</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-buying-a-facebook-portal-model/"><u>Guide to Buying a Facebook Portal Model</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/how-to-add-stickers-to-instagram/"><u>How to Add Stickers to Instagram?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-stop-airpods-from-switching-between-apple-devices/"><u>How to Stop AirPods From Switching Between Apple Devices</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-two-sides-to-every-story-how-to-create-balanced-reaction-videos-on-youtube-2-pov-approach/"><u>In 2024, Two Sides to Every Story – How to Create Balanced Reaction Videos on YouTube (2 POV Approach)</u></a></li>
+<li><a href="https://facebook.techidaily.com/propel-interactive-platforms-with-stories-and-page-polling/"><u>Propel Interactive Platforms with Stories & Page Polling</u></a></li>
+<li><a href="https://facebook.techidaily.com/reject-unwanted-friend-recommendations-by-fb/"><u>Reject Unwanted Friend Recommendations by FB</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/ultimate-guide-to-exceptional-e-learning-sites-excluding-udemy-for-2024/"><u>Ultimate Guide to Exceptional E-Learning Sites Excluding Udemy for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unfolding-details-the-upcoming-samsung-z-fold-4s-specs-market-price-and-release-info/"><u>Unfolding Details: The Upcoming Samsung Z Fold 4'S Specs, Market Price & Release Info</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-a-cautious-approach-to-online-friendships-is-vital/"><u>Why a Cautious Approach to Online Friendships Is Vital</u></a></li>
+<li><a href="https://facebook.techidaily.com/wipe-your-fb-alerts-an-instructional-article/"><u>Wipe Your Fb Alerts: An Instructional Article</u></a></li>
+</ul></div>
 

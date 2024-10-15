@@ -1,7 +1,7 @@
 ---
 title: Unraveling FB's Image Sharing Policies
-date: 2024-09-10T16:14:53.688Z
-updated: 2024-09-16T18:17:48.772Z
+date: 2024-10-10T11:10:05.221Z
+updated: 2024-10-15T05:32:06.941Z
 tags:
   - facebook
 categories:
@@ -37,6 +37,13 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
 * **Location:** Does your photo reveal where you are? If you're at home, have you just revealed your home address to the world?
 * **Embarrassment:** Has someone posted a snap of you in a compromising position? You probably don't want your family or your boss to see it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook and Photo Privacy
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
@@ -61,13 +68,6 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
  Open the photo, and in the upper right-hand corner, you'll see the same dropdown menu as you see when setting inline privacy. Just choose your desired audience.
@@ -77,6 +77,13 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
  You can edit photos on a case-by-case basis in the**Profile Pictures** album, the**Cover Photos** album, the**Mobile Uploads** album, and the**Timeline Photos** album. However, other albums apply the same setting to all the photos within them.
 
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
 
@@ -89,15 +96,22 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Photos You're Tagged In
 
@@ -114,13 +128,6 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
 ### Tag Suggestions
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
@@ -143,5 +150,24 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-streamlined-screen-recording-on-mac-best-apps-of-choice-for-2024/"><u>[New] Streamlined Screen Recording on Mac Best Apps of Choice for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-elevate-engagement-4-steps-to-add-fb-story-link-for-2024/"><u>[Updated] Elevate Engagement 4 Steps to Add FB Story Link for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-joshis-success-youtube-earnings-strategy/"><u>[Updated] Joshi's Success YouTube Earnings Strategy</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-innovating-imagery-topiary-techniques-for-stellar-iphone-photos/"><u>2024 Approved Innovating Imagery Topiary Techniques for Stellar iPhone Photos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/budget-friendly-pro-gamers-essentials-keyboards/"><u>Budget-Friendly Pro Gamers' Essentials Keyboards</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-samsung-galaxy-z-flip-5-support-mov-videos-by-aiseesoft-video-converter-play-mov-on-android/"><u>Does Samsung Galaxy Z Flip 5 support MOV videos ?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-vivo-x100-pro-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Vivo X100 Pro Phone Hassle-Free</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-handling-minors-in-facebook-groups/"><u>Instructions: Handling Minors in Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-account-protection-in-case-of-loss/"><u>Mastering Account Protection in Case of Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-hidden-meanings-on-fb-chat/"><u>Mastering the Art of Hidden Meanings on FB Chat</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-mapping-techniques-finding-facebook-profilepage-links/"><u>Social Mapping Techniques: Finding Facebook Profile/Page Links</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-impact-of-ai-can-gpt-3-enhance-health-services/"><u>The Impact of AI: Can GPT-3 Enhance Health Services?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-age-of-profiles-unbiased-and-nonpartisan-expression/"><u>The New Age of Profiles: Unbiased and Nonpartisan Expression</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-must-have-features-in-crowdflower-software-for-marketers/"><u>Top 8 Must-Have Features in CrowdFlower Software for Marketers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-9-strategies-for-efficient-video-compression-before-sending-via-email/"><u>Top 9 Strategies for Efficient Video Compression Before Sending via Email</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-truths-from-the-hidden-files-of-facebook/"><u>Uncovering Truths From The Hidden Files of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-portions-of-facebooks-725m-settlement-fund/"><u>Unlocking Portions of Facebook's $725M Settlement Fund</u></a></li>
+</ul></div>
 

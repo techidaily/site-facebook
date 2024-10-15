@@ -1,7 +1,7 @@
 ---
 title: English Sports Teams Begin Their Boycott of Social Media
-date: 2024-10-06T22:40:38.742Z
-updated: 2024-10-08T21:09:45.854Z
+date: 2024-10-11T20:03:45.780Z
+updated: 2024-10-15T04:00:04.557Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Will the Social Media Blackout Involve?
@@ -44,10 +44,16 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Are Sports Teams Boycotting Social Media?
@@ -61,10 +67,10 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Taking a Stand Against Racism
@@ -86,18 +92,18 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-newbies-guide-to-understanding-core-filming-techniques/"><u>[New] 2024 Approved The Newbie's Guide to Understanding Core Filming Techniques</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-ideal-recording-software-to-enrich-your-online-collaboration-for-2024/"><u>[New] Ideal Recording Software to Enrich Your Online Collaboration for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-ingenious-approaches-to-facebook-video-ad-crafting/"><u>[New] In 2024, Ingenious Approaches to Facebook Video Ad Crafting</u></a></li>
-<li><a href="https://facebook.techidaily.com/2022s-best-listened-to-podcasts-explored-here/"><u>2022'S Best Listened-To Podcasts Explored Here</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-unsolicited-friend-invites-with-tactics/"><u>Avoid Unsolicited Friend Invites with Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149053972-boosting-your-message-privacy-facebooks-latest-features-enable-secure-chat-and-call-communications/"><u>Boosting Your Message Privacy: Facebook's Latest Features Enable Secure Chat and Call Communications</u></a></li>
-<li><a href="https://facebook.techidaily.com/broadcasting-ig-live-silent-mute-is-fine/"><u>Broadcasting IG Live: Silent, Mute Is Fine</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-blocks-of-connection-facebooks-neighborhood-revamp/"><u>Building Blocks of Connection: Facebook's Neighborhood Revamp</u></a></li>
-<li><a href="https://facebook.techidaily.com/chill-hangouts-positive-interaction-tips-for-fb-friends/"><u>Chill Hangouts: Positive Interaction Tips for FB Friends</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/examining-the-elegant-yet-imperfect-asus-bw-16d1x-u-blu-ray-writer-a-thorough-review/"><u>Examining the Elegant Yet Imperfect Asus BW-16D1X-U Blu-Ray Writer: A Thorough Review</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-essential-youtube-end-screen-templates-for-content-makers/"><u>In 2024, Essential YouTube End Screen Templates for Content Makers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-navigating-the-complexities-of-facebook-slideshow-tools/"><u>In 2024, Navigating the Complexities of Facebook Slideshow Tools</u></a></li>
-<li><a href="https://driver-install.techidaily.com/stop-elite-dangerous-from-freezing-ultimate-pc-troubleshooting-guide/"><u>Stop Elite Dangerous From Freezing: Ultimate PC Troubleshooting Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-an-easy-to-follow-guide-to-applying-cc-license-types/"><u>[New] 2024 Approved An Easy-to-Follow Guide to Applying CC License Types</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-future-of-content-creation-profitability-on-youtube/"><u>[Updated] 2024 Approved The Future of Content Creation Profitability on YouTube</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-creative-showdown-ranking-three-advanced-chatbots-against-a-common-task/"><u>AI Creative Showdown: Ranking Three Advanced Chatbots Against a Common Task</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/amplify-engagement-broadcasting-from-twitch-to-facebook-for-2024/"><u>Amplify Engagement Broadcasting From Twitch to Facebook for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/boost-your-vm-capabilities-upgrading-to-virtualbox-70-in-win11/"><u>Boost Your VM Capabilities: Upgrading to VirtualBox 7.0 in Win11</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolutionary-leap-why-now-meet-a-social-innovator-at-facebook/"><u>Evolutionary Leap: Why Now, Meet a 'Social Innovator' At Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-restraint-how-will-upcoming-us-antitrust-laws-impact-big-tech/"><u>Innovating Restraint: How Will Upcoming US Antitrust Laws Impact Big Tech?</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-launches-customizable-digital-alter-egos/"><u>Oculus Launches Customizable Digital Alter Egos</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-windows-enter-button-failures/"><u>Overcoming Windows Enter Button Failures</u></a></li>
+<li><a href="https://facebook.techidaily.com/renewables-redefined-facebooks-complete-energy-overhaul/"><u>Renewables Redefined: Facebook's Complete Energy Overhaul</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722892372280-snapchat-tricks-unveiled-transforming-forward-videos-into-reversed-magic/"><u>Snapchat Tricks Unveiled: Transforming Forward Videos Into Reversed Magic</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-integration-at-what-cost-dissecting-the-pros-and-cons-of-facebook-for-app-sign-ins/"><u>Social Integration at What Cost? Dissecting the Pros & Cons of Facebook for App Sign-Ins</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-next-big-thing-in-smartphones-exclusive-insights-into-the-iphone-16-16-pro-and-max/"><u>The Next Big Thing in Smartphones - Exclusive Insights Into the iPhone 16, 16 Pro & Max</u></a></li>
 </ul></div>
 

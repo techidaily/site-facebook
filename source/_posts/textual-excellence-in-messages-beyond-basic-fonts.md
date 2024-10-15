@@ -1,7 +1,7 @@
 ---
 title: "Textual Excellence in Messages: Beyond Basic Fonts"
-date: 2024-10-06T00:41:40.872Z
-updated: 2024-10-08T18:14:29.891Z
+date: 2024-10-11T04:04:12.509Z
+updated: 2024-10-14T21:05:50.099Z
 tags:
   - facebook
 categories:
@@ -34,23 +34,9 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
  Here are the symbols to use for different types of formatting, along with examples of how it looks when you send a message.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Add Bold Text in Messenger
 
 ![Bold text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/bold-text-demo-messenger.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  To make a text bold, type an asterisk (\*) before and after the text. Bold text is most often used for strong emphasis on important phrases and keywords.
 
@@ -64,38 +50,26 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
 ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Use Monospace Text in Messenger
 
 ![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
@@ -104,9 +78,23 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Send Blocks of Code in Messenger
 
 ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
 
@@ -141,22 +129,17 @@ To send text in a block of code:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ring-imagination-to-life-self-animated-artistry-for-2024/"><u>[New] Bring Imagination to Life Self-Animated Artistry for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-decoding-the-mechanics-a-deep-dive-into-webcam-tech/"><u>[Updated] In 2024, Decoding the Mechanics A Deep Dive Into Webcam Tech</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-whatsapp-web-for-laptops-setting-up-remote-video-calls-step-by-step/"><u>2024 Approved WhatsApp Web for Laptops Setting Up Remote Video Calls Step by Step</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Honor Play 8T | Dr.fone</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/compact-wonder-the-theta-sc2s-portable-vr-journey/"><u>Compact Wonder: The Theta SC2's Portable VR Journey</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719144841416-facebooks-vision-for-virtual-reality-the-call-for-10k-developers/"><u>Facebook's Vision for Virtual Reality: The Call for 10K Developers.</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-resuscitate-a-non-responsive-facebook-profile/"><u>How to Resuscitate a Non-Responsive Facebook Profile</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-successfully-fix-problems-with-configuring-your-windows-updates/"><u>How to Successfully Fix Problems with Configuring Your Windows Updates</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/leveraging-snap-functions-boosting-virtual-interaction-during-meets/"><u>Leveraging Snap Functions Boosting Virtual Interaction During Meets</u></a></li>
-<li><a href="https://facebook.techidaily.com/minimizing-visibility-of-post-endorsements/"><u>Minimizing Visibility of Post Endorsements</u></a></li>
-<li><a href="https://facebook.techidaily.com/monetize-masterfully-unveiling-5-innovative-earning-ideas-on-ig-and-fb/"><u>Monetize Masterfully: Unveiling 5 Innovative Earning Ideas on IG and FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/reflecting-on-2022s-biggest-tech-gaffes/"><u>Reflecting on 2022'S Biggest Tech Gaffes</u></a></li>
-<li><a href="https://extra-support.techidaily.com/resolving-common-windows-11-photo-app-problems-for-2024/"><u>Resolving Common Windows 11 Photo App Problems for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-for-correcting-gtfo-crash-issues/"><u>Troubleshooting Tips for Correcting GTFO Crash Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-verified-status-on-meta-us-platform/"><u>Unlock Verified Status on Meta US Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-past-connections-discovering-friends-timelines/"><u>Unveiling Past Connections: Discovering Friends' Timelines</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-the-endless-scroll-might-be-more-than-just-an-inconvenience-on-facebook/"><u>Why the 'Endless Scroll' Might Be More Than Just an Inconvenience on Facebook</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-10-basic-blocks-house-concepts-for-mc-players-for-2024/"><u>[New] 10 Basic Blocks House Concepts for MC Players for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-captivate-and-conquer-with-customized-content-shorts/"><u>[Updated] Captivate and Conquer with Customized Content Shorts</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-tactics-for-private-profile-analysis/"><u>Expert Tactics for Private Profile Analysis</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-resolve-common-problems-in-microsoft-edge-for-a-smooth-browsing-experience/"><u>How To Resolve Common Problems in Microsoft Edge for a Smooth Browsing Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/refine-your-facebook-presence-effortlessly/"><u>Refine Your Facebook Presence, Effortlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-dilemma-to-use-or-not-to-use-facebook-events/"><u>Social Networking Dilemma: To Use or Not to Use Facebook Events?</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/stellar-file-eraser-v5-for-windows-expert-tips-on-automatic-trace-removal-with-customized-timetabling/"><u>Stellar File Eraser v5 for Windows - Expert Tips on Automatic Trace Removal with Customized Timetabling</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-solution-correcting-issues-with-the-lost-d3dx9amoled-dll-file/"><u>Step-by-Step Solution: Correcting Issues with the Lost D3dx9_amoled DLL File</u></a></li>
+<li><a href="https://facebook.techidaily.com/two-factor-authentication-made-easier-instagram-via-whatsapp/"><u>Two-Factor Authentication Made Easier: Instagram via WhatsApp</u></a></li>
+<li><a href="https://win-updates.techidaily.com/unveiling-the-truth-about-identity-theft-shields-are-they-really-helping-or-just-luring-you-into-a-false-sense-of-security/"><u>Unveiling the Truth About Identity Theft Shields: Are They Really Helping or Just Luring You Into a False Sense of Security?</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-in-2024-mastering-facebook-live-your-complete-guide-to-successful-streaming/"><u>Updated In 2024, Mastering Facebook Live Your Complete Guide to Successful Streaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vistas-seeing-facebook-and-instagram-fuse/"><u>Virtual Vistas: Seeing Facebook & Instagram Fuse</u></a></li>
 </ul></div>
 

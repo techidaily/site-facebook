@@ -1,7 +1,7 @@
 ---
 title: Majority Doubts Large Firms, Worries Stem From Facebook
-date: 2024-09-14T17:49:40.626Z
-updated: 2024-09-16T17:50:24.203Z
+date: 2024-10-11T06:39:53.407Z
+updated: 2024-10-15T08:38:25.407Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/4cf629d041b7e9add58db2334da6e6c6bff213af2
 
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Is the Least Trusted
 
  About 44% of Americans trust Apple and Microsoft. Google does better with 48% trust. Amazon does really well comparatively, as it has the trust of a majority 53% of users (Amazon and Washington Post are both owned by Jeff Bezos). Other users either distrust these four companies or have no opinion.
@@ -46,9 +53,23 @@ thumbnail: https://thmb.techidaily.com/4cf629d041b7e9add58db2334da6e6c6bff213af2
 
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is Facebook So Distrusted?
 
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
 
@@ -65,10 +86,10 @@ thumbnail: https://thmb.techidaily.com/4cf629d041b7e9add58db2334da6e6c6bff213af2
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -94,5 +115,21 @@ thumbnail: https://thmb.techidaily.com/4cf629d041b7e9add58db2334da6e6c6bff213af2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-engaging-audiences-on-instagram-the-power-of-creative-puzzles-for-2024/"><u>[New] Engaging Audiences on Instagram The Power of Creative Puzzles for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1726224236970-3g2-movavi/"><u>3G2ビデオファイルを即座に変換するための無料オンラインツール - MOVAVI</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-fbs-algorithms-for-content-selection/"><u>Deciphering Fb's Algorithms for Content Selection</u></a></li>
+<li><a href="https://facebook.techidaily.com/deepen-connections-with-interest-based-chat-games/"><u>Deepen Connections with Interest-Based Chat Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-delight-top-9-uplifting-aspects-of-your-screen-time/"><u>Digital Delight: Top 9 Uplifting Aspects of Your Screen Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/disable-unexpected-connection-proposals-in-facebook/"><u>Disable Unexpected Connection Proposals in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnect-intentions-unfriending-a-personality-page/"><u>Disconnect Intentions: Unfriending a Personality Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-essentials-top-10-fast-android-apps/"><u>Efficient Essentials: Top 10 Fast Android Apps</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-epson-xp-440-drivers-for-smooth-printing-operations/"><u>Get the Newest Epson XP-440 Drivers for Smooth Printing Operations</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-lava-yuva-2-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Lava Yuva 2 Pro to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/overcoming-common-keyboard-problems-a-comprehensive-guide-to-fixing-unresponsive-keys/"><u>Overcoming Common Keyboard Problems: A Comprehensive Guide to Fixing Unresponsive Keys</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/synergy-of-social-media-embedding-linktree-in-your-tiktok-bio/"><u>Synergy of Social Media Embedding Linktree in Your TikTok Bio</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-the-missing-mfplatdll-error-effective-solutions/"><u>Troubleshooting the 'Missing mfplat.dll' Error - Effective Solutions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/understanding-and-utilizing-facebooks-updated-marketing-techniques/"><u>Understanding & Utilizing Facebook’s Updated Marketing Techniques</u></a></li>
+</ul></div>
 

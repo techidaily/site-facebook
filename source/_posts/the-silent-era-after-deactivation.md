@@ -1,7 +1,7 @@
 ---
 title: The Silent Era After Deactivation
-date: 2024-09-14T21:56:02.455Z
-updated: 2024-09-16T17:43:47.212Z
+date: 2024-10-11T18:44:23.680Z
+updated: 2024-10-15T04:28:14.586Z
 tags:
   - facebook
 categories:
@@ -56,13 +56,6 @@ thumbnail: https://thmb.techidaily.com/c889a547e421f550d3854604da4881f54e6123831
 
  If you still exist on Facebook, attempt to log back in, and then try to deactivate again. If this still doesn't work, you can[complain to Facebook](https://en-gb.facebook.com/help/reportlinks/) or take the next step: deletion. Before you do that, read on to find out what you need to do before deleting Facebook entirely.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Do My Comments Disappear if I Deactivate Facebook?
 
  If deactivation has worked, your posts on your own timeline won't be publicly visible, and your friends shouldn't be able to see them either. Your whole profile will have gone. But that doesn't mean comments you've made to others will disappear as well.
@@ -76,10 +69,10 @@ thumbnail: https://thmb.techidaily.com/c889a547e421f550d3854604da4881f54e6123831
  So what happens if you delete Facebook permanently? Facebook says it will erase your data within three months, but there are no guarantees that it will clear every last bit of flotsam and jetsam, i.e. comments, reactions, and posts on others' timelines. If you've had a large social media footprint, then some things might remain.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Tell if Someone Blocked You on Facebook or Deactivated Their Account
@@ -92,11 +85,25 @@ thumbnail: https://thmb.techidaily.com/c889a547e421f550d3854604da4881f54e6123831
 
 ![leaving social media no trace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Deactivate-or-Deleting-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  So how do you know if someone has blocked you on Facebook or deactivated their account?
 
  Go to a mutual friend's profile and check whether it shows the person in question. If their name is searchable, the profile still exists. Sadly, though, that probably means they blocked you.
 
  Check on Messenger; there could be a technical issue. You can't send a message to someone who has blocked you, and their profile picture will be replaced on any comments they've previously posted on your timeline.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can I Still Use Messenger Without Facebook?
 
@@ -125,10 +132,10 @@ thumbnail: https://thmb.techidaily.com/c889a547e421f550d3854604da4881f54e6123831
 ![how much does facebook know about me](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-activity.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Can you reactivate a deleted Facebook account? You can, but it's more difficult. You'll need to have taken steps to prepare for your reactivation**before** deletion.
@@ -164,5 +171,22 @@ thumbnail: https://thmb.techidaily.com/c889a547e421f550d3854604da4881f54e6123831
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-crafting-3d-text-a-step-by-step-guide-to-adobe-illustrator/"><u>[Updated] 2024 Approved Crafting 3D Text A Step-by-Step Guide to Adobe Illustrator</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-essential-insights-into-youtube-live-image-crafting/"><u>[Updated] In 2024, Essential Insights Into YouTube Live Image Crafting</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-frostfangs-frequency-prime-online-locations-for-tts-files/"><u>[Updated] In 2024, Frostfang's Frequency Prime Online Locations for TTS Files</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/dvddvd14/"><u>DVDクローニング：正式許可を得た上での無料DVDコピー方法：14ページ</u></a></li>
+<li><a href="https://facebook.techidaily.com/insights-into-online-networking-the-efficacy-of-hashtags-in-fb-marketplace/"><u>Insights Into Online Networking: The Efficacy of Hashtags in FB Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/invest-in-yourself-10-free-apps-for-social-savvy/"><u>Invest in Yourself: 10 FREE Apps for Social Savvy</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-linked-up-channels-top-5-social-platforms-for-firms/"><u>Leading Linked-Up Channels: Top 5 Social Platforms for Firms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-macs-ssd-swap-a-comprehensible-manual/"><u>Mastering Mac's SSD Swap - A Comprehensible Manual</u></a></li>
+<li><a href="https://facebook.techidaily.com/meet-the-new-portable-version-of-facebooks-portal/"><u>Meet the New Portable Version of Facebook's Portal</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solution-guide-why-google-chrome-isnt-starting-and-how-to-resolve-it/"><u>Solution Guide: Why Google Chrome Isn't Starting and How to Resolve It</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-inside-facebooks-fortification-mechanisms-and-activate-them/"><u>Step Inside Facebook’s Fortification Mechanisms and Activate Them</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/swift-transition-from-tiktok-creations-to-fb/"><u>Swift Transition From TikTok Creations to FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-face-of-todays-facebook-empire/"><u>The Face of Today's Facebook Empire</u></a></li>
+<li><a href="https://facebook.techidaily.com/timeline-the-transformation-of-facebook-into-meta/"><u>Timeline: The Transformation of Facebook Into Meta</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/wiping-windows-history-efficient-three-step-guide/"><u>Wiping Windows History: Efficient Three-Step Guide</u></a></li>
+</ul></div>
 

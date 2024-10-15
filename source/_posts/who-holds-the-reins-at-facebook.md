@@ -1,7 +1,7 @@
 ---
 title: Who Holds the Reins at Facebook?
-date: 2024-09-13T16:43:13.235Z
-updated: 2024-09-16T18:22:00.806Z
+date: 2024-10-12T11:36:42.035Z
+updated: 2024-10-15T03:03:34.456Z
 tags:
   - facebook
 categories:
@@ -34,9 +34,23 @@ thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c
 
  Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Who Owns Facebook Now?
 
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
 
@@ -48,6 +62,13 @@ thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c
 
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Did Facebook Rebrand to Meta?
 
  Facebook's rebrand happened because the brand outgrew the identity that it had come to be known for.
@@ -57,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Zuckerberg Still (Largely) Owns Meta
@@ -82,5 +103,21 @@ thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-masterful-free-fb-picture-and-film-producer/"><u>[Updated] 2024 Approved Masterful Free FB Picture & Film Producer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-streamlined-simplicity-ayts-quick-ways-to-blur-background/"><u>[Updated] Streamlined Simplicity AYT's Quick Ways to Blur Background</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-samsung-galaxy-s24-ultra-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Samsung Galaxy S24 Ultra? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/english-footballers-withdraw-from-digital-platforms-amid-cyberbullying-concerns/"><u>English Footballers Withdraw From Digital Platforms Amid Cyberbullying Concerns</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-the-expanded-experience-of-connectivity-with-xbox-marketplace/"><u>Explore the Expanded Experience of Connectivity with Xbox' Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/fast-friends-recognition-unveiling-the-best-three-facebook-tag-methods/"><u>Fast Friends Recognition: Unveiling the Best Three Facebook Tag Methods</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/get-your-windows-11-speakers-working-again-a-quick-audio-solution/"><u>Get Your Windows 11 Speakers Working Again - A Quick Audio Solution</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-against-facebooks-digital-history-trap/"><u>Guard Against Facebook's Digital History Trap</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-vivo-x100-pro-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Vivo X100 Pro Safely | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-masterclass-in-webp-to-jpeg-conversion/"><u>In 2024, Masterclass in WebP to JPEG Conversion</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-vivo-y27-4g-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Vivo Y27 4G Screen | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-streaming-showdown-the-duo/"><u>In 2024, Streaming Showdown The Duo</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-huawei-nova-y91-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Huawei Nova Y91 Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/trustworthiness-inquiry-for-facebook-security-email-(securityfbcom)/"><u>Trustworthiness Inquiry for Facebook Security Email @<security@fb.com></u></a></li>
+</ul></div>
 

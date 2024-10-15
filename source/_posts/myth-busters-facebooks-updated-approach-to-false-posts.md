@@ -1,7 +1,7 @@
 ---
 title: "Myth Busters: Facebook's Updated Approach to False Posts"
-date: 2024-10-01T19:03:26.832Z
-updated: 2024-10-09T06:21:52.682Z
+date: 2024-10-08T11:53:43.656Z
+updated: 2024-10-15T04:16:40.266Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,16 @@ thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb11
  This means that anyone who is friends with or follows that user will really have to dig through their News Feed in order to find that person's posts, whether they contain misinformation or not. Facebook's new penalty might be a bit extreme, but the platform clearly believes that this will put a stop to the spread of misinformation.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is Also Pushing New Notifications
@@ -48,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb11
 ![Facebook Pages misinformation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-misinformation-pages.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -61,10 +67,10 @@ thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb11
 ![Fact checker notification](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fact-checker-notification.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -72,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb11
  The notification also warns users that people "who repeatedly share false information might have their posts moved lower in News Feed so other people are less likely to see them." Users will then have the choice to either delete their post, or they can click a link to find out more about Facebook's fact-checking policies.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will Facebook's Strict Misinformation Policies Pay Off?
@@ -99,21 +105,15 @@ thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb11
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-squeezing-light-from-iphone-nocturnes/"><u>[New] Squeezing Light From iPhone Nocturnes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-demystifying-creator-studio-a-practical-handbook/"><u>[Updated] 2024 Approved Demystifying Creator Studio A Practical Handbook</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-navigating-the-nuances-of-slow-motion-video-with-gopro-hero-10/"><u>2024 Approved Navigating the Nuances of Slow Motion Video with GoPro Hero 10</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-closer-look-at-the-popularity-paradox-in-social-media/"><u>A Closer Look at the Popularity Paradox in Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/achieve-secure-email-engagement-mastery-of-2fa-on-popular-mail-services-like-google-and-microsoft/"><u>Achieve Secure Email Engagement: Mastery of 2FA on Popular Mail Services Like Google and Microsoft</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-secret-dialogues-on-facebook-well-guarded/"><u>Are Secret Dialogues on Facebook Well-Guarded?</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-falling-for-these-14-frequent-facebook-schemes/"><u>Avoid Falling for These 14 Frequent Facebook Schemes</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-free-from-excessive-fb-reel-watching/"><u>Breaking Free From Excessive FB Reel Watching</u></a></li>
-<li><a href="https://facebook.techidaily.com/browsing-back-through-personal-fb-history/"><u>Browsing Back Through Personal FB History</u></a></li>
-<li><a href="https://facebook.techidaily.com/curb-unexpected-people-proposals-on-facebook/"><u>Curb Unexpected People Proposals on Facebook</u></a></li>
-<li><a href="https://windows11.techidaily.com/demystifying-microsoft-family-safety-functions/"><u>Demystifying Microsoft Family Safety Functions</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-redmi-k70e-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Xiaomi Redmi K70E Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-the-nuances-of-nonlinear-audio-editing-in-audacity/"><u>In 2024, Navigating the Nuances of Nonlinear Audio Editing in Audacity</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/izing-reach-with-multi-network-content-sharing-for-2024/"><u>Maximizing Reach with Multi-Network Content Sharing for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-apple-iphone-14-pro-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From Apple iPhone 14 Pro</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/user-privacy-at-risk-potential-authy-incident-reveals-personal-contact-info/"><u>User Privacy at Risk: Potential Authy Incident Reveals Personal Contact Info</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-soundtrack-of-success-on-instagram/"><u>[New] In 2024, The Soundtrack of Success on Instagram</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-best-asmr-series-on-youtube-platform-for-2024/"><u>[Updated] Best ASMR Series on YouTube Platform for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-best-vimeo-video-downloaders/"><u>[Updated] In 2024, Best Vimeo Video Downloaders</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-get-monster-hunter-rise-running-after-update-issues/"><u>How To Get Monster Hunter Rise Running After Update Issues</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/leveraging-cookiebot-for-superior-search-engine-results/"><u>Leveraging Cookiebot for Superior Search Engine Results</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-removing-tags-from-online-images/"><u>Navigating the Maze of Removing Tags From Online Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giant-defines-humor-regulations/"><u>Social Media Giant Defines Humor Regulations</u></a></li>
+<li><a href="https://facebook.techidaily.com/soundtrack-to-social-interaction-exploring-the-impact-of-facebook-and-spotifys-boombox/"><u>Soundtrack to Social Interaction: Exploring the Impact of Facebook & Spotify's Boombox</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/understanding-and-solving-persistent-black-display-errors-on-your-device/"><u>Understanding and Solving Persistent Black Display Errors on Your Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-app-connects-you-best-survey-here/"><u>Which App Connects You Best? Survey Here</u></a></li>
 </ul></div>
 

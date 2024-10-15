@@ -1,7 +1,7 @@
 ---
 title: "Underappreciated Innovations: The Most Important Unnoticed Tech News"
-date: 2024-09-14T21:42:30.398Z
-updated: 2024-09-16T21:36:33.458Z
+date: 2024-10-11T23:09:43.708Z
+updated: 2024-10-15T04:09:26.715Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,23 @@ thumbnail: https://thmb.techidaily.com/2759ed3d822d64726b5041a7dfa5154bfc20081c3
 
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The $2.9 Million Tweet
 
 ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
@@ -53,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/2759ed3d822d64726b5041a7dfa5154bfc20081c3
  Related:[Jack Dorsey Sells the First-Ever Tweet](https://www.makeuseof.com/jack-dorsey-sold-first-tweet/)
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to[professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Welcome to the Metaverse
 
@@ -69,10 +90,10 @@ thumbnail: https://thmb.techidaily.com/2759ed3d822d64726b5041a7dfa5154bfc20081c3
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Apple and Facebook's Privacy War
@@ -88,19 +109,6 @@ thumbnail: https://thmb.techidaily.com/2759ed3d822d64726b5041a7dfa5154bfc20081c3
  Related:[How iOS 14.5 Will Hurt Facebook](https://www.makeuseof.com/how-the-ios-14-5-update-is-going-to-really-hurt-facebook/)
 
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
-
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What Tech News Will We See in 2022?
 
@@ -121,5 +129,20 @@ thumbnail: https://thmb.techidaily.com/2759ed3d822d64726b5041a7dfa5154bfc20081c3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-android-melody-manual-best-free-youtube-downloader-tools-for-2024/"><u>[New] Android Melody Manual Best Free YouTube Downloader Tools for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-comprehensive-guide-to-capturing-perfect-instagram-covers/"><u>[New] In 2024, The Comprehensive Guide to Capturing Perfect Instagram Covers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-essential-guidelines-for-choosing-the-right-podcast-name/"><u>[Updated] 2024 Approved Essential Guidelines for Choosing the Right Podcast Name</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-capture-memories-in-high-quality-a-comprehensive-guide-to-logitech-webcam-use-for-2024/"><u>[Updated] Capture Memories in High Quality A Comprehensive Guide to Logitech Webcam Use for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-charting-your-path-strategies-that-lead-to-1m-audience/"><u>2024 Approved Charting Your Path Strategies That Lead to 1M Audience</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-monetary-value-of-meta-verification/"><u>Evaluating the Monetary Value of Meta Verification</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-keys-to-streamlined-social-media/"><u>Five Keys to Streamlined Social Media</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pioneering-virtual-experiences-a-report/"><u>In 2024, Pioneering Virtual Experiences A Report</u></a></li>
+<li><a href="https://techtrends.techidaily.com/navigate-through-the-best-highly-secure-email-service-options-available/"><u>Navigate Through the Best Highly Secure Email Service Options Available</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-file-retrieval-from-facebook-gallery/"><u>Navigating File Retrieval From Facebook Gallery</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-speculated-over-ad-veracity-policy/"><u>Social Network Speculated Over Ad Veracity Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-six-for-a-divided-tech-community/"><u>Top Six for a Divided Tech Community</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-quick-access-to-command-line-tools-from-any-folder-on-windows/"><u>Unlocking Quick Access to Command Line Tools From Any Folder on Windows</u></a></li>
+</ul></div>
 

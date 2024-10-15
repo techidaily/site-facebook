@@ -1,7 +1,7 @@
 ---
 title: "Social Sphere Stewardship: Implementing the New Features for Group Management on FB"
-date: 2024-10-06T17:35:10.700Z
-updated: 2024-10-08T19:55:59.567Z
+date: 2024-10-12T17:04:05.966Z
+updated: 2024-10-14T22:04:25.374Z
 tags:
   - facebook
 categories:
@@ -35,31 +35,31 @@ In a nutshell, these new moderation tools allow group admins to:
 
  Related:[When Is the Best Time to Post on Facebook?](https://www.makeuseof.com/best-time-to-post-on-facebook/)
 
-## How to Use Facebook's New Moderation Tools
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## How to Use Facebook's New Moderation Tools
 
 ### Content Moderation
 
 ![Use Admin Assist to restrict activity](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/FB---Admin-Assist.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  This tool allows you to police posts, comments, and promotions. If you'd like to moderate spam comments, for example, here's how:
 
  1\. Click**Admin Assist** on the left side of the screen. Then click**Add** next to**Decline incoming post if** .
 
 ![Decline incoming posts in Facebook Groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Decline-incoming-posts-in-Facebook-Groups.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  2\. Click on the**Spam posts** option and either choose the default criteria or click**Edit** to change how you'd like to mark spam. Finally, click**Apply Criteria** .
 
@@ -68,10 +68,10 @@ In a nutshell, these new moderation tools allow group admins to:
  You can follow the same steps to moderate how published posts will be removed and whether people can comment.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conflict Alerts
@@ -101,15 +101,22 @@ In a nutshell, these new moderation tools allow group admins to:
 ![Remove Comment screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/RemoveComment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Before this feature works, however, you will need to create a set of rules for your group. You can navigate to**Group Rules** in the left sidebar to do so.
 
 ![Group Rules in FB Groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Group-Rules-in-FB-Groups.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Keyword Alerts
 
@@ -120,13 +127,6 @@ In a nutshell, these new moderation tools allow group admins to:
 3. Type the offending keywords, and click**Add** .
 
  Related:[Do Hashtags Work on Facebook? What You Need to Know](https://www.makeuseof.com/do-hashtags-work-on-facebook/)
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Gain More Control Over Your Facebook Groups
 
@@ -149,17 +149,16 @@ In a nutshell, these new moderation tools allow group admins to:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-effortlessly-transform-youtube-tunes-to-mp3-with-mac/"><u>[New] 2024 Approved Effortlessly Transform YouTube Tunes to MP3 with Mac</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-launchpad-logic-the-complete-framework-for-founders-of-a-reviews-channel-for-2024/"><u>[Updated] Launchpad Logic The Complete Framework for Founders of a Reviews Channel for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-zenith-of-zoom-audio-fine-tuning-for-peak-performance-for-2024/"><u>[Updated] Zenith of Zoom Audio Fine-Tuning for Peak Performance for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-list-10-text-effects-to-elevate-your-clips/"><u>2024 Approved The Ultimate List 10 Text Effects to Elevate Your Clips</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-screen-3-reasons-to-think-twice-about-metaverse/"><u>Beyond the Screen: 3 Reasons to Think Twice About Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/comparing-metaverse-and-vr-identifying-six-pivotal-differences/"><u>Comparing Metaverse and VR: Identifying Six Pivotal Differences</u></a></li>
-<li><a href="https://facebook.techidaily.com/control-content-flow-disabling-social-media-feeds/"><u>Control Content Flow: Disabling Social Media Feeds</u></a></li>
-<li><a href="https://techtrends.techidaily.com/diagnose-and-repair-ps5-charger-compatibility-problems-solved/"><u>Diagnose and Repair: PS5 Charger Compatibility Problems Solved</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719153057153-impending-ruling-trumps-ban-under-scrutiny-at-fb-oversight-panel/"><u>Impending Ruling: Trump's Ban Under Scrutiny at FB Oversight Panel</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-infinix-hot-30i-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Infinix Hot 30i to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-from-your-iphone-12-mini-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID From Your iPhone 12 mini</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-bygone-beauty-iphone-x-portrait-moments/"><u>In 2024, Bygone Beauty IPhone X Portrait Moments</u></a></li>
+<li><a href="https://win-unique.techidaily.com/3-effective-methods-crafting-a-windows-11-recovery-drive-from-usb-for-secondary-systems/"><u>3 Effective Methods: Crafting a Windows 11 Recovery Drive From USB for Secondary Systems</u></a></li>
+<li><a href="https://driver-error.techidaily.com/bluray-drive-not-visible-windows-11-fix-unveiled/"><u>BluRay Drive Not Visible: Windows 11 Fix Unveiled</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-youtube-short-content-techniques-unveiled-for-2024/"><u>Essential YouTube Short Content Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-messenger-and-security-the-e2ee-implementation-date/"><u>FB Messenger & Security: The E2EE Implementation Date</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-newest-insignia-bluetooth-driver-updates-for-windows-systems/"><u>Get the Newest Insignia Bluetooth Driver Updates for Windows Systems</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-from-iphone-12-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account From iPhone 12?</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-periods-for-digital-content-sharing/"><u>Optimal Periods for Digital Content Sharing</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-fix-to-try-connections-glitch-on-windows-pcs/"><u>Quick Fix to 'Try Connections' Glitch on Windows PCs</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/smooth-video-in-every-shot-prime-mobile-cameras-with-ois-for-2024/"><u>Smooth Video in Every Shot Prime Mobile Cameras With OIS for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sphere-dangers-the-psychological-impact-analysis/"><u>Social Sphere Dangers: The Psychological Impact Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-interplay-of-real-names-and-screen-names-on-social-media/"><u>The Interplay of Real Names & Screen Names on Social Media</u></a></li>
 </ul></div>
 

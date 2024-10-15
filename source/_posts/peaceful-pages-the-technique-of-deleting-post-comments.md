@@ -1,7 +1,7 @@
 ---
 title: "Peaceful Pages: The Technique of Deleting Post Comments"
-date: 2024-09-17T21:44:26.658Z
-updated: 2024-09-21T17:33:27.058Z
+date: 2024-10-08T11:49:12.647Z
+updated: 2024-10-14T22:41:01.297Z
 tags:
   - facebook
 categories:
@@ -29,6 +29,13 @@ thumbnail: https://thmb.techidaily.com/7839baf4c4540572c890f045a91dd3063abe0e773
  Facebook limits what control you have over your personal posts. Because of this, you cannot fully disable comments on your Facebook posts. But you can limit who can comment on your posts.
 
  However, in a Facebook group where you are an admin, Facebook allows you to completely turn off comments on a post.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Manage Comments on Your Personal Facebook Posts
 
@@ -68,10 +75,10 @@ Close
 ![screenshot of facebook post filters and tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-post-filters-and-tools-page.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  And that's all you need to manage comments on your Facebook post.
@@ -82,14 +89,14 @@ Close
 
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
-![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
 
 Close
 
@@ -102,10 +109,10 @@ Close
  And that's it. Facebook immediately disables the comment section of the post. However, the old comments remain under the post.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Take Control of the Comment Section on Your Facebook Posts
@@ -127,5 +134,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-clearer-streams-youtube-video-borderless-adjustment/"><u>[New] Clearer Streams YouTube Video Borderless Adjustment</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-screenflow-mastery-for-mac-users-a-critical-look/"><u>[Updated] In 2024, ScreenFlow Mastery for Mac Users – A Critical Look</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-unknown-users-on-your-computer-and-mailbox/"><u>Alert! Unknown Users on Your Computer and Mailbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/android-telepresence-experience/"><u>Android Telepresence Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-screen-how-ux-shapes-our-rights/"><u>Behind the Screen: How UX Shapes Our Rights</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-an-impressive-facebook-business-persona/"><u>Building an Impressive Facebook Business Persona</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-consumers-and-companies-with-facebooks-new-initiative/"><u>Connecting Consumers and Companies with Facebook’s New Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-crisis-key-platforms-down-for-maintenayer/"><u>Connectivity Crisis: Key Platforms Down for Maintenayer</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/exploring-the-talents-of-roxana-falasco-a-comprehensive-overview/"><u>Exploring the Talents of Roxana Falasco: A Comprehensive Overview</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-best-practices-for-dynamic-and-dramatic-ae-titles/"><u>In 2024, Best Practices for Dynamic and Dramatic AE Titles</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-stepwise-decrease-in-mix-dynamics/"><u>In 2024, Stepwise Decrease in Mix Dynamics</u></a></li>
+<li><a href="https://fox-making.techidaily.com/optimized-sql-code-panel-streamline-data-operations-effortlessly/"><u>Optimized SQL Code Panel: Streamline Data Operations Effortlessly</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-rated-protective-sleeves-and-skins-for-the-new-iphone-1212-pro-latest-picks/"><u>Top-Rated Protective Sleeves & Skins for the New iPhone 12/12 Pro - Latest Picks</u></a></li>
+<li><a href="https://techidaily.com/vivo-v30-lite-5g-tutorial-bypass-lock-screensecurity-password-pinfingerprintpattern-by-drfone-android-unlock-android-unlock/"><u>Vivo V30 Lite 5G Tutorial - Bypass Lock Screen,Security Password Pin,Fingerprint,Pattern</u></a></li>
+</ul></div>
 

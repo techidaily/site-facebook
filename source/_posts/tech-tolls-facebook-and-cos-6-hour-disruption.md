@@ -1,7 +1,7 @@
 ---
 title: "Tech Tolls: Facebook and Co.'s 6-Hour Disruption"
-date: 2024-09-12T22:31:17.288Z
-updated: 2024-09-16T22:13:33.529Z
+date: 2024-10-08T19:56:15.643Z
+updated: 2024-10-15T11:58:04.695Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/8bc720ee0adbf09ae88a648a38e027832e102c5d3
 
  So, why were Facebook's apps down? And what caused this epic outage?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Facebook Went Down for Six Hours
 
  Facebook's platforms are now back up and running, and Facebook has since apologized and offered an explanation for the outage. The social media platform has blamed the outage on a "faulty configuration change."
@@ -53,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/8bc720ee0adbf09ae88a648a38e027832e102c5d3
  Facebook has vowed to learn a lesson from this outage, with Janardhan concluding:
 
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
 
@@ -73,12 +87,18 @@ thumbnail: https://thmb.techidaily.com/8bc720ee0adbf09ae88a648a38e027832e102c5d3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-critical-platforms-offering-twitter-like-interaction/"><u>[Updated] 2024 Approved Critical Platforms Offering Twitter-Like Interaction</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-music-from-a1-5g-by-fonelab-android-recover-music/"><u>Best Android Data Recovery - Undelete Lost Music from A1 5G</u></a></li>
+<li><a href="https://network-issues.techidaily.com/countering-hp-lcd-backlight-variability/"><u>Countering HP LCD Backlight Variability</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-setback-with-ios-145-update/"><u>Facebook Faces Setback with iOS 14.5 Update</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-realme-11-5g-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Realme 11 5G Devices | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-unlock-apple-iphone-14-pro-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Apple iPhone 14 Pro without Passcode or Face ID</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-itel-a70-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Itel A70? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-the-grand-gaming-odyssey-our-list-of-best-action-adventures/"><u>In 2024, The Grand Gaming Odyssey Our List of Best Action-Adventures</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-future-of-computation-meta-and-its-pioneering-supercomputer/"><u>Navigating the Future of Computation: Meta and Its Pioneering Supercomputer</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-user-experience-or-compromising-on-data-protection-with-facebook-logins/"><u>Optimizing Your User Experience or Compromising on Data Protection? With Facebook Logins</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-comeback-kid-an-analysis-of-facebooks-staying-power/"><u>The Comeback Kid - An Analysis of Facebook’s Staying Power</u></a></li>
+</ul></div>
 

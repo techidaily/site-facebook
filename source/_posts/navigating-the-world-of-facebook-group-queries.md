@@ -1,7 +1,7 @@
 ---
 title: Navigating the World of Facebook Group Queries
-date: 2024-09-12T20:45:31.643Z
-updated: 2024-09-16T22:41:58.400Z
+date: 2024-10-13T05:01:29.433Z
+updated: 2024-10-14T22:19:22.445Z
 tags:
   - facebook
 categories:
@@ -50,6 +50,13 @@ To create a poll on your page from Facebook’s desktop site:
 
 ![Start a poll in a Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/create-poll-facebook-group.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  A Group poll helps collect responses from its members. Here's how you set one up::
 
 1. Access your Facebook Group on the Facebook desktop site.
@@ -60,11 +67,31 @@ To create a poll on your page from Facebook’s desktop site:
 6. Click the**Poll options** button to choose how the group members can interact with your poll. Here, you can decide if members can select multiple options in your poll. You can also decide if group members can add their own options.
 7. Finally, click**Post** at the bottom to publish your poll.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Post a Poll to a Facebook Story
 
  You must use Facebook’s iOS or Android app to add a poll to a Facebook Story. This is because Facebook’s desktop version doesn’t offer the option to make a poll in your Stories.
 
 ![Post a poll in a Facebook story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/create-poll-facebook-story.png)
+
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Poll options in a Facebook Story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/poll-options-facebook-story.png)
 
@@ -82,10 +109,10 @@ To create a poll in a Story:
 8. Select**Share** at the bottom to share your poll in your Facebook Story.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Collect Opinions With Ease Using Facebook Polls
@@ -105,5 +132,22 @@ To create a poll in a Story:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-digital-asset-management-implementing-watermarks-on-instagram/"><u>[New] 2024 Approved Digital Asset Management Implementing Watermarks on Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-building-interest-with-budget-friendly-youtube-video-intros/"><u>[New] In 2024, Building Interest with Budget-Friendly YouTube Video Intros</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-classroom-mastery-the-prime-10-audio-visual-aids-for-instructors/"><u>[New] In 2024, Classroom Mastery The Prime 10 Audio-Visual Aids for Instructors</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-unlocking-the-secrets-to-altering-your-networks-showcase-picture/"><u>[New] In 2024, Unlocking the Secrets to Altering Your Network's Showcase Picture</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unite-gamers-and-followers-xboxfb-livestream-guide/"><u>[Updated] In 2024, Unite Gamers & Followers Xbox/FB Livestream Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/audio-recovery-tips-for-troubleshooting-realtek-speaker-issues/"><u>Audio Recovery Tips for Troubleshooting Realtek Speaker Issues</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/capture-and-share-your-joy-how-to-take-snaps-from-nintendo-switch-games/"><u>Capture and Share Your Joy: How To Take Snaps From Nintendo Switch Games</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rides-high-with-well-crafted-youtube-shorts/"><u>Cash Rides High with Well-Crafted YouTube Shorts</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-development-standards-facebook-partners-with-rust/"><u>Elevating Development Standards: Facebook Partners with Rust</u></a></li>
+<li><a href="https://facebook.techidaily.com/expatry-at-a-crossroads-the-good-and-the-bad-of-online-networks/"><u>Expatry at a Crossroads – The Good and The Bad of Online Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-effortless-deletion-of-social-media-updates/"><u>Guide to Effortless Deletion of Social Media Updates</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/quick-guide-to-troubleshoot-instagram-videos-for-2024/"><u>Quick Guide to Troubleshoot Instagram Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/secret-rules-understanding-the-intricacies-of-fb-acquaintanceship/"><u>Secret Rules: Understanding the Intricacies of FB Acquaintanceship</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-turmoil-facebook-and-friends-down-for-a-day/"><u>Tech Turmoil: Facebook & Friends Down for a Day</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-2022-podcasts-compendium-reviews-and-insights/"><u>The Ultimate 2022 Podcasts Compendium: Reviews & Insights</u></a></li>
+</ul></div>
 

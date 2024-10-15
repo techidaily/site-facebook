@@ -1,7 +1,7 @@
 ---
 title: "The Anti-Big Tech Movement: Understanding Regulatory Intentions"
-date: 2024-09-14T20:21:53.927Z
-updated: 2024-09-16T21:14:36.188Z
+date: 2024-10-10T01:45:28.747Z
+updated: 2024-10-15T12:49:10.278Z
 tags:
   - facebook
 categories:
@@ -53,10 +53,10 @@ thumbnail: https://thmb.techidaily.com/7104eb033fbf632865800cb348d315fa27012665c
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Big Tech Fails to Catch Misleading Ads
@@ -90,15 +90,22 @@ thumbnail: https://thmb.techidaily.com/7104eb033fbf632865800cb348d315fa27012665c
  Furthermore, there are ways that you can[help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Big Tech Can Impact Government Decisions and Operations
 
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
 
@@ -108,16 +115,16 @@ thumbnail: https://thmb.techidaily.com/7104eb033fbf632865800cb348d315fa27012665c
 
  Big Tech companies’ interactions with the government can also create beneficial situations for everyone. For example, Google and Apple partnered to develop a privacy-focused contact-tracing solution during the COVID-19 pandemic.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Big Tech Companies Have Incredible Influence
 
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
 
@@ -129,24 +136,18 @@ thumbnail: https://thmb.techidaily.com/7104eb033fbf632865800cb348d315fa27012665c
 
 ![starlink satellite with desert background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/starlink-satellite-with-desert-background.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Image Credit: Mike Mareen/[Shutterstock](https://www.shutterstock.com/image-illustration/szczecinpolandfebruary-2022satellite-dish-internet-starlink-illustration-2133739611)
 
  As Big Tech companies exert power in more areas, positives become apparent, too. Increased technological investments and commitments to innovation are some examples. Facebook’s involvement in campaigns to broaden internet availability could decrease the digital divide.
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## No Easy Path Forward for Regulating Big Tech
 
@@ -169,5 +170,24 @@ thumbnail: https://thmb.techidaily.com/7104eb033fbf632865800cb348d315fa27012665c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-incorporating-itunes-vibes-into-videos/"><u>[New] Incorporating iTunes Vibes Into Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-navigating-the-new-world-of-facebook-updates/"><u>[Updated] Navigating the New World of Facebook Updates</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-rhythmic-revelry-selecting-ultimate-event-templates/"><u>[Updated] Rhythmic Revelry Selecting Ultimate Event Templates</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/a-step-by-step-guide-keeping-your-most-important-imchats-at-the-forefront/"><u>A Step-by-Step Guide: Keeping Your Most Important IMChats at the Forefront</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-mundane-to-memorable-transforming-your-facebook-history/"><u>From Mundane to Memorable: Transforming Your Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-social-media-platform-like-facebook-justify-permitting-multiplicity-in-user-identity/"><u>How Does Social Media Platform Like Facebook Justify Permitting Multiplicity in User Identity?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-y27s-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo Y27s by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/masterful-tantalizing-titles-designer/"><u>Masterful Tantalizing Titles Designer</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-complete-unsubscription-from-facebook/"><u>Mastering Complete Unsubscription From Facebook</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/methods-to-eliminate-spontaneous-key-press-responses/"><u>Methods to Eliminate Spontaneous Key Press Responses</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/pre-order-microsofts-affordable-powerhouse-the-newly-released-599-surface-laptop-go-2-exclusive-info-from-zdnet/"><u>Pre-Order Microsoft's Affordable Powerhouse: The Newly Released $599 Surface Laptop Go 2 - Exclusive Info From ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/pro-palestinian-hackers-disrupt-facebooks-star-system/"><u>Pro-Palestinian Hackers Disrupt Facebook's Star System</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-hd-media-effective-facebook-mobile-sharing/"><u>Streamline HD Media: Effective Facebook Mobile Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-social-media-marketing-to-individual-preferences/"><u>Streamline Social Media Marketing to Individual Preferences</u></a></li>
+<li><a href="https://facebook.techidaily.com/take-charge-of-your-data-exposure-on-facebook-with-the-new-privacy-interface/"><u>Take Charge of Your Data Exposure on Facebook With the New Privacy Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-safeguard-decoding-9-stealthy-hack-signals/"><u>The Social Safeguard: Decoding 9 Stealthy Hack Signals</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-rotate-your-3gp-videos-without-spending-a-dime-top-5-free-tools/"><u>Updated 2024 Approved Rotate Your 3GP Videos Without Spending a Dime Top 5 Free Tools</u></a></li>
+</ul></div>
 

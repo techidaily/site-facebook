@@ -1,7 +1,7 @@
 ---
 title: "Steering Clear: Meta on Stopping Online Sensitive Pics"
-date: 2024-09-15T20:09:48.471Z
-updated: 2024-09-16T22:16:38.389Z
+date: 2024-10-13T07:50:16.632Z
+updated: 2024-10-15T09:20:30.113Z
 tags:
   - facebook
 categories:
@@ -38,13 +38,40 @@ thumbnail: https://thmb.techidaily.com/9304676ddebde0491fac069817e2e83439806cdb3
 
  Intimate images, like those including nudity, and content that exploits young people, are already not allowed on Meta’s platforms. Meta’s work with NCMEC will hopefully prevent more content like this from being posted. The enforcement of the guidelines before this was largely retroactive instead of proactive.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Meta Also Announces Safety Update to Instagram
 
 ![User using iPhone Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/theives-stealing-iphones-1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Instagram also introduced safety updates to make it more difficult for suspicious adults to interact with teens on the app including direct messages and comments. Teen accounts will also receive notifications to update their privacy settings if a suspicious adult tries to interact with their account.
 
  These features are in addition to other safety features on Instagram, including many specifically for teens like[activating parental supervision on teen Instagram accounts](https://www.makeuseof.com/instagram-how-to-activate-parental-supervision/) .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Meta Is Working to Prevent Intimate Image Sharing
 
@@ -63,12 +90,19 @@ thumbnail: https://thmb.techidaily.com/9304676ddebde0491fac069817e2e83439806cdb3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-guide-to-integrating-sound-into-presentations-powerpoint/"><u>[New] 2024 Approved Guide to Integrating Sound Into Presentations (PowerPoint)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-mastering-mac-capturing-screens-with-record-feature-for-2024/"><u>[Updated] Mastering Mac Capturing Screens with Record Feature for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-samsung-galaxy-a15-4g-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Samsung Galaxy A15 4G.</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-apple-id-and-apple-password-on-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, How to Reset Apple ID and Apple Password On Apple iPhone 6s Plus</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-info-the-name-behind-60-minutes-revelation/"><u>Inside Info: The Name Behind 60 Minutes Revelation</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/insightful-evaluation-of-the-latest-lg-360-cam-model/"><u>Insightful Evaluation of the Latest LG 360 Cam Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-void-how-to-delete-an-active-business-page/"><u>Navigating the Void: How to Delete an Active Business Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/reel-into-saturday-and-sunday-through-fb-shops/"><u>Reel Into Saturday and Sunday Through FB Shops</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/seamless-communication-across-borders-turning-chatgpt-into-your-translation-ally/"><u>Seamless Communication Across Borders: Turning ChatGPT Into Your Translation Ally</u></a></li>
+<li><a href="https://facebook.techidaily.com/zero-sound-and-screens-ig-live-broadcast/"><u>Zero Sound & Screens: IG Live Broadcast</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Identified Influencers Fueling Covid Disbelief
-date: 2024-09-12T18:18:53.544Z
-updated: 2024-09-16T21:15:07.740Z
+date: 2024-10-08T19:56:06.060Z
+updated: 2024-10-15T01:08:45.770Z
 tags:
   - facebook
 categories:
@@ -45,6 +45,13 @@ But what if, in reality, there are only 12 prime suspects?
 
  Even though the Disinformation Dozen has reportedly violated the Facebook, Instagram, and Twitter terms of service agreements on numerous occasions, only three of the 12 influencers have been removed from just one platform.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Are Social Media Platforms Doing Enough to Fight Misinformation?
 
  The CCDH says that the best way to combat the spread of harmful information is to de-platform repeat offenders that have big audiences. Have Facebook, Instagram, and Twitter been doing that? Well... kind of.
@@ -70,12 +77,20 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-brain-eaters-unleashed-a-compelling-list/"><u>[New] Brain-Eaters Unleashed A Compelling List</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-easily-pulling-picture-moments-from-videos-for-windows-photos/"><u>[Updated] In 2024, Easily Pulling Picture Moments From Videos for Windows Photos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-10-premier-live-streaming-platforms-a-comparative-guide/"><u>[Updated] Top 10 Premier Live Streaming Platforms A Comparative Guide</u></a></li>
+<li><a href="https://techtrends.techidaily.com/complete-guide-how-to-properly-initialize-your-brand-new-ipad-insights-from-zdnet/"><u>Complete Guide: How to Properly Initialize Your Brand-New iPad - Insights From ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-your-visual-identity-on-facebook/"><u>Fortifying Your Visual Identity on Facebook</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-guide-to-efficiently-retrieve-youtubes-srt-files/"><u>In 2024, Guide to Efficiently Retrieve YouTube's SRT Files</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/messengers-magic-temporarily-secure-your-messages/"><u>Messenger’s Magic: Temporarily Secure Your Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-page-reputation-banning-unsuitable-accounts-on-facebook/"><u>Protecting Page Reputation: Banning Unsuitable Accounts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-balance-of-privacy-and-safety-removing-identifying-facial-information-from-facebook/"><u>The Balance of Privacy and Safety: Removing Identifying Facial Information From Facebook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/innacle-playbook-perfecting-the-art-of-live-thumbnail-design-for-2024/"><u>The Pinnacle Playbook Perfecting the Art of Live Thumbnail Design for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-structure-and-public-accessibility-of-facebook-local-groups/"><u>The Structure and Public Accessibility of Facebook Local Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-internal-blueprint/"><u>Understanding Facebook's Internal Blueprint</u></a></li>
+</ul></div>
 

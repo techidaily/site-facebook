@@ -1,7 +1,7 @@
 ---
 title: "Instant Messaging Evolves on Facebook: New Tools for Messenger"
-date: 2024-10-03T02:32:25.071Z
-updated: 2024-10-08T22:25:25.557Z
+date: 2024-10-11T12:39:00.442Z
+updated: 2024-10-15T09:56:14.133Z
 tags:
   - facebook
 categories:
@@ -33,16 +33,10 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -58,16 +52,10 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -97,16 +85,18 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-guide-clearing-up-youtube-watchlater-stored-list/"><u>[New] Guide Clearing Up YouTube Watchlater Stored List</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-high-dynamic-range-battle-black-hero5-and-sj7-for-2024/"><u>[New] High Dynamic Range Battle Black Hero5 & SJ7 for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-innovation-in-action-sonys-s6500-player-redefined-for-2024/"><u>[Updated] Innovation in Action Sony's S6500 Player Redefined for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-unveils-enhanced-user-experience-layouts/"><u>Facebook Unveils Enhanced User Experience Layouts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/from-monochrome-moments-to-multicolor-movies-for-2024/"><u>From Monochrome Moments to Multicolor Movies for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-how-to-streamline-your-vimeo-video-subtitles/"><u>In 2024, How to Streamline Your Vimeo Video Subtitles</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-facebook-down-how-to-find-out-and-see-when-its-back-up/"><u>Is Facebook Down? How to Find Out and See When It's Back Up</u></a></li>
-<li><a href="https://facebook.techidaily.com/prevent-overuse-facebook-advises-youngsters-for-insta-break/"><u>Prevent Overuse: Facebook Advises Youngsters for Insta Break</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-covert-elements-filtering-your-fb-timeline/"><u>The Covert Elements Filtering Your Fb Timeline</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-minds-evolution-through-language-learning/"><u>The Mind's Evolution Through Language Learning</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-monitors-your-uploaded-imagery/"><u>Who Monitors Your Uploaded Imagery?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-fast-track-to-flawless-podcast-live-for-2024/"><u>[New] Fast Track to Flawless Podcast Live for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-unparalleled-sound-quality-microphone-guide-for-2024/"><u>[New] Unparalleled Sound Quality Microphone Guide for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-premiere-pros-best-practices-free-template-samples/"><u>[Updated] In 2024, Premiere Pro's Best Practices FREE Template Samples</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-maximizing-engagement-with-youtube-on-facebook-platforms-for-2024/"><u>[Updated] Maximizing Engagement with YouTube on Facebook Platforms for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-30-free-mac-speech-to-text-software-youve-missed/"><u>2024 Approved Top 30 Free Mac Speech-to-Text Software You've Missed</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-uptime-understanding-and-tracking-status/"><u>Facebook Uptime: Understanding and Tracking Status</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-samsung-galaxy-s23-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Samsung Galaxy S23 Phone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-streamlining-creative-journey-uploading-imovie-videos-to-youtube/"><u>In 2024, Streamlining Creative Journey Uploading iMovie Videos to YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-toolwiz-unveiled-the-full-scope-photo-software-review/"><u>In 2024, Toolwiz Unveiled - The Full Scope Photo Software Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/make-friends-start-conversations-crafting-an-avatar-themed-cover-for-facebook/"><u>Make Friends, Start Conversations: Crafting an Avatar-Themed Cover for Facebook</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/methode-facile-pour-convertir-un-fichier-mpeg-au-format-ogg-en-ligne-gratuit-tutorial-movavi/"><u>Méthode Facile Pour Convertir Un Fichier MPEG Au Format Ogg en Ligne Gratuit – Tutorial Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-access-when-facebook-fails-to-send-verification-codes/"><u>Regaining Access: When Facebook Fails to Send Verification Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/survey-shows-growing-doubt-towards-technology-leaders-facebook-noted/"><u>Survey Shows Growing Doubt Towards Technology Leaders, Facebook Noted</u></a></li>
 </ul></div>
 

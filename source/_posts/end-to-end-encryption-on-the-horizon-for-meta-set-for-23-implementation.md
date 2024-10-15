@@ -1,7 +1,7 @@
 ---
 title: End-to-End Encryption on the Horizon for Meta, Set for '23 Implementation
-date: 2024-09-18T18:52:41.293Z
-updated: 2024-09-21T23:41:55.158Z
+date: 2024-10-12T00:48:10.034Z
+updated: 2024-10-14T18:06:49.674Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
 
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Has Meta Delayed End-to-End Encryption?
 
  The plan has been delayed due to what[Meta says](https://www.telegraph.co.uk/business/2021/11/20/people-shouldnt-have-choose-privacy-safety-says-facebook-safety/) is a desire to engage with all concerned parties to ensure end-to-end encryption is not abused by bad actors. However, when you read between the lines, it appears Meta has buckled to pressure from law enforcement and regulators, who have been adamantly opposed to Meta's E2EE plans.
@@ -45,6 +52,13 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
  Law enforcers in the US, Australia, and the UK have been urging Meta to ensure its E2EE plans would allow them to secretly read encrypted chats when necessary. Meta originally rejected the idea, but now seems willing to play ball with governments, which are determined not to be locked out.
 
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
 
@@ -67,12 +81,20 @@ thumbnail: https://thmb.techidaily.com/a02a9911f50368d686754fe93fbecd3af42fa7537
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/updated-live-methods-for-quieter-track-output/"><u>[Updated] Live Methods for Quieter Track Output</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-compreayers-blueprint-to-fb-image-security/"><u>A Compreayer's Blueprint to Fb Image Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-different-day-without-daily-updates-on-fb/"><u>A Different Day Without Daily Updates on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-erasing-your-history-on-facebook-watch/"><u>A Guide to Erasing Your History on Facebook Watch</u></a></li>
+<li><a href="https://facebook.techidaily.com/alleged-shutdown-due-to-ethical-commerce-representation/"><u>Alleged Shutdown Due to Ethical Commerce Representation</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/audio-archive-collect-and-examine-music-files-for-2024/"><u>Audio Archive Collect & Examine Music Files for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/breakthrough-findings-from-whistleblowers-fb-data/"><u>Breakthrough Findings From Whistleblower's FB Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/cracking-the-code-of-private-social-networks/"><u>Cracking the Code of Private Social Networks</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/inside-the-innovative-world-of-kinemaster-your-android-game-companion/"><u>Inside the Innovative World of KineMaster - Your Android Game Companion</u></a></li>
+<li><a href="https://driver-install.techidaily.com/refresh-graphics-engine-for-clarity/"><u>Refresh Graphics Engine for Clarity</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-future-is-here-exploring-the-cutting-edge-of-5g-and-edge-computing-innovations-highlights-by-zdnet/"><u>The Future Is Here: Exploring the Cutting-Edge of 5G and Edge Computing Innovations | Highlights by ZDNET</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-sudden-italian-decree-against-ai-language-tools-like-chatgpt/"><u>The Sudden Italian Decree Against AI Language Tools Like ChatGPT</u></a></li>
+</ul></div>
 

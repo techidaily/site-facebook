@@ -1,7 +1,7 @@
 ---
 title: English Clubs Shun Social Networking, Initiate Platform Strike
-date: 2024-09-14T19:07:57.292Z
-updated: 2024-09-21T20:03:59.632Z
+date: 2024-10-13T19:46:54.120Z
+updated: 2024-10-15T05:59:49.147Z
 tags:
   - facebook
 categories:
@@ -30,11 +30,25 @@ thumbnail: https://thmb.techidaily.com/772b2b44b0378e57e7141a2aa999a88263926bcf3
 
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Will the Social Media Blackout Involve?
 
  As with any blackout, it involves sports players and teams steering clear of social media. So there will be no posts about football, cricket, or rugby, from the teams and players involved in each respective sport. That is because they have boycotted all the platforms mentioned above.
 
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Are Sports Teams Boycotting Social Media?
 
@@ -47,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/772b2b44b0378e57e7141a2aa999a88263926bcf3
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Taking a Stand Against Racism
@@ -70,5 +84,16 @@ thumbnail: https://thmb.techidaily.com/772b2b44b0378e57e7141a2aa999a88263926bcf3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-precision-recording-a-stepwise-plan-for-pc-ios-macbooks/"><u>[Updated] 2024 Approved Precision Recording A Stepwise Plan for PC, iOS, MacBooks</u></a></li>
+<li><a href="https://facebook.techidaily.com/analysis-q2-sales-surge-oculus-quests-purchased-by-facebook-users/"><u>Analysis: Q2 Sales Surge - Oculus Quests Purchased by Facebook Users</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/behind-virtual-walls-a-deep-dive-into-6-metaverse-cases/"><u>Behind Virtual Walls A Deep Dive Into 6 Metaverse Cases</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-belief-fact-checking-facebooks-user-numbers/"><u>Beyond Belief: Fact-Checking Facebook's User Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-users-trust-fb-messenger-encryption/"><u>Can Users Trust FB Messenger Encryption?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/canon-camera-insights-for-stunning-time-lapse-vids-for-2024/"><u>Canon Camera Insights for Stunning Time-Lapse Vids for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/elite-selection-of-extended-computer-mats-for-enhanced-precision-2024-edition/"><u>Elite Selection of Extended Computer Mats for Enhanced Precision - 2024 Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149786368-livestream-instagram-no-media-necessary/"><u>Livestream Instagram: No Media Necessary!</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-the-great-dvr-debate-tivo-vs-comcast-which-one-reigns-supreme-for-2024/"><u>Updated The Great DVR Debate TiVo vs Comcast - Which One Reigns Supreme for 2024</u></a></li>
+</ul></div>
 

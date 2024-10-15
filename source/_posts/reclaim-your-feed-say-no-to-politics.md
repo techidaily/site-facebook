@@ -1,7 +1,7 @@
 ---
 title: Reclaim Your Feed, Say No to Politics
-date: 2024-10-02T21:53:52.541Z
-updated: 2024-10-09T05:54:09.604Z
+date: 2024-10-12T21:56:01.124Z
+updated: 2024-10-14T17:42:19.881Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
  Then to top it off, Facebook keeps suggesting trending posts on your page while you scroll, which gets dominated by politics and whatever the Kardashians are up to lately. There's no way to turn these suggestions off. However, Facebook does let you tell it which stories you don't want to see.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Filter Politics Out of Your Facebook Feed
 
  If you find yourself regularly being sucked into long political Facebook arguments with friends-of-friends, you probably need to take control of your Facebook. Ditto if you're constantly annoyed by celebrity news or friends who can't function without constantly marinating in sympathy and attention.
@@ -47,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 ![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Did you know that Facebook lets you block articles from specific pages, groups, and people? One good way to use this is to keep an eye out for articles that annoy you. That means clickbait, politics, the works.
@@ -67,13 +74,6 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
 ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  When you create your Facebook profile, it asks you about your political views, among other things. If you do add your views, however, Facebook uses this information to suggest political posts and ads to you. Adding this piece of information to your profile is not really necessary, unless you are affiliated with a political party, and you have to put your views on display.
 
  The good news is you can remove this piece of information from your profile pretty easily. Log into your Facebook account and go to your profile. There will be an option to edit your profile just under your cover photo. Click on**Edit Profile** to proceed.
@@ -82,22 +82,16 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
  To edit this information, click on the**Pen button** next to it. Now, in the editable text section, delete whatever is written and press**Save** . That's it. Your profile has no information about your political views anymore and Facebook will not suggest those posts and ads anymore.
 
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Use a Browser Extension
 
 ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You can use a browser extension called[FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
 
@@ -106,10 +100,10 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  FB Purity is basically an intelligent filter that lets you get rid of anything you don't like. It's also updated frequently to adapt to changes to Facebook's UI and features. Our only complaint is that the graphic design clashes with Facebook a little, and its interface can be hard to navigate.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Creating a Facebook Feed You Enjoy
@@ -131,21 +125,24 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-mastering-the-moments-reel-slomo-app-analysis-2024/"><u>[New] Mastering the Moment's Reel SloMo App Analysis, 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-quitvideo-on-the-go-quickaction-tips/"><u>[Updated] 2024 Approved QuitVideo On-the-Go QuickAction Tips</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-transforming-ordinary-footage-to-ig-masterpieces/"><u>[Updated] In 2024, Transforming Ordinary Footage to IG Masterpieces</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-unmasking-falsified-follower-fabrications-on-feeds/"><u>2024 Approved Unmasking Falsified Follower Fabrications on Feeds</u></a></li>
-<li><a href="https://facebook.techidaily.com/3-reasons-why-metas-social-media-dominance-should-scare-you/"><u>3 Reasons Why Meta's Social Media Dominance Should Scare You</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-secret-chats-on-facebook-safe/"><u>Are Secret Chats on Facebook Safe?</u></a></li>
-<li><a href="https://facebook.techidaily.com/big-tech-sends-strength-to-worldwide-health-crisis-response/"><u>Big Tech Sends Strength to Worldwide Health Crisis Response</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-a-customized-online-persona-image/"><u>Building a Customized Online Persona Image</u></a></li>
-<li><a href="https://facebook.techidaily.com/buzz-battalion-the-elite-20-sites-and-apps-for-social-interaction/"><u>Buzz Battalion: The Elite 20 Sites & Apps for Social Interaction</u></a></li>
-<li><a href="https://facebook.techidaily.com/comparative-analysis-of-metaai-vs-other-chatbot-types/"><u>Comparative Analysis of MetaAI vs Other Chatbot Types</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-defense-recognizing-and-remedying-facebook-intrusions/"><u>Data Defense: Recognizing and Remedying Facebook Intrusions</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/download-and-install-virtualdub-for-mac-a-comprehensive-tutorial/"><u>Download & Install VirtualDub for Mac - A Comprehensive Tutorial</u></a></li>
-<li><a href="https://apple-account.techidaily.com/guide-on-how-to-remove-apple-id-from-apple-iphone-11-by-drfone-ios/"><u>Guide on How To Remove Apple ID From Apple iPhone 11</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/harmonizing-platforms-linking-insta-and-tiktok/"><u>Harmonizing Platforms Linking Insta & TikTok</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-itel-p40plus-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Itel P40+ to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/reveal-hidden-bluetooth-settings-a-comprehensive-walkthrough-on-windows-device-manager/"><u>Reveal Hidden Bluetooth Settings: A Comprehensive Walkthrough on Windows Device Manager</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-lava-blaze-pro-5g-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-everyday-moments-crafting-photo-collections-for-fb-sharing/"><u>Elevating Everyday Moments: Crafting Photo Collections for FB Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/eradication-essentials-methods-for-muting-your-fb-ventures/"><u>Eradication Essentials: Methods for Muting Your Fb Ventures</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolution-of-social-interaction-stop-using-facebook/"><u>Evolution of Social Interaction: Stop Using Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/fact-vs-fiction-top-10-true-stories-on-facebook-myths/"><u>Fact vs Fiction: Top 10 True Stories on Facebook Myths</u></a></li>
+<li><a href="https://win-forum.techidaily.com/free-online-converter-effortlessly-transform-mp2-audio-files-into-mov-video-format/"><u>Free Online Converter: Effortlessly Transform MP2 Audio Files Into MOV Video Format</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-universal-unlock-pattern-for-vivo-y100a-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Vivo Y100A</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-fb-news-feed-exclusions-explained/"><u>Inside FB News Feed: Exclusions Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-social-media-sending-instagram-reels-to-facebook-followers/"><u>Integrating Social Media: Sending Instagram Reels to Facebook Followers</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/invent-iconic-images-through-giphy/"><u>Invent Iconic Images Through Giphy</u></a></li>
+<li><a href="https://blog-min.techidaily.com/online-flv-wmv-movavi/"><u>Online 자리에서 가장 금쪽한 FLV, WMV 포맷터를 제공합니다 - Movavi 변환</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeling-back-the-layers-what-are-shadowbans-avoidance-guide/"><u>Peeling Back the Layers: What Are Shadowbans? Avoidance Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/quick-diy-tricks-for-professional-quality-homemade-films/"><u>Quick DIY Tricks for Professional-Quality Homemade Films</u></a></li>
+<li><a href="https://driver-error.techidaily.com/reader-disappearance-on-win11-repair-guide-here/"><u>Reader Disappearance on Win11 - Repair Guide Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-scaffolding-platforms-that-build-community-bonds/"><u>Social Scaffolding: Platforms That Build Community Bonds</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/stars-brief-moment-analysis-for-2024/"><u>Star's Brief Moment Analysis for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/1719574161603-successfully-installed-printer/"><u>Successfully Installed Printer.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-ios-145-on-facebooks-privacy-practices/"><u>The Impact of iOS 14.5 on Facebook's Privacy Practices</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-next-generation-in-ai-when-can-we-expect-to-see-gpt-nplus1/"><u>The Next Generation in AI: When Can We Expect to See GPT-N+1?</u></a></li>
 </ul></div>
 

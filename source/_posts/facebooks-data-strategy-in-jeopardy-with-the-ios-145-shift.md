@@ -1,7 +1,7 @@
 ---
 title: Facebook's Data Strategy in Jeopardy with the iOS 14.5 Shift
-date: 2024-10-02T04:29:28.566Z
-updated: 2024-10-08T21:41:10.493Z
+date: 2024-10-11T11:20:09.533Z
+updated: 2024-10-14T16:41:08.450Z
 tags:
   - facebook
 categories:
@@ -38,16 +38,16 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Does Facebook Make Money?
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
 
@@ -59,38 +59,31 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
  The other 2% of Facebook's revenue comes from sources like Oculus sales and e-commerce payments.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Is Facebook's Official Stance on App Tracking Transparency?
 
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Many Users Allow App Tracking?
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
@@ -99,6 +92,13 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
 
@@ -135,15 +135,22 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/thical-download-strategies-for-youtube-to-mp4-files/"><u>[New] Ethical Download Strategies for YouTube to MP4 Files</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-overcoming-inconsistency-stop-obs-frame-loss-for-2024/"><u>[New] Overcoming Inconsistency Stop OBS Frame Loss for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-enhancing-digital-meetings-focus-up-techniques/"><u>[Updated] Enhancing Digital Meetings Focus Up Techniques</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/authentic-mac-feedback-through-video/"><u>Authentic Mac Feedback Through Video</u></a></li>
-<li><a href="https://win-answers.techidaily.com/ensuring-smooth-play-eliminating-crashes-in-fallout-3-under-windows-10/"><u>Ensuring Smooth Play: Eliminating Crashes in Fallout 3 Under Windows 10</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-ban-conundrum-regain-a-friends-trust/"><u>Facebook Ban Conundrum: Regain a Friend's Trust</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/perfect-your-playback-implementing-a-countdown-in-obs/"><u>Perfect Your Playback Implementing a Countdown in OBS</u></a></li>
-<li><a href="https://facebook.techidaily.com/root-access-granted-what-does-this-mean-for-oculus-go-users/"><u>Root Access Granted: What Does This Mean for Oculus Go Users?</u></a></li>
-<li><a href="https://facebook.techidaily.com/strengthen-your-security-end-to-end-encrypted-messaging-on-facebooks-social-network/"><u>Strengthen Your Security: End-to-End Encrypted Messaging on Facebook’s Social Network.</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-secrets-private-facebook-exploration-guide/"><u>Unveiling Secrets: Private Facebook Exploration Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-guide-to-upload-twitch-streams-to-youtube/"><u>[New] In 2024, A Guide to Upload Twitch Streams to YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-perfect-pair-merging-your-youtube-video-library/"><u>[New] In 2024, Perfect Pair Merging Your YouTube Video Library</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-viral-video-voyage-unveiling-the-trendiest-tweets-of-2023-for-2024/"><u>[New] Viral Video Voyage Unveiling the Trendiest Tweets of 2023 for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-intelligence-unchanged-claims-openai/"><u>ChatGPT Intelligence: Unchanged, Claims OpenAI</u></a></li>
+<li><a href="https://facebook.techidaily.com/major-tech-firms-questioned-but-facebooks-trust-in-jeoprany/"><u>Major Tech Firms Questioned, But Facebook's Trust in Jeoprany</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-group-polls-creation-tactics/"><u>Mastering Facebook Group Polls Creation Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/mutual-bonds-online-how-networking-fosters-unity/"><u>Mutual Bonds Online: How Networking Fosters Unity</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-efficiently-incorporate-and-retract-audacity-into-your-chromebooks-audio-workflow/"><u>New 2024 Approved Efficiently Incorporate and Retract Audacity Into Your Chromebooks Audio Workflow</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-elite-costless-mp3-collision-system-2023s-recommended-choices-for-2024/"><u>New Elite Costless MP3 Collision System 2023S Recommended Choices for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-tactics-top-10-secrets-for-novice-vloggers-success/"><u>Proven Tactics Top 10 Secrets for Novice Vloggers' Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-fixes-for-disrupted-two-factor-authentication-on-fb/"><u>Quick Fixes for Disrupted Two-Factor Authentication on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/say-it-with-a-like-favorite-platform/"><u>Say It with a Like: Favorite Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-giant-the-pros-and-cons-of-facebook/"><u>Social Media's Giant: The Pros & Cons of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-social-syncing-integrate-facebook-storage-with-top-services/"><u>Streamline Social Syncing: Integrate Facebook Storage with Top Services.</u></a></li>
+<li><a href="https://apple-account.techidaily.com/turning-off-two-factor-authentication-from-iphone-11-5-tips-you-must-know-by-drfone-ios/"><u>Turning Off Two Factor Authentication From iPhone 11? 5 Tips You Must Know</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/urgent-forgotten-your-iphone-passcode-heres-how-to-clear-and-reboot-safely/"><u>Urgent! Forgotten Your iPhone Passcode? Here’s How to Clear and Reboot Safely</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-vk-8-things-you-should-know-about-russias-facebook/"><u>What Is VK? 8 Things You Should Know About Russia's Facebook</u></a></li>
 </ul></div>
 

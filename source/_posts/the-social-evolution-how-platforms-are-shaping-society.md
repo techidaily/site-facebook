@@ -1,7 +1,7 @@
 ---
 title: "The Social Evolution: How Platforms Are Shaping Society"
-date: 2024-09-14T19:00:09.417Z
-updated: 2024-09-16T19:05:27.320Z
+date: 2024-10-10T07:52:50.488Z
+updated: 2024-10-14T21:39:54.345Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
 ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
 
  All of us probably spend a little too long talking about ourselves on social media sites. Which is perfectly natural. We're sharing our lives---the ups and downs, the twists and turns---with people we think will care.
@@ -69,16 +76,10 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
  **Social media allows you to live a life unhindered by small talk.**
 
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Social Media Makes the World Seem Smaller
@@ -109,22 +110,16 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
  **Social media can help foster friendships and more besides.**
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. Social Media Helps News Travel Faster
 
 ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
@@ -138,16 +133,16 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
  **Social media helps news travel further, faster, keeping us all more informed.**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7\. Social Media Helps You Find Common Ground
 
 ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
 
@@ -158,6 +153,13 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
  This does require the sharing of information and giving up a certain amount of privacy. Which is enough for some people to reject social networking outright. Keeping personal information private is necessary, but sharing your likes and dislikes can actually contribute to an open society.
 
  **Social networking sites make fitting in easier, as long as you open up a little.**
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## So, Is Social Media Good for Society?
 
@@ -176,5 +178,22 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-make-every-gaming-moment-memorable-for-2024/"><u>[New] Make Every Gaming Moment Memorable for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-meme-matrix-top-10-memes-on-social-media-platforms/"><u>[New] Meme Matrix Top 10 Memes on Social Media Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-rhythm-and-reels-for-music-masters-on-ig/"><u>[Updated] 2024 Approved Rhythm & Reels for Music Masters on IG</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-examining-the-effectiveness-of-iscreen-recording-for-2024/"><u>[Updated] Examining the Effectiveness of iScreen Recording for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-revolution-parents-edition/"><u>AI Revolution: Parents Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/complete-analysis-of-the-high-def-sony-fdr-x1000-videographer/"><u>Complete Analysis of the High-Def Sony FDR-X1000 Videographer</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-trusted-online-social-hubs/"><u>Exploring Trusted Online Social Hubs</u></a></li>
+<li><a href="https://fox-that.techidaily.com/mastering-iphone-13-repairs-tackling-the-six-biggest-tech-hurdles/"><u>Mastering iPhone 13 Repairs: Tackling the Six Biggest Tech Hurdles</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-fb-login-in-the-absence-of-code/"><u>Reclaiming FB Login in the Absence of Code</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-teen-online-interactions-on-the-social-network/"><u>Safeguarding Teen Online Interactions on the Social Network</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/seamless-social-media-execution-with-the-top-8-iphone-and-android-apps-for-2024/"><u>Seamless Social Media Execution with The Top 8 iPhone & Android Apps for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secret-language-of-facebooks-iconography-unveiled/"><u>The Secret Language of Facebook’s Iconography Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-facebooks-operations-via-transparency-center-launch/"><u>Unmasking Facebook's Operations via Transparency Center Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/visualizing-conversations-a-guide-to-using-fb-images-in-whatsapp/"><u>Visualizing Conversations: A Guide to Using FB Images in WhatsApp</u></a></li>
+<li><a href="https://driver-install.techidaily.com/xbox-one-controller-drivers-for-windows-11/"><u>Xbox One Controller Drivers for Windows 11</u></a></li>
+</ul></div>
 

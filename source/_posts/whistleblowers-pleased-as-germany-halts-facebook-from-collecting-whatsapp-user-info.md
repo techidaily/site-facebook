@@ -1,7 +1,7 @@
 ---
 title: Whistleblowers Pleased as Germany Halts Facebook From Collecting WhatsApp User Info
-date: 2024-10-03T18:31:45.331Z
-updated: 2024-10-08T20:57:48.942Z
+date: 2024-10-13T12:31:32.659Z
+updated: 2024-10-14T20:39:17.651Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,16 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -56,10 +62,10 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -83,20 +89,24 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-design-dynamics-realizing-color-potential/"><u>[New] 2024 Approved Design Dynamics Realizing Color Potential</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-how-to-use-periscope-cost-benefits-and-signup-guide/"><u>[New] How to Use Periscope Cost, Benefits & Signup Guide</u></a></li>
-<li><a href="https://common-error.techidaily.com/bluetooth-frustration-solved-restoring-functionality-between-keyboard-and-computer/"><u>Bluetooth Frustration Solved: Restoring Functionality Between Keyboard and Computer</u></a></li>
-<li><a href="https://fox-info.techidaily.com/brilliant-asus-monitor-ultrahd-true-black/"><u>Brilliant Asus Monitor UltraHD, True Black</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-discussion-volume-on-your-social-media-hub/"><u>Elevate Discussion Volume on Your Social Media Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/eternal-connection-or-silence-handling-lost-friends-on-fb/"><u>Eternal Connection or Silence? Handling Lost Friends on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/guardian-platforms-for-secure-sharing/"><u>Guardian Platforms for Secure Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-crafting-collectives-a-facebook-foundation-approach/"><u>Guide to Crafting Collectives: A Facebook Foundation Approach</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-oppo-reno-10-pro-5g-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Oppo Reno 10 Pro 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/influential-voices-amplifying-covid-falsehoods/"><u>Influential Voices Amplifying Covid Falsehoods</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-the-art-of-capturing-images-a-complete-guide-to-taking-screenshots-on-your-playstation-4/"><u>Mastering the Art of Capturing Images: A Complete Guide to Taking Screenshots on Your PlayStation 4</u></a></li>
-<li><a href="https://facebook.techidaily.com/president-biden-teams-up-facebook-twitter-and-snapchat-for-vaccinations/"><u>President Biden Teams Up: Facebook, Twitter & Snapchat for Vaccinations</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-preservation-plan-dodge-these-3-invaders/"><u>Privacy Preservation Plan: Dodge These 3 Invaders</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/the-beginners-path-to-becoming-a-discord-live-stream-guru-for-2024/"><u>The Beginner's Path to Becoming a Discord Live Stream Guru for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/turn-on-google-meet-grids-to-see-all-attendees-for-2024/"><u>Turn On Google Meet Grids to See All Attendees for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-a-comprehensive-list-of-15-competitors-to-gopro-cameras-for-2024/"><u>[New] A Comprehensive List of 15 Competitors to GoPro Cameras for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-premier-5-time-lapse-camera-apps/"><u>[Updated] Premier 5 Time-Lapse Camera Apps</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/authenticate-and-enjoy-unlimited-usage-with-macx-dvd-ripper-pro-download-a-legal-key-now/"><u>Authenticate and Enjoy Unlimited Usage with MacX DVD Ripper Pro - Download a Legal Key Now!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/conquer-the-skies-and-landscapes-in-a-canon-time-lapse-for-2024/"><u>Conquer the Skies and Landscapes in a Canon Time-Lapse for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-asrock-motherboard-up-to-date-download-the-newest-drivers-now/"><u>Get Your ASRock Motherboard Up-to-Date: Download the Newest Drivers Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-you-back-into-facebook-post-code-loss/"><u>Guiding You Back Into Facebook Post-Code Loss</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-improve-resilience-against-photos-app-issues-in-windows-11/"><u>In 2024, How to Improve Resilience Against Photos App Issues in Windows 11</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-secret-to-social-success-innovative-square-videography-tactics/"><u>In 2024, The Secret to Social Success Innovative Square Videography Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/managing-group-exits-maintaining-good-relationships-online/"><u>Managing Group Exits: Maintaining Good Relationships Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-facebook-improvement-more-engaging-story-panels-with-reels-and-rooms/"><u>Potential Facebook Improvement: More Engaging Story Panels with Reels & Rooms</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sector-shift-what-it-means-to-be-a-metamate/"><u>Social Sector Shift: What It Means To Be A 'Metamate'</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essence-and-impact-of-recently-released-facebook-files/"><u>The Essence and Impact of Recently Released Facebook Files</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/the-essential-guide-for-proficiently-playing-games-with-switch-pro-in-steam-for-2024/"><u>The Essential Guide for Proficiently Playing Games with Switch Pro in Steam for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-to-maximize-outreach-when-sharing-job-openings-on-fb/"><u>Tips to Maximize Outreach When Sharing Job Openings on FB</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unlocking-the-power-of-igtv-from-novice-to-pro-for-2024/"><u>Unlocking the Power of IGTV From Novice to Pro for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-ambitions-deciphering-the-secrets-to-facebooks-wearable-device/"><u>Unseen Ambitions: Deciphering the Secrets to Facebook’s Wearable Device</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/visual-voyage-your-guide-to-broadcasting-vids-with-confidence-on-facebook/"><u>Visual Voyage Your Guide to Broadcasting Vids with Confidence on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-ray-ban-stories-facebook-announces-and-pricing-details/"><u>What Are Ray-Ban Stories? Facebook Announces & Pricing Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-the-facebook-support-interface-accomplish/"><u>What Does the Facebook Support Interface Accomplish?</u></a></li>
 </ul></div>
 

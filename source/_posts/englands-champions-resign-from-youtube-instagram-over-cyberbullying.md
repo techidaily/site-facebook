@@ -1,7 +1,7 @@
 ---
 title: England's Champions Resign From YouTube, Instagram Over Cyberbullying
-date: 2024-09-16T17:06:49.971Z
-updated: 2024-09-21T21:47:14.808Z
+date: 2024-10-08T01:03:38.002Z
+updated: 2024-10-14T19:28:49.392Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/9a1d2889cbe4ad14880fa77a388cff944d010380f
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -79,12 +86,26 @@ thumbnail: https://thmb.techidaily.com/9a1d2889cbe4ad14880fa77a388cff944d010380f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-5-premier-cloud-platforms-revolutionizing-storage/"><u>[New] 5 Premier Cloud Platforms Revolutionizing Storage</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-dissecting-youtube-chatter-for-2024/"><u>[New] Dissecting YouTube Chatter for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-chromebooks-premium-free-video-capture-extensions/"><u>[Updated] In 2024, Chromebook's Premium Free Video Capture Extensions</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-integrate-advanced-note-organization-on-mematic-for-2024/"><u>[Updated] Integrate Advanced Note Organization on Mematic for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-gopro-hero5-black-vs-yi-4k-action-camera-which-is-better-2023-update/"><u>2024 Approved GoPro Hero5 Black Vs. Yi 4K Action Camera Which Is Better? -2023 Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-privacy-leaked-facebook-secrets-exposed/"><u>Decoding Privacy: Leaked Facebook Secrets Exposed</u></a></li>
+<li><a href="https://facebook.techidaily.com/delete-fb-view-records-a-guide-to-a-cleaner-profile/"><u>Delete FB View Records: A Guide to a Cleaner Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-the-credibility-of-facebooks-safety-email-securityfbcom/"><u>Determining the Credibility of Facebook's Safety Email: security@fb.com</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprints-how-each-like-and-share-matters/"><u>Digital Footprints: How Each Like & Share Matters</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-identity-shift-step-by-step-guide-to-renaming-fb-profile/"><u>Digital Identity Shift: Step-by-Step Guide to Renaming FB Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/digitized-dilemminas-the-complex-costs-of-social-media/"><u>Digitized Dilemminas: The Complex Costs of Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/direct-access-to-groups-with-facebooks-channels-feature/"><u>Direct Access to Groups with Facebook's Channels Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-governance-strategy-in-its-latest-launch/"><u>Dissecting Facebook’s Governance Strategy in Its Latest Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/dont-give-strangers-access-to-your-social-profile/"><u>Don't Give Strangers Access to Your Social Profile</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-nokia-c210-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Nokia C210 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-13t-pro-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi 13T Pro Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-xiaomi-redmi-note-13-proplus-5g-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Xiaomi Redmi Note 13 Pro+ 5G Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/this-chrome-extension-makes-chatgpt-prompting-easy/"><u>This Chrome Extension Makes ChatGPT Prompting Easy</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/ultimate-guide-to-youtube-app-on-iphones-and-androids-for-2024/"><u>Ultimate Guide to YouTube App on iPhones and Androids for 2024</u></a></li>
+</ul></div>
 

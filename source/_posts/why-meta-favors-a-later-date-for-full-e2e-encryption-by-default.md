@@ -1,7 +1,7 @@
 ---
 title: Why Meta Favors a Later Date for Full E2E Encryption by Default
-date: 2024-09-14T16:41:27.046Z
-updated: 2024-09-17T00:03:32.339Z
+date: 2024-10-13T22:26:16.438Z
+updated: 2024-10-15T01:49:34.361Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,19 @@ thumbnail: https://thmb.techidaily.com/2e369c90b98435218baf4d297cfbe94e377c61af5
 
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Has Meta Delayed End-to-End Encryption?
 
  The plan has been delayed due to what[Meta says](https://www.telegraph.co.uk/business/2021/11/20/people-shouldnt-have-choose-privacy-safety-says-facebook-safety/) is a desire to engage with all concerned parties to ensure end-to-end encryption is not abused by bad actors. However, when you read between the lines, it appears Meta has buckled to pressure from law enforcement and regulators, who have been adamantly opposed to Meta's E2EE plans.
@@ -45,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/2e369c90b98435218baf4d297cfbe94e377c61af5
  Law enforcers in the US, Australia, and the UK have been urging Meta to ensure its E2EE plans would allow them to secretly read encrypted chats when necessary. Meta originally rejected the idea, but now seems willing to play ball with governments, which are determined not to be locked out.
 
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
 
@@ -67,12 +87,20 @@ thumbnail: https://thmb.techidaily.com/2e369c90b98435218baf4d297cfbe94e377c61af5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-personalized-ringtone-crafting-from-tiktok-beats-to-cellphone-alerts/"><u>[New] Personalized Ringtone Crafting From TikTok Beats to Cellphone Alerts</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-a-closer-inspect-of-the-stunning-dell-p2715q-monitors-capabilities/"><u>[Updated] 2024 Approved A Closer Inspect of the Stunning Dell P2715Q Monitor's Capabilities</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-unbeatable-11-audio-devices-reviewed-here-for-2024/"><u>[Updated] Unbeatable 11 Audio Devices Reviewed Here for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-unlocked-mac-capture-tool-no-cost/"><u>[Updated] Unlocked Mac Capture Tool - No Cost</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/advanced-3d-shaping-crafting-perfect-mc-circles-and-spheres/"><u>Advanced 3D Shaping Crafting Perfect MC Circles & Spheres</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ampace-andes-1500-in-action-real-world-testing-of-an-all-in-one-portable-energy-source/"><u>Ampacē Andes 1500 in Action: Real-World Testing of an All-in-One Portable Energy Source</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/engaging-audiences-through-snapbiz-campaigns/"><u>Engaging Audiences Through SnapBiz Campaigns</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-ethical-review-body-its-role-decoded/"><u>Facebook's Ethical Review Body: Its Role Decoded</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-purge-your-facebook-data-on-android/"><u>How to Purge Your Facebook Data on Android</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-on-iphone-xr-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server On iPhone XR</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-intermission-what-facebook-suggests-for-teenagers/"><u>Instagram Intermission: What Facebook Suggests for Teenagers?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/interactive-learning-on-utilizing-openais-api-capabilities/"><u>Interactive Learning on Utilizing OpenAI's API Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-visuals-in-enhancing-facebook-engagement/"><u>The Role of Visuals in Enhancing Facebook Engagement</u></a></li>
+</ul></div>
 

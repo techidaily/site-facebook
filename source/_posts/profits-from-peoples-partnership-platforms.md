@@ -1,7 +1,7 @@
 ---
 title: Profits From People's Partnership Platforms
-date: 2024-09-16T21:03:53.106Z
-updated: 2024-09-21T17:39:06.653Z
+date: 2024-10-12T18:25:15.912Z
+updated: 2024-10-15T06:48:49.309Z
 tags:
   - facebook
 categories:
@@ -34,9 +34,23 @@ thumbnail: https://thmb.techidaily.com/16a9b35c6bd9fc401c0908fd1a1024fa5ae9f4d4f
 
  Sites like Facebook and Twitter have received hundreds of millions of dollars in venture capital. Nowadays, with hindsight, we can say that those investors made intelligent choices, but venture capital is a risky game and investments don't always pay off. Would you have invested in Facebook when it was called "Thefacebook" and only available to Harvard students?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Advertising
 
 ![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The biggest way that social networks make money is through advertising. There's a reason why the sites are designed to be addicting. The more you look, the more advertising you're exposed to.
 
@@ -51,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/16a9b35c6bd9fc401c0908fd1a1024fa5ae9f4d4f
 ## 3\. User Data
 
 ![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://www.facebook.com/about/ads)
 
@@ -84,13 +105,6 @@ thumbnail: https://thmb.techidaily.com/16a9b35c6bd9fc401c0908fd1a1024fa5ae9f4d4f
 
  Another way of making money is through virtual products. This can be seen in something like Tumblr, which charges for some blog themes. Elsewhere, Facebook used to sell "Gifts" (amusing icons that you can put on someone's profile), but it has since retired this.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. Diversifying
 
  Once a social network grows large enough, it looks to diversify. For those with enough capital, buying other companies is a quick way to do this.
@@ -100,10 +114,10 @@ thumbnail: https://thmb.techidaily.com/16a9b35c6bd9fc401c0908fd1a1024fa5ae9f4d4f
  Diversifying goes beyond just buying other companies. For example, take the Portal. This is Facebook's video chat camera. It wants you to buy this not only to make a profit on the physical device, but also to hook you in to its ecosystem—soon you'll be using Messenger to chat to friends or Workplace to collaborate within your business. Though note, there are[concerns with Facebook Portal privacy](https://www.makeuseof.com/tag/trust-facebook-portal-privacy/) .
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## You Can Make Money on Social Media
@@ -125,5 +139,16 @@ thumbnail: https://thmb.techidaily.com/16a9b35c6bd9fc401c0908fd1a1024fa5ae9f4d4f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-t5-thievery-released-a-deep-dive-review/"><u>[Updated] T5 Thievery Released - A Deep Dive Review</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unlocking-collective-watch-strategies-for-multiple-channels-for-2024/"><u>[Updated] Unlocking Collective Watch Strategies for Multiple Channels for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/admin-steps-for-enhanced-facebook-control/"><u>Admin Steps for Enhanced Facebook Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-facebook-portal-for-home-use/"><u>Best Facebook Portal for Home Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-building-through-7-key-social-media-aspects/"><u>Community Building Through 7 Key Social Media Aspects</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-captivating-facebook-live-videos-a-step-by-step-guide/"><u>Crafting Captivating Facebook Live Videos: A Step-by-Step Guide</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-ultimate-guide-to-mp4-devices/"><u>The Ultimate Guide to MP4 Devices</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Tutorial: Removing Fb New Message Indicators"
-date: 2024-09-10T20:17:30.490Z
-updated: 2024-09-16T20:55:59.405Z
+date: 2024-10-14T00:36:44.475Z
+updated: 2024-10-15T12:33:13.388Z
 tags:
   - facebook
 categories:
@@ -50,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 
 ![facebook notification mark read](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-mark-read.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  To mark all of your Facebook notifications as read, follow the guide below:
 
 1. Head to**Facebook.com** and log into your account.
@@ -62,13 +69,6 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
  Hopefully, the last two sections have helped you get your existing Facebook notifications under control. But that's only half of the battle. You need to make sure you're not getting pestered by all that notification spam in the future, otherwise, you'll quickly end up back in the same position.
 
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications as They Arrive
 
@@ -85,13 +85,6 @@ Follow the steps below to learn about the process on the web app:
  (**Note:** If you are disabling notifications from a page, you will also see an option to**Turn off all notifications from this page** .)
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications by Category
 
@@ -112,13 +105,6 @@ Follow the steps below to learn about the process on the web app:
 
  It's also worth scrolling to the very bottom of the list to the**How you receive notifications** section. In it, you can select which browser and email notifications you receive. You can choose to receive Facebook's suggested notifications if can't be bothered to customize everything—but it will probably still result in you getting too much spam.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Stop Facebook Notifications Altogether
 
  You can't disable all types of Facebook notifications in the web app, but you can stop Facebook notifications entirely on Android and iOS.
@@ -129,7 +115,21 @@ Follow the steps below to learn about the process on the web app:
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -141,6 +141,13 @@ Close
 4. Scroll down to**Facebook** and tap on it.
 5. Tap on**Notifications** .
 6. Slide the toggle next to**Show notifications** into the**Off** position.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Stop Facebook Notifications on iOS
 
@@ -172,5 +179,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-tech-savvy-solutions-for-iphone-screenshots/"><u>[New] In 2024, Tech Savvy Solutions for iPhone Screenshots</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-premier-emulator-titles-simulating-playstation-2-on-ios-for-2024/"><u>[New] Premier Emulator Titles Simulating PlayStation 2 on iOS for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-identifying-relevant-metaphors-and-analogies/"><u>[Updated] Identifying Relevant Metaphors and Analogies</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/break-free-from-issues-restoring-windows-family-security/"><u>Break Free From Issues: Restoring Windows Family Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-places-to-pursue-freelance-work/"><u>Essential Places to Pursue Freelance Work</u></a></li>
+<li><a href="https://facebook.techidaily.com/face-the-competition-facebook-spends-5m-for-new-writers-network/"><u>Face the Competition? Facebook Spends $5M for New Writers Network</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-decoding-second-count-in-20mb-video-files/"><u>In 2024, Decoding Second Count in 20MB Video Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/locating-those-shunned-from-your-facebook-network/"><u>Locating Those Shunned From Your Facebook Network</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/1715701233069-record-your-mac-view-in-minutes/"><u>Record Your Mac View in Minutes!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/script-strategies-for-captivating-youtube-audiences-for-2024/"><u>Script Strategies for Captivating YouTube Audiences for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-social-media-in-europe-as-meta-looms-large/"><u>The Future of Social Media in Europe as Meta Looms Large</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-science-behind-large-language-models-llms-explained/"><u>The Science Behind Large Language Models (LLMs) Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/unclutter-your-digital-footprint/"><u>Unclutter Your Digital Footprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-riches-of-igfb-top-5-monetization-techniques/"><u>Unlocking the Riches of IG/FB: Top 5 Monetization Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-photodnas-methodology-for-image-verification/"><u>Unpacking PhotoDNA's Methodology for Image Verification</u></a></li>
+</ul></div>
 

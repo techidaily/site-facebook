@@ -1,7 +1,7 @@
 ---
 title: "Timing Your FB Friends: When to Follow & Unfollow?"
-date: 2024-10-03T20:55:54.934Z
-updated: 2024-10-09T01:29:20.838Z
+date: 2024-10-13T00:42:33.728Z
+updated: 2024-10-14T17:17:50.131Z
 tags:
   - facebook
 categories:
@@ -38,10 +38,10 @@ Facebook's follow feature works in two ways:
  Interested? Keep reading. We're going to take a closer look at the follow feature and how to make it work for you.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is the Follow Feature Necessary?
@@ -54,22 +54,21 @@ There are two reasons to use the follow feature.
 
  Secondly, it lets you interact with people you're not connected with. In many ways, it's Facebook's answer to Twitter.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Follow and Unfollow on Facebook
 
 ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You automatically follow all your friends. Anyone else, you need to follow manually.
@@ -86,6 +85,13 @@ There are two reasons to use the follow feature.
 
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You See Who You're Following?
 
  You can see who you're following on your friends list. Go to your profile page and select the**Friends** tab.
@@ -95,6 +101,13 @@ There are two reasons to use the follow feature.
 ## How Do You Let People Follow You?
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  So, following other people is straightforward enough, but how do you let other people follow your profile and posts?
 
@@ -110,13 +123,6 @@ This same page contains three other settings you need to be aware of:
 
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Followers can see any of your public content. Remember, this doesn't only refer to text-based posts, you can also choose to make pictures, albums, videos, and even your likes public knowledge.
 
  You can make a post public by clicking on the dropdown menu below the text box when you're writing a message. You can adjust the visibility of pictures and videos in a similar way.
@@ -126,6 +132,13 @@ This same page contains three other settings you need to be aware of:
 ![facebook see following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-see-following.png)
 
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to See Who Follows You on Facebook
 
@@ -149,19 +162,6 @@ This same page contains three other settings you need to be aware of:
 
  If you just want to prevent someone from seeing your public content, choose**Block** . The person will not be able to see your timeline, tag you in posts or photos, invite you to groups, start a chat conversation with you, or add you as a friend. If the person has been abusive, choose**Report** . You can either report the person's whole profile or one individual post/comment.
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Should You Use the Follow Feature on Facebook?
 
  Hopefully, this article has given you a better understanding of the Facebook follow feature. Whether you decide to use the follow feature should depend on how you use Facebook.
@@ -183,21 +183,16 @@ This same page contains three other settings you need to be aware of:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-starting-off-understanding-av1-compression/"><u>[Updated] 2024 Approved Starting Off Understanding AV1 Compression</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-action-camera-showdown-unmatched-seventh-lineup-wetproof/"><u>[Updated] Action Camera Showdown Unmatched Seventh Lineup Wetproof</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-essential-9-mic-recorder-selections-for-online-use-in-23-for-2024/"><u>[Updated] Essential 9 Mic Recorder Selections for Online Use in '23 for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-utilize-vlc-software-for-webcam-video-storage/"><u>[Updated] Utilize VLC Software for Webcam Video Storage</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-revs-up-conversations-with-innovative-messaging-features-on-messenger-and-instagram/"><u>FB Revs Up Conversations with Innovative Messaging Features on Messenger & Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/hidden-no-more-delete-your-fb-activity-log/"><u>Hidden No More: Delete Your FB Activity Log</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-poco-c65-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Poco C65 in 5 Easy Ways | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-nokia-xr21-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Nokia XR21 to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/leap-into-change-how-to-revamp-facebook-details/"><u>Leap Into Change: How to Revamp Facebook Details</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/navigating-through-the-maze-of-error-80080300-in-teams-w11-edition/"><u>Navigating Through the Maze of Error 80080300 in Teams W11 Edition</u></a></li>
-<li><a href="https://review-topics.techidaily.com/new-iphone-14-restore-from-icloud-stuck-on-time-remaining-estimating-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>New iPhone 14 Restore from iCloud Stuck on Time Remaining Estimating | Stellar</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essential-guide-to-monitoring-app-and-website-interactions-on-fb/"><u>The Essential Guide to Monitoring App & Website Interactions on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-new-age-of-nba-fandom-with-fb-and-twt-partnership/"><u>The New Age of NBA Fandom with FB and Twt Partnership</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-scoop-inside-the-latest-facebook-data-revelations/"><u>The Scoop: Inside the Latest Facebook Data Revelations</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/the-ultimate-list-of-free-video-conversion-tools-from-flv-to-mp4-on-windows-including-easy-tutorials/"><u>The Ultimate List of Free Video Conversion Tools From FLV to MP4 on Windows, Including Easy Tutorials!</u></a></li>
-<li><a href="https://facebook.techidaily.com/visual-vibes-crafting-an-attractive-profile-image/"><u>Visual Vibes: Crafting an Attractive Profile Image</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-10-best-mobile-edits-youtube-shorts-clips-on-iosandroid-for-2024/"><u>[Updated] 10 Best Mobile Edits YouTube Shorts Clips on iOS/Android for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-premium-tools-for-6-undetectable-viewings/"><u>[Updated] 2024 Approved Premium Tools for 6 Undetectable Viewings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-for-dealing-with-dark-video-frames-on-youtube/"><u>[Updated] Strategies for Dealing with Dark Video Frames on YouTube</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/movwmv/"><u>最新の自由版ツールを使って、スムーズにMOVファイルをWMV形式に変更する方法</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-change-instagramfacebook-support-for-meta-drops/"><u>Embracing Change: Instagram/Facebook Support for Meta Drops</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-conversation-flow-introducing-new-friends-to-messenger/"><u>Enhancing Conversation Flow: Introducing New Friends to Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/enigmatic-entities-keeping-fb-friends-secret/"><u>Enigmatic Entities: Keeping FB Friends Secret</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-automatically-insert-photo-captions-when-you-upload-to-facebook/"><u>How to Automatically Insert Photo Captions When You Upload to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-smartphones-algorithm-targeting-you-fact-or-fluke/"><u>Is Your Smartphone's Algorithm Targeting You? Fact or Fluke?</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-top-rated-slow-motion-video-players-you-need-for-2024/"><u>New Top-Rated Slow Motion Video Players You Need for 2024</u></a></li>
 </ul></div>
 

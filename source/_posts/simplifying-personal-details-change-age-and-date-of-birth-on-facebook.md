@@ -1,7 +1,7 @@
 ---
 title: "Simplifying Personal Details: Change Age & Date of Birth on Facebook"
-date: 2024-09-15T16:00:15.161Z
-updated: 2024-09-16T23:47:42.856Z
+date: 2024-10-13T19:05:27.636Z
+updated: 2024-10-14T20:44:31.532Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ Follow the steps below to edit your birthday on the Facebook app.
 
 ![edit facebook birthdate](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-facebook-birthdate.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
 1. Log in to the Facebook app on your phone and navigate to your profile.
@@ -65,9 +72,23 @@ Here's how:
 
 ![facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-homepage.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Click on**About** in the menu below your name and profile photo.
 
 ![facebook-profile-page-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-profile-page-1.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select**Basic and Contact Info** in the menu on the left.
 
@@ -81,13 +102,6 @@ Here's how:
 
 ![change facebook birthday 2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday-2.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Request a Birthday Change to Facebook
 
  If you've changed your birthdate more than three times, you can still do so. But this time, you'll have to send a request to Facebook to change it for you. Here's how to do that:
@@ -97,16 +111,23 @@ Here's how:
 ![contact facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/contact-facebook.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Input your desired changes.
 * Select a reason for the change in the dropdown menu and click send.
 
 ![request birthday change](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/request-birthday-change.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Facebook will then correct the error in your birthdate as soon as your request is processed.
 
@@ -129,5 +150,22 @@ Here's how:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-capture-the-essence-of-your-favorite-series-with-these-extractors/"><u>[New] 2024 Approved Capture the Essence of Your Favorite Series with These Extractors</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-next-level-broadcast-software-beyond-streamlabs/"><u>[Updated] Next-Level Broadcast Software Beyond StreamLabs</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-fine-tuning-the-art-of-recording-in-audacity/"><u>2024 Approved Fine-Tuning the Art of Recording in Audacity</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-vivo-t2x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-identity-options-now-for-oculus-users/"><u>Enhanced Identity Options Now for Oculus Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/goat-named-blockchain-zuckerbergs-quirky-investment/"><u>Goat Named 'Blockchain': Zuckerberg’s Quirky Investment.</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-motorola-moto-g14-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Motorola Moto G14 Phones</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-an-easier-way-get-instagrams-verification-on-whatsapp/"><u>Introducing an Easier Way: Get Instagram's Verification on WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/masking-your-favorite-posts-with-precision-on-fb/"><u>Masking Your Favorite Posts with Precision on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-the-labyrinth-of-new-us-antitrust-laws/"><u>Navigating Through the Labyrinth of New US Antitrust Laws</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/um-7-dslr-picks-for-ultimate-visual-storytelling-online/"><u>Premium 7 DSLR Picks For Ultimate Visual Storytelling Online</u></a></li>
+<li><a href="https://techidaily.com/remove-google-frp-lock-on-zte-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on ZTE</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-personal-information-change-facebooks-birth-details/"><u>Revamping Personal Information: Change Facebook's Birth Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-enable-facebooks-protective-features/"><u>Step-by-Step Guide to Enable Facebook's Protective Features</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-tutorial-for-removing-microsoft-onedrive-from-windows-11s-file-system/"><u>Step-by-Step Tutorial for Removing Microsoft OneDrive From Windows 11'S File System</u></a></li>
+</ul></div>
 

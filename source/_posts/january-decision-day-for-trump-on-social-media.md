@@ -1,7 +1,7 @@
 ---
 title: January Decision Day for Trump on Social Media
-date: 2024-09-12T20:48:38.403Z
-updated: 2024-09-16T22:18:19.586Z
+date: 2024-10-13T09:20:12.572Z
+updated: 2024-10-15T10:13:18.560Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/bc869d9d43a6e8eaba8010b4b670a5dfb48692bba
 
  Clegg continues by explaining that Facebook will apply the same "newsworthiness balancing test" to all content. The company will measure a post's public interest value against the potential harm of leaving it up, and decide on what action to take based on which weighs more.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How We Got Here: A Timeline of Trump's Facebook Ban
 
  To understand why Facebook removed Trump from its social media platforms, we have to roll all the way back to the beginning of the year.
@@ -50,11 +57,31 @@ thumbnail: https://thmb.techidaily.com/bc869d9d43a6e8eaba8010b4b670a5dfb48692bba
 
 ![Facebook Tweaked News Feed Election](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/facebook-tweaked-news-feed.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Facebook was given six months to reassess Trump's suspension, and yet it has already announced its its action plan after less than one. On top of that, Facebook has also responded to the Oversight Board's 19 recommended policy changes.
 
 > Out of the board’s 19 recommendations, we are committed to fully implementing 15\. We are implementing one recommendation in part, still assessing two recommendations, and taking no further action on one recommendation.
 
  You can read[Facebook's response](https://about.fb.com/wp-content/uploads/2021/06/Facebook-Responses-to-Oversight-Board-Recommendations-in-Trump-Case.pdf) \[PDF\] in full on Facebook Newsroom.
+
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Did Facebook Really Listen to the Oversight Board?
 
@@ -77,12 +104,16 @@ thumbnail: https://thmb.techidaily.com/bc869d9d43a6e8eaba8010b4b670a5dfb48692bba
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/breakthrough-in-high-speed-processing-with-intels-new-optical-interconnect-technology-for-cpu-and-gpu-integration-delivering-up-to-wartime-bandwidth/"><u>Breakthrough in High-Speed Processing with Intel's New Optical Interconnect Technology for CPU and GPU Integration, Delivering up to Wartime Bandwidth</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/delving-into-youtubes-digital-video-workshop-for-2024/"><u>Delving Into YouTube's Digital Video Workshop for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/enhance-your-broadcasts-advanced-features-of-manycam-for-online-videography/"><u>Enhance Your Broadcasts: Advanced Features of ManyCam for Online Videography</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-avoid-pitfalls-in-facebooks-marketplace-space/"><u>How to Avoid Pitfalls in Facebook's Marketplace Space</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-vivo-y17s-get-deleted-phone-number-back-with-ease-and-safety-by-fonelab-android-recover-contacts/"><u>How to Vivo Y17s Get Deleted Phone Number Back with Ease and Safety</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-writing-for-impact-a-compreenas-guide-to-youtube-video-storytelling/"><u>In 2024, Writing for Impact A Compreenas Guide to YouTube Video Storytelling</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-delete-disapproved-post-replies/"><u>Navigating the Nuances: Delete Disapproved Post Replies</u></a></li>
+<li><a href="https://facebook.techidaily.com/room-ready-rookies-a-guide-to-effective-room-use/"><u>Room-Ready Rookies: A Guide to Effective Room Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-guide-to-digital-grief-handling-facebook-profiles-of-the-deceased/"><u>The Guide to Digital Grief: Handling Facebook Profiles of the Deceased</u></a></li>
+</ul></div>
 

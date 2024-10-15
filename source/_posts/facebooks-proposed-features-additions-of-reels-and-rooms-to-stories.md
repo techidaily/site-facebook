@@ -1,7 +1,7 @@
 ---
 title: "Facebook's Proposed Features: Additions of Reels & Rooms to Stories"
-date: 2024-09-10T20:14:47.165Z
-updated: 2024-09-16T20:15:21.623Z
+date: 2024-10-14T05:16:09.119Z
+updated: 2024-10-15T03:22:40.996Z
 tags:
   - facebook
 categories:
@@ -38,9 +38,23 @@ thumbnail: https://thmb.techidaily.com/6a5ef0f96e3143e13628bf5caeebc60a8c5be5cea
 
  Originally, it was believed that[Facebook was making a standalone app to compete with Clubhouse](https://www.makeuseof.com/facebook-making-clubhouse-app/) , but Live Audio Rooms (and Podcasts) were instead built right into Facebook. You can read their introduction on[Facebook Newsroom](https://about.fb.com/news/2021/06/live-audio-rooms-and-podcasts-on-facebook/) .
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Continues to Compete With… Just About Everything, Really
 
 ![Facebook Slows Down Election Misinformation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/facebook-slow-down-election-misinfo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Everyone knows the Facebook story by now: CEO Mark Zuckerberg created a website in 2003 while he was attending Harvard University, and it blew up much bigger than he ever imagined.
 
@@ -65,18 +79,21 @@ thumbnail: https://thmb.techidaily.com/6a5ef0f96e3143e13628bf5caeebc60a8c5be5cea
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-unseen-influences-on-your-viewing-habits-of-stories/"><u>[New] Unseen Influences on Your Viewing Habits of Stories</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-hot-list-todays-youtube-sensations/"><u>[Updated] Hot List Today's YouTube Sensations</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-most-trending-videos-in-your-feed/"><u>Explore Most Trending Videos in Your Feed</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-mastering-roblox-recording-best-practices-on-a-mac/"><u>In 2024, Mastering Roblox Recording Best Practices on a Mac</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-unlocking-vrecorders-potential-quick-download-and-install/"><u>In 2024, Unlocking VRecorder's Potential Quick Download & Install</u></a></li>
+<li><a href="https://facebook.techidaily.com/joe-bidens-cure-via-snap-fb-twitters-the-story/"><u>Joe Biden's Cure via SNAP, FB, Twitters: The Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-maze-your-essential-security-guidebook/"><u>Navigating Facebook's Maze: Your Essential Security Guidebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/notice-missing-photos-in-digital-dialogues-messenger/"><u>Notice Missing Photos in Digital Dialogues, Messenger</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/officially-unveiled-full-roster-of-ps-vr2-titles-announced/"><u>Officially Unveiled: Full Roster of PS VR2 Titles Announced</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-digital-footprint-on-facebook/"><u>Personalizing Your Digital Footprint on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/remove-spotifys-social-linkage-with-facebook-here/"><u>Remove Spotify's Social Linkage with Facebook Here</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-honor-90-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Honor 90 Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-stargazers-guide-to-luxury-car-accessories-sj4000-for-2024/"><u>The Ultimate Stargazer's Guide to Luxury Car Accessories (SJ4000) for 2024</u></a></li>
+</ul></div>
 

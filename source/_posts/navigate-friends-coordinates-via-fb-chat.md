@@ -1,7 +1,7 @@
 ---
 title: Navigate Friend's Coordinates via FB Chat
-date: 2024-10-07T21:30:16.446Z
-updated: 2024-10-08T20:26:39.924Z
+date: 2024-10-09T19:02:29.849Z
+updated: 2024-10-14T17:37:22.608Z
 tags:
   - facebook
 categories:
@@ -51,10 +51,10 @@ Close
  Once you reach your destination or you want to stop sharing your live location, click on**Stop Sharing Location** .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Share a Pinned Location in Facebook Messenger
@@ -72,32 +72,38 @@ Follow these simple instructions to send a pinned location:
 ![Location Option to Pin a Specific Location In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/5-Location-Option-to-Pin-a-Specific-Location-In-Facebook-Messenger.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Pinning a Specific Location By Dragging In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/6-Pinning-a-Specific-Location-By-Dragging-In-Facebook-Messenger.jpg)
 
-![Searching a Specific Location To Pin In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/7-Searching-a-Specific-Location-To-Pin-In-Facebook-Messenger.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Searching a Specific Location To Pin In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/7-Searching-a-Specific-Location-To-Pin-In-Facebook-Messenger.jpg)
 
 Close
 
  This is how you can easily share your live location or pin a random one easily. After sharing your location, make a habit of[deleting your Facebook location history](https://www.makeuseof.com/tag/view-delete-location-history-facebook/) so that Facebook won't be able to spy on you for too long.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Share Live Location or Pin It Through Facebook Messenger
@@ -121,21 +127,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-playful-pioneers-the-kids-game-bazaar-for-2024/"><u>[New] Playful Pioneers The Kids' Game Bazaar for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-masterclass-in-selecting-prime-hdr-cameras/"><u>[Updated] 2024 Approved Masterclass in Selecting Prime HDR Cameras</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-guide-to-mac-videos-for-snapchat/"><u>[Updated] The Ultimate Guide to Mac Videos for Snapchat</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-apple-iphone-11-pro-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>4 Methods to Turn off Life 360 On Apple iPhone 11 Pro without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-key-calendar-software-for-consistent-posting-cycles/"><u>8 Key Calendar Software for Consistent Posting Cycles</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/a-step-by-step-strategy-for-dominating-the-digital-marketing-arena-for-2024/"><u>A Step-by-Step Strategy for Dominating the Digital Marketing Arena for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-the-usefulness-and-pitfalls-in-facebook-based-events-organization/"><u>Assessing the Usefulness and Pitfalls in Facebook-Based Events Organization</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-connectivity-six-arguments-for-leaving-facebook-behind/"><u>Beyond Connectivity - Six Arguments for Leaving Facebook Behind</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-misinformation-on-platforms-during-pandemic/"><u>Breaking Down Misinformation on Platforms During Pandemic</u></a></li>
-<li><a href="https://facebook.techidaily.com/childhood-activity-report-on-social-media-sites-like-fb/"><u>Childhood Activity Report on Social Media Sites Like FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/commerce-through-observation-a-deep-dive/"><u>Commerce Through Observation: A Deep Dive</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-remove-apple-id-from-apple-iphone-15-pro-max-without-password-by-drfone-ios/"><u>How to Remove Apple ID from Apple iPhone 15 Pro Max without Password?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-vivo-y27-4g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Vivo Y27 4G online without jailbreak</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-realme-gt-neo-5-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Realme GT Neo 5 to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>iPogo will be the new iSpoofer On Apple iPhone 13? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719146313065-simplify-syncing-cross-platform-transfer-of-facebook-items/"><u>Simplify Syncing: Cross-Platform Transfer of Facebook Items</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-techniques-for-smooth-audio-amplification-in-lumafusion/"><u>[New] Techniques for Smooth Audio Amplification in Lumafusion</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-live-stream-audio-effective-recording-methods-for-the-digital-age/"><u>[Updated] In 2024, Live Stream Audio Effective Recording Methods for the Digital Age</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instatilecraft-create-impressive-androidplusios-vids/"><u>2024 Approved InstaTilecraft Create Impressive Android+iOS Vids</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-mastering-instagram-videos-understanding-time-constraints/"><u>2024 Approved Mastering Instagram Videos Understanding Time Constraints</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-stop-real-time-footage-gathering-quickstep-guide/"><u>2024 Approved Stop Real-Time Footage Gathering QuickStep Guide</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-the-ultimate-resource-for-choosing-great-podcast-names-with-examples/"><u>2024 Approved The Ultimate Resource for Choosing Great Podcast Names, With Examples</u></a></li>
+<li><a href="https://driver-install.techidaily.com/download-guide-official-netgear-a6200-profiles/"><u>Download Guide: Official Netgear A6200 Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-friends-use-polls-to-deepen-relationships-in-messaging/"><u>Engage Friends: Use Polls to Deepen Relationships in Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/envisioning-interconnected-realities-metaverse-insights/"><u>Envisioning Interconnected Realities: Metaverse Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-lockdown-unraveling-your-suspended-status/"><u>Facebook Lockdown: Unraveling Your Suspended Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-prototype-with-dual-camera-enabled-watch/"><u>Facebook Unveils Prototype with Dual Camera-Enabled Watch</u></a></li>
+<li><a href="https://facebook.techidaily.com/honoring-the-departed-online-facebook-profile-management-after-death/"><u>Honoring the Departed Online: Facebook Profile Management After Death</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-xiaomi-redmi-12-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Xiaomi Redmi 12 Location | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-depth-analysis-nero-vs-movavi-the-ultimate-video-editing-showdown/"><u>In-Depth Analysis: Nero Vs. Movavi - The Ultimate Video Editing Showdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneak-peek-at-fbs-watch-tech-double-cameras-on-the-horizon/"><u>Sneak Peek at FB's Watch Tech: Double Cameras on the Horizon?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-savvy-cultivating-work-relationships-on-fb/"><u>Social Media Savvy: Cultivating Work Relationships on FB</u></a></li>
 </ul></div>
 

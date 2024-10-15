@@ -1,7 +1,7 @@
 ---
 title: "Fortifying Digital Presence: Practical Steps to Add 2FA to Gmail and Outlook Accounts"
-date: 2024-09-11T20:02:43.205Z
-updated: 2024-09-16T22:42:58.512Z
+date: 2024-10-09T19:51:27.004Z
+updated: 2024-10-15T04:16:26.956Z
 tags:
   - facebook
 categories:
@@ -40,19 +40,33 @@ thumbnail: https://thmb.techidaily.com/f080364c9fd10c7a5fc9c9d8f37fc816490a2b544
 
 ![google 2fa second device prompt message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-second-device-prompt-message.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The first is through the newer Google Prompt system. Instead of sending a one-time code, you receive a Google Prompt on your separate device. You simply unlock your phone and tap**Yes** to unlock your account.
 
  Head to your[Google Account](https://myaccount.google.com) , select**Security** , and then under the**Signing in to Google** header, select**2-Step Verification.** You will have to sign into your account again using your current password. Then select**Try It Now** to send a Google Prompt message to your listed device.
 
 ![google 2fa options list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-options-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Once you accept the Google Prompt, you will meet another screen asking if you want to turn on 2-Step Verification. (Some users may meet a screen asking them to confirm their mobile number using an SMS; do this, then continue.) Select**Turn On** .
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Authenticator App
@@ -70,13 +84,6 @@ thumbnail: https://thmb.techidaily.com/f080364c9fd10c7a5fc9c9d8f37fc816490a2b544
  Scroll down and select the**Authenticator app,** then select the type of phone you have (Android or iPhone). A QR code will appear. Open the Authenticator app on your phone (download links above), select the**+** symbol to add a new email address, then select**Scan a barcode** . Use the app to scan the QR code on your screen and see that it instantaneously adds the account to the app.
 
  Each time you log in to your Google Account, you must provide the six-digit Google Authenticator code. If you don't have the code, you cannot access your account.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Set Up 2FA on Microsoft Outlook
 
@@ -102,28 +109,28 @@ thumbnail: https://thmb.techidaily.com/f080364c9fd10c7a5fc9c9d8f37fc816490a2b544
 
 ![facebook two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-two-factor-auth-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Locking your Facebook account is as important as your email address.
 
  To enable 2FA, head to your[Facebook Security Settings](https://www.facebook.com/settings?tab=security) page. Next, select**Use two-factor authentication** , then**Get started** . You have three options: Text message, Authentication app, or the newest addition, a Security key. You can select whichever option suits you.
 
  You can use the Google Authenticator app from the other sections in this article. Just scan the QR code and follow the Facebook instructions. Alternatively, enter your phone number, wait for the activation code to arrive, and follow the Facebook instructions. The security key option requires[a hardware security key](https://www.makeuseof.com/best-hardware-security-keys/) .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set Up 2FA on Twitter
 
 ![twitter two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/twitter-two-factor-auth-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Twitter supports third-party authenticator apps, so you can use Google Authenticator to secure your account.
@@ -137,10 +144,10 @@ Locking your Facebook account is as important as your email address.
 ![instagram two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/instagram-two-factor-auth-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Instagram 2FA comes in two forms: an SMS code or using an authentication app. Instagram added the latter in 2018 to boost account security, and the set up is very easy.
@@ -172,5 +179,24 @@ Locking your Facebook account is as important as your email address.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-advanced-tips-for-integrating-markers-in-videography/"><u>[New] Advanced Tips for Integrating Markers in Videography</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-sony-x1000-video-excellence-detailed-product-evaluation-for-2024/"><u>[New] Sony X1000 Video Excellence Detailed Product Evaluation for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-risk-and-revelation-10-roguelike-game-selection-for-2024/"><u>[Updated] Risk and Revelation #10 Roguelike Game Selection for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-metaverse-milestones-top-10-movies-that-transcend-our-own-universe/"><u>2024 Approved Metaverse Milestones Top 10 Movies That Transcend Our Own Universe</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-commitment-to-advancing-the-rust-language/"><u>Facebook's Commitment to Advancing the Rust Language</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-facebooks-integrated-internet-access/"><u>Halt Facebook's Integrated Internet Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/"><u>How to Disable Algorithmic Feeds on Twitter, Instagram, and Facebook</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-crafting-a-seamless-social-journey-from-instaplustik/"><u>In 2024, Crafting a Seamless Social Journey From Insta+Tik</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Vivo T2x 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-approaches-for-identifying-new-online-communities/"><u>Innovative Approaches for Identifying New Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-the-ghostly-side-of-digital-conversations/"><u>Insight Into the Ghostly Side of Digital Conversations</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/phased-opening-visuals/"><u>Phased Opening Visuals</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-personal-info-a-comprehensive-fb-safety-manual/"><u>Protecting Personal Info: A Comprehensive FB Safety Manual</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/revolutionary-advancements-in-ai-with-enriched-visual-outputs-by-google-bard/"><u>Revolutionary Advancements in AI with Enriched Visual Outputs by Google Bard</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-back-finding-former-job-references-on-fb/"><u>Tracing Back: Finding Former Job References on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-joining-forces-on-facebook-heres-the-proof/"><u>Why Joining Forces on Facebook? Here's the Proof!</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Online Gridlock: All Major Social Networks Down"
-date: 2024-10-03T00:53:41.379Z
-updated: 2024-10-09T00:47:06.926Z
+date: 2024-10-11T02:47:12.117Z
+updated: 2024-10-15T09:26:00.605Z
 tags:
   - facebook
 categories:
@@ -38,13 +38,6 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
 
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Why Is Facebook Down? Is Facebook Up Yet?
 
  A DNS (Domain Name System) issue appears to be the culprit behind Facebook's massive outage.
@@ -56,10 +49,10 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What Are BGP Routes?
@@ -73,10 +66,10 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
@@ -84,10 +77,10 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Hashtag #facebookdown Trends on Twitter
@@ -95,6 +88,13 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  Within minutes of Facebook, WhatsApp, and Instagram going down, the hashtag #facebookdown was trending on Twitter, amassing hundreds of thousands of tweets. #whatsappdown and #instadown also shot to the top of the Twitter trending charts as panicked users flocked en masse to the social network in an attempt to find out why Facebook is down.
 
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
 
@@ -117,16 +117,15 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-streamlining-your-monetization-mastering-youtube-adsense/"><u>[New] 2024 Approved Streamlining Your Monetization Mastering YouTube AdSense</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-cutting-edge-identifying-instagram-leavers/"><u>[Updated] 2024 Approved Cutting Edge Identifying Instagram Leavers</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-how-to-expertly-record-and-save-your-favorite-hulu-shows-for-2024/"><u>[Updated] How To Expertly Record and Save Your Favorite Hulu Shows for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-master-your-images-top-15-instagram-downloader-apps-for-2024/"><u>[Updated] Master Your Images Top 15 Instagram Downloader Apps for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unveiling-enhancements-in-sonys-s6500-bdhd-player/"><u>[Updated] Unveiling Enhancements in Sony's S6500 BD/HD Player</u></a></li>
-<li><a href="https://facebook.techidaily.com/10-purebred-social-media-helpers-free/"><u>10 Purebred Social Media Helpers (FREE)</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-(securityfacebookmailcom)-be-trusted-for-fb-safety/"><u>Can <Security@facebookmail.com> Be Trusted for FB Safety?</u></a></li>
-<li><a href="https://facebook.techidaily.com/ceo-to-reconsider-trump-page-ban-policy/"><u>CEO to Reconsider Trump Page Ban Policy</u></a></li>
-<li><a href="https://facebook.techidaily.com/comparing-oculus-quest-privacy-in-meta-and-facebook-realms/"><u>Comparing Oculus Quest Privacy in Meta & Facebook Realms</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-make-your-own-meme-now/"><u>In 2024, Make Your Own Meme Now</u></a></li>
-<li><a href="https://games-able.techidaily.com/steps-to-prevent-steam-auto-launch/"><u>Steps to Prevent Steam Auto-Launch</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-camera-powerhouse-selecting-the-10-best-4k-phones/"><u>[New] 2024 Approved Camera Powerhouse Selecting the 10 Best 4K Phones</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-huawei-p60-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Huawei P60 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-blueprint-for-social-connectivity-redesign/"><u>Facebook's Blueprint for Social Connectivity Redesign</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-privacy-dilemma-the-ios-145-twist/"><u>Facebook's Privacy Dilemma: The iOS 14.5 Twist</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Vivo X100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/overcoming-android-auto-glitches-a-guide-to-repairing-your-spotify-app/"><u>Overcoming Android Auto Glitches: A Guide to Repairing Your Spotify App</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/premium-top-11-list-audio-recording-essentials/"><u>Premium Top 11 List - Audio Recording Essentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-the-digital-future-apple-vs-metaverse/"><u>Rethinking the Digital Future: Apple Vs. Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-social-networks-the-effect-of-faceprint-deletion-on-security/"><u>Safeguarding Social Networks: The Effect of Faceprint Deletion on Security</u></a></li>
+<li><a href="https://windows11.techidaily.com/strategies-to-overcome-game-hub-connectivity-issues/"><u>Strategies to Overcome Game Hub Connectivity Issues</u></a></li>
 </ul></div>
 

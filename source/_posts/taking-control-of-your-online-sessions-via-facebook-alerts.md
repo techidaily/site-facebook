@@ -1,7 +1,7 @@
 ---
 title: Taking Control of Your Online Sessions via Facebook Alerts
-date: 2024-09-13T23:33:51.550Z
-updated: 2024-09-16T22:00:43.252Z
+date: 2024-10-10T06:48:41.337Z
+updated: 2024-10-15T00:36:10.347Z
 tags:
   - facebook
 categories:
@@ -62,6 +62,13 @@ Close
 
  With the Facebook app, you can[switch between multiple Facebook accounts](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) and easily set a time limit for each.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Use Daily Time Reminder Alert to Limit Your Facebook Usage
 
  Use Facebook's daily time reminder feature to limit your time on Facebook for the day, and the app will notify you when you cross that limit. Having a reminder alert will help you stop scrolling through your feed and boost your productivity.
@@ -79,12 +86,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-cutting-edge-moves-simple-steps-to-edit-videos-in-windows-10/"><u>[New] 2024 Approved Cutting-Edge Moves Simple Steps to Edit Videos in Windows 10</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-mastering-instagram-reels-adding-your-own-soundtrack/"><u>[New] 2024 Approved Mastering Instagram Reels Adding Your Own Soundtrack</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-historys-heaviest-battles-rts-review-of-7-epic-games-for-2024/"><u>[New] History's Heaviest Battles RTS Review of 7 Epic Games for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-iphone-12-pro-max-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On iPhone 12 Pro Max</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-fun-tests-are-they-stealing-secrets/"><u>Facebook's Fun Tests: Are They Stealing Secrets?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-portal-adapts-to-your-lifestyle-with-go/"><u>Facebook's Portal Adapts to Your Lifestyle with Go</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/from-concept-to-delivery-using-luts-with-adobe-ae/"><u>From Concept to Delivery Using LUTs with Adobe AE</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-secure-connection-failed-errors-in-mozilla-firefox/"><u>How to Fix 'Secure Connection Failed' Errors in Mozilla Firefox</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-lava-blaze-2-pro-phone-by-drfone-android/"><u>How to Unlock a Network Locked Lava Blaze 2 Pro Phone?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-on-apple-iphone-13-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID On Apple iPhone 13 Making It Possible</u></a></li>
+<li><a href="https://facebook.techidaily.com/possible-new-identity-for-facebook-uncovered/"><u>Possible New Identity for Facebook Uncovered</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-cost-to-america-excessive-damage/"><u>Social Media's Cost to America: Excessive Damage</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactics-for-efficiently-handling-fb-connected-services/"><u>Tactics for Efficiently Handling FB-Connected Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-power-of-independent-messaging-services/"><u>Unlock the Power of Independent Messaging Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-sudden-shift-to-telegram-after-fbs-hiatus/"><u>Unpacking the Sudden Shift to Telegram After FB's Hiatus</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/why-consider-switching-to-ios-17-a-detailed-assessment/"><u>Why Consider Switching to iOS 17? A Detailed Assessment</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-social-sphere-scan-identifying-these-9-cyber-threat-indicators/"><u>Your Social Sphere Scan: Identifying These 9 Cyber Threat Indicators</u></a></li>
+</ul></div>
 

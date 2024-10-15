@@ -1,7 +1,7 @@
 ---
 title: "The Currency of Connection: Online Revenue Rules"
-date: 2024-09-12T16:54:13.291Z
-updated: 2024-09-16T18:46:50.042Z
+date: 2024-10-10T19:19:14.575Z
+updated: 2024-10-15T04:02:04.194Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,19 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
 
  Sites like Facebook and Twitter have received hundreds of millions of dollars in venture capital. Nowadays, with hindsight, we can say that those investors made intelligent choices, but venture capital is a risky game and investments don't always pay off. Would you have invested in Facebook when it was called "Thefacebook" and only available to Harvard students?
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Advertising
 
 ![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
@@ -52,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
 
 ![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit:[Facebook](https://www.facebook.com/about/ads)
 
  Another big source of income for social media platforms, and a controversial one, is through collecting and selling user data.
@@ -66,6 +86,13 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
 
 ![Reddit Premium promo image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/06/whats-reddit-premium.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  All the popular social media sites let you make your account for free. However, some of them lock additional features behind a paywall in the hopes that you will pay for these premium memberships.
 
  One example is[Reddit's Premium subscription](https://www.makeuseof.com/tag/what-is-reddit-premium/) , which gives you an ad-free experience, access to an exclusive subreddit, a profile badge, and more. Reddit also sells Coins, which you can buy to give other users badges in reward for good contributions.
@@ -73,6 +100,13 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
  Another example is LinkedIn Premium. This gives access to LinkedIn learning courses, greater insight into who is viewing your profile, the ability to send InMail to recruiters, and more.
 
  The majority of users won't pay for these premium memberships, which is one of the reasons that the base account is free. However, for those people who are willing to pay, it makes for a good income stream for the social networks.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Transaction Fees and Virtual Products
 
@@ -84,13 +118,6 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
 
  Another way of making money is through virtual products. This can be seen in something like Tumblr, which charges for some blog themes. Elsewhere, Facebook used to sell "Gifts" (amusing icons that you can put on someone's profile), but it has since retired this.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. Diversifying
 
  Once a social network grows large enough, it looks to diversify. For those with enough capital, buying other companies is a quick way to do this.
@@ -98,13 +125,6 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
  It's why Meta owns Facebook, WhatsApp, Instagram, and Oculus. It's also why Twitter has acquired companies like Gnip, MoPub, and Periscope. Not only do they get the technologies and user data that these companies possess, but they can also use them as an additional revenue source to fund their social media platform.
 
  Diversifying goes beyond just buying other companies. For example, take the Portal. This is Facebook's video chat camera. It wants you to buy this not only to make a profit on the physical device, but also to hook you in to its ecosystem—soon you'll be using Messenger to chat to friends or Workplace to collaborate within your business. Though note, there are[concerns with Facebook Portal privacy](https://www.makeuseof.com/tag/trust-facebook-portal-privacy/) .
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## You Can Make Money on Social Media
 
@@ -125,5 +145,20 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-downloadfacebookvideos-essential-browser-addons-for-a-smooth-social-media-journey-in-firefox-for-2024/"><u>[New] DownloadFacebookVideos! - Essential Browser Addons for a Smooth Social Media Journey in FireFox for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-best-gopro-accessories-for-beginners/"><u>[Updated] The Best GoPro Accessories for Beginners</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-content-hub-hierarchy-stand-out-amongst-titans-vimeo-youtube-and-dailymotion/"><u>2024 Approved Content Hub Hierarchy Stand Out Amongst Titans – Vimeo, YouTube & Dailymotion?</u></a></li>
+<li><a href="https://facebook.techidaily.com/delete-prep-navigate-your-facebook-break-with-ease/"><u>Delete Prep: Navigate Your Facebook Break With Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-authorship-in-online-visual-content/"><u>Determining Authorship in Online Visual Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-if-(securityfbcom)-is-a-secure-and-legitimate-mail-service-from-fb/"><u>Determining if <security@fb.com> Is a Secure and Legitimate Mail Service From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/disable-friends-who-stay-hidden-on-facebook/"><u>Disable Friends Who Stay Hidden on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-intellectual-property-in-online-pics/"><u>Dissecting Intellectual Property in Online Pics</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-corsairs-top-rated-icue-software-to-upgrade-your-pc-on-windows-11-and-10/"><u>Download Corsair's Top-Rated iCUE Software to Upgrade Your PC on Windows 11 and 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-memory-sanctity-fb-block-strategies/"><u>Elevate Memory Sanctity: FB Block Strategies</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/resolve-the-service-unavailable-fiasco-fixing-windows-update-error-0x80070005/"><u>Resolve the 'Service Unavailable' Fiasco: Fixing Windows Update Error 0X80070005</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-fundamentals-of-fluent-russian-communication/"><u>The Fundamentals of Fluent Russian Communication</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-apps-and-online-tools-to-track-xiaomi-14-pro-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Xiaomi 14 Pro Phone With/Without IMEI Number</u></a></li>
+</ul></div>
 

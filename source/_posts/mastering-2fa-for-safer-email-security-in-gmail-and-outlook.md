@@ -1,7 +1,7 @@
 ---
 title: Mastering 2FA for Safer Email Security in Gmail & Outlook
-date: 2024-09-12T22:31:43.122Z
-updated: 2024-09-16T16:25:29.994Z
+date: 2024-10-07T17:24:32.786Z
+updated: 2024-10-14T23:54:28.229Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
 
  Check out our article on the[pros and cons of different 2FA methods](https://www.makeuseof.com/tag/pros-cons-2fa-types-methods/) for a more in-depth look at the system.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Gmail and Google
 
  Your Google accounts can use several different 2FA schemes, such is the search giant's commitment to securing your accounts.
@@ -40,11 +47,25 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
 
 ![google 2fa second device prompt message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-second-device-prompt-message.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The first is through the newer Google Prompt system. Instead of sending a one-time code, you receive a Google Prompt on your separate device. You simply unlock your phone and tap**Yes** to unlock your account.
 
  Head to your[Google Account](https://myaccount.google.com) , select**Security** , and then under the**Signing in to Google** header, select**2-Step Verification.** You will have to sign into your account again using your current password. Then select**Try It Now** to send a Google Prompt message to your listed device.
 
 ![google 2fa options list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-options-list.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Once you accept the Google Prompt, you will meet another screen asking if you want to turn on 2-Step Verification. (Some users may meet a screen asking them to confirm their mobile number using an SMS; do this, then continue.) Select**Turn On** .
 
@@ -53,16 +74,10 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
 ![google 2fa authenticator options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-authenticator-options.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Some users may prefer to use a different 2FA system. One such option is the Google Authenticator app. The Authenticator app generates a six-digit code for you to log into your account, but you must have your phone with you for the system to work.
@@ -76,13 +91,6 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
  Scroll down and select the**Authenticator app,** then select the type of phone you have (Android or iPhone). A QR code will appear. Open the Authenticator app on your phone (download links above), select the**+** symbol to add a new email address, then select**Scan a barcode** . Use the app to scan the QR code on your screen and see that it instantaneously adds the account to the app.
 
  Each time you log in to your Google Account, you must provide the six-digit Google Authenticator code. If you don't have the code, you cannot access your account.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Set Up 2FA on Microsoft Outlook
 
@@ -98,13 +106,6 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
 
 **Note:** There are[other excellent 2FA authentication apps](https://www.makeuseof.com/tag/5-best-alternatives-google-authenticator/) out there.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set Up 2FA on Apple and iCloud
 
  Apple's 2FA is very Apple-centric. In that, you won't be using the Google Authenticator app or any other app for that matter. That said, the Apple 2FA process works very well and only takes a moment or two to set up.
@@ -115,6 +116,13 @@ thumbnail: https://thmb.techidaily.com/482b831c6b34c789ab00f688124bfef762b7175ea
 
 ![facebook two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-two-factor-auth-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Locking your Facebook account is as important as your email address.
 
  To enable 2FA, head to your[Facebook Security Settings](https://www.facebook.com/settings?tab=security) page. Next, select**Use two-factor authentication** , then**Get started** . You have three options: Text message, Authentication app, or the newest addition, a Security key. You can select whichever option suits you.
@@ -122,10 +130,10 @@ Locking your Facebook account is as important as your email address.
  You can use the Google Authenticator app from the other sections in this article. Just scan the QR code and follow the Facebook instructions. Alternatively, enter your phone number, wait for the activation code to arrive, and follow the Facebook instructions. The security key option requires[a hardware security key](https://www.makeuseof.com/best-hardware-security-keys/) .
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Set Up 2FA on Twitter
@@ -147,13 +155,6 @@ Locking your Facebook account is as important as your email address.
  In the Instagram app, head to **Settings > Privacy and Security > Two-Factor Authentication > Edit two-factor authentication setting,** then select the 2FA method you prefer.
 
  If you select "Authentication App," the Instagram app will automatically detect your installed authentication app and send a login code. For instance, your Instagram account would automatically appear in the Google Authenticator app on your phone. However, by extension, the app authentication option cannot be turned on using the desktop version, which is disappointing.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Set Up 2FA on Amazon
 
@@ -178,5 +179,18 @@ Locking your Facebook account is as important as your email address.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-best-ways-to-get-background-stock-images-for-photos-and-videos/"><u>2024 Approved Best Ways to Get Background Stock Images for Photos and Videos</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-guide-to-youtube-success-with-tubebuddy/"><u>2024 Approved The Ultimate Guide to YouTube Success with TubeBuddy</u></a></li>
+<li><a href="https://facebook.techidaily.com/end-social-media-spying-strategies-to-block-facebook/"><u>End Social Media Spying: Strategies to Block Facebook</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/free-update-hp-pagewide-pro-477dw-drivers-for-latest-windows-operating-systems-win11108/"><u>Free Update: HP PageWide Pro 477DW Drivers for Latest Windows Operating Systems (Win11/10/8)</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-htc-u23-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-facebook-profile-picture/"><u>How to Change Your Facebook Profile Picture</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-elevate-your-content-a-guide-to-engaging-live-thumbnails/"><u>In 2024, Elevate Your Content A Guide to Engaging Live Thumbnails</u></a></li>
+<li><a href="https://extra-information.techidaily.com/overcoming-the-crashes-in-windows-11s-photos-application/"><u>Overcoming the Crashes in Windows 11'S Photos Application</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-facebook-profile-as-secure/"><u>Setting Facebook Profile as Secure</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/step-by-step-srt-manipulation-for-mac-enthusiasts-for-2024/"><u>Step-by-Step SRT Manipulation for Mac Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-changed-symbolism-in-facebooks-updated-page-tags/"><u>Unraveling the Changed Symbolism in Facebook's Updated Page Tags</u></a></li>
+</ul></div>
 

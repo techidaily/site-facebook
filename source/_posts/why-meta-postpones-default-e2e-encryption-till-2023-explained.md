@@ -1,7 +1,7 @@
 ---
 title: Why Meta Postpones Default E2E Encryption Till 2023 Explained
-date: 2024-10-08T05:14:39.515Z
-updated: 2024-10-08T18:07:51.262Z
+date: 2024-10-12T04:44:17.982Z
+updated: 2024-10-15T11:15:05.726Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
@@ -54,10 +54,16 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
@@ -83,19 +89,19 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-unlocking-the-secrets-of-success-top-strategies-for-fb-video-growth/"><u>[New] 2024 Approved Unlocking the Secrets of Success Top Strategies for FB Video Growth</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-gain-profit-power-the-secret-of-successful-youtube-marketing-and-500plus/"><u>[Updated] Gain Profit Power The Secret of Successful Youtube Marketing & 500+</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-pinnacle-stock-for-premium-vector-designs/"><u>[Updated] Pinnacle Stock for Premium Vector Designs</u></a></li>
-<li><a href="https://win-answers.techidaily.com/complete-tutorial-for-implementing-hyper-v-on-your-windows-n-version/"><u>Complete Tutorial for Implementing Hyper-V on Your Windows N Version</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/nt-creators-arena-vs-beta-studio-evolutionary-path/"><u>Content Creator's Arena Vs. Beta Studio Evolutionary Path</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-papers-unraveled-public-perception-and-reactions/"><u>Facebook Papers Unraveled: Public Perception and Reactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovative-whispers-tracing-social-medias-future-wrist-tech/"><u>Innovative Whispers: Tracing Social Media's Future Wrist Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-this-years-most-puzzling-tech-failures/"><u>Investigating This Year's Most Puzzling Tech Failures</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-samsung-galaxy-a15-5g-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Samsung Galaxy A15 5G and Browser | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719151110559-revolutionize-content-sharing-facebook-storages-adaptable-across-services/"><u>Revolutionize Content Sharing: Facebook Storages Adaptable Across Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-complete-explorers-compendium-for-fb-activity-tracking-and-reporting/"><u>The Complete Explorer's Compendium for FB Activity Tracking and Reporting</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/sicreactionvids-yt-celebrity-highlights-2023-for-2024/"><u>TopMusicReactionVids YT Celebrity Highlights, 2023 for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/unveiling-the-economic-toll-of-cybersecurity-breaches-for-businesses-in-the-2018-ibm-and-ponemon-study/"><u>Unveiling the Economic Toll of Cybersecurity Breaches for Businesses in the 2018 IBM and Ponemon Study</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-oppo-reno-8t-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Oppo Reno 8T Phones</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-video-selfie-mastery-tips-from-top-youtubers/"><u>[New] Video Selfie Mastery Tips From Top YouTubers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-optimizing-data-preservation-top-5-cloud-storage-providers/"><u>2024 Approved Optimizing Data Preservation Top 5 Cloud Storage Providers</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-top-youtube-fonts-for-striking-shareable-thumbnails/"><u>2024 Approved Top YouTube Fonts for Striking, Shareable Thumbnails</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-latest-nvidia-drivers-compatible-with-windows-10-hassle-free/"><u>Download Latest NVIDIA Drivers Compatible with Windows 10 - Hassle-Free!</u></a></li>
+<li><a href="https://facebook.techidaily.com/fake-followers-or-real-friends-unmask-deceit-online/"><u>Fake Followers or Real Friends? Unmask Deceit Online</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/foremost-picks-superior-ringtone-developers/"><u>Foremost Picks Superior Ringtone Developers</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-rare-to-revelled-elevate-group-notoriety-on-fb/"><u>From Rare to Revelled: Elevate Group Notoriety on FB</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-acknowledging-talent-free-to-own-outro-templates/"><u>In 2024, Acknowledging Talent Free-to-Own Outro Templates</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-effective-guide-to-cast-apple-iphone-13-pro-max-to-macbook-without-hindrance-drfone-by-drfone-ios/"><u>In 2024, Effective Guide to Cast Apple iPhone 13 Pro Max to MacBook without Hindrance | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-handle-previewed-activities-on-facebook/"><u>In 2024, How to Handle Previewed Activities on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-wisely-implementing-facebooks-breaks/"><u>Navigating Social Media Wisely: Implementing Facebook's Breaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/profit-pushers-unveiling-5-new-earning-strategies-on-fbig/"><u>Profit Pushers: Unveiling 5 New Earning Strategies on FB/IG</u></a></li>
+<li><a href="https://win11.techidaily.com/solving-high-memory-usage-problem-in-edge-browser/"><u>Solving High-Memory Usage Problem in Edge Browser</u></a></li>
+<li><a href="https://facebook.techidaily.com/triumphant-comeback-trump-in-the-digital-age/"><u>Triumphant Comeback: Trump in the Digital Age</u></a></li>
 </ul></div>
 

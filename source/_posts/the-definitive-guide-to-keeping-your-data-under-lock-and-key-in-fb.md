@@ -1,7 +1,7 @@
 ---
 title: The Definitive Guide to Keeping Your Data Under Lock and Key in FB
-date: 2024-09-13T21:07:36.482Z
-updated: 2024-09-16T18:38:25.632Z
+date: 2024-10-09T19:51:22.219Z
+updated: 2024-10-15T07:11:33.403Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/ad4388017aad038e4020bb83bed704ce1407b9c4a
 
  Facebook allows its users to add a status update with the location. If you wish to keep your whereabouts private, avoid uploading that for the general public.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Customize Your Post Privacy
 
  Every post you share has the option to edit the privacy and make it visible to a particular audience. For instance, users can upload a profile picture and change its privacy settings to**Friends** or**Only me** .
@@ -53,7 +60,21 @@ To change the privacy of your Facebook post:
 
 ![Post a Facebook Status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Post-a-Facebook-Status.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook post audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-post-audience.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -72,13 +93,6 @@ Close
 
  Facebook Stories expire after 24 hours, but since anyone can view them, it is better to change your settings to keep the Stories within your friend circle.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Lock Your Facebook Profile
 
  Locking your Facebook profile is a feature that limits Facebook users from viewing your profile. People who are not your friends won't be able to click your display picture or open your Facebook cover photo. Similarly, the personal details and contents you share are also not visible.
@@ -95,6 +109,13 @@ To lock your Facebook profile:
 
 ![Lock Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Lock-Facebook-profile.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Lock-your-profile-on-Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Lock-your-profile-on-Facebook.JPG)
 
 Close
@@ -110,10 +131,10 @@ Close
 ![Facebook Settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Settings-and-privacy.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook Security and login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Security-and-login.JPG)
@@ -142,9 +163,30 @@ Close
 
 ![Facebook app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-app-settings.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Turn off Allow Tracking option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Turn-off-Allow-Tracking-option.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Choose Selected Photos option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Selected-Photos-option.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Choose Ask Next Time Or When I Share option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Ask-Next-Time-Or-When-I-Share-option.JPG)
 
@@ -168,42 +210,9 @@ To conduct the Facebook privacy checkup:
 
 ![Take a privacy checkup on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Take-a-privacy-checkup-on-Facebook.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook Privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Privacy-checkup.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
-
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Keep Your Facebook Account Private and Safe
 
@@ -226,5 +235,23 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-crafting-atmospheres-with-cinematic-hues/"><u>[Updated] In 2024, Crafting Atmospheres with Cinematic Hues</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-the-top-10-youtube-makeup-maestros-to-follow/"><u>[Updated] Unveiling the Top 10 YouTube Makeup Maestros to Follow</u></a></li>
+<li><a href="https://discover-data.techidaily.com/como-clonar-tu-configuracion-samsung-mbr-en-un-disco-gpt-con-dos-metodos-optimizados/"><u>Cómo Clonar Tu Configuración Samsung MBR en Un Disco GPT Con Dos Métodos Optimizados</u></a></li>
+<li><a href="https://facebook.techidaily.com/escaping-social-medias-clutches-can-do-you-good/"><u>Escaping Social Media's Clutches Can Do You Good</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-apple-is-facilitating-the-move-to-android-devices-for-users-exclusive-reports-by-zdnet/"><u>How Apple Is Facilitating the Move to Android Devices for Users - Exclusive Reports by ZDNet</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-xiaomi-redmi-k70-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Xiaomi Redmi K70 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-honor-x50-gt-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Honor X50 GT to iPhone | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/maximize-battery-life-and-speed-a-user-friendly-guide-to-clearing-your-androids-cache/"><u>Maximize Battery Life and Speed: A User-Friendly Guide to Clearing Your Android's Cache</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-ditches-fbs-facial-tracking-a-closer-look-needed/"><u>Meta Ditches FB's Facial Tracking: A Closer Look Needed</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-away-from-sophisticated-social-trickery/"><u>Navigating Away From Sophisticated Social Trickery</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimized-content-for-work-opportunity-postings-on-social-media/"><u>Optimized Content for Work Opportunity Postings on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-evolution-the-mysterious-journey-to-a-facebook-watch/"><u>Silent Evolution: The Mysterious Journey to a Facebook Watch</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-remove-irrelevant-page-followings/"><u>Strategies to Remove Irrelevant Page Followings</u></a></li>
+<li><a href="https://windows11.techidaily.com/streamline-your-workspace-incorrante-folders-into-context-menu/"><u>Streamline Your Workspace: Incorrante Folders Into Context Menu</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-best-privacy-practices-to-adopt-on-facebook-today/"><u>The Best Privacy Practices to Adopt on Facebook Today</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/ultimate-solution-for-various-data-extraction-programs-total-data-reconstruction-suite/"><u>Ultimate Solution for Various Data Extraction Programs - Total Data Reconstruction Suite</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Why Meta's Presence Is a Frightening Reality
-date: 2024-10-06T23:13:04.456Z
-updated: 2024-10-09T01:03:37.647Z
+date: 2024-10-08T20:31:45.788Z
+updated: 2024-10-14T22:00:56.070Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
  Because Meta has dominated social media so exhaustively, we are stuck in a vicious cycle every time the company messes up. First, we get outraged. Then we become disappointed that there's nothing we can do about it. And finally, we resign to the fact that we really have nowhere else to go. It's a complete entrapment. Meta's monopoly is so exhaustive that we are literally left with no other option.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Meta Wields Too Much Power
@@ -56,10 +56,10 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
 ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  With great monopoly comes great power. Meta's powers are enormous. Only a few private companies can measure up to its global influence. The company controls some of the world's most important digital communication tools. With over a quarter of the world's population using their apps, Meta holds a rare power over how the world communicates.
@@ -71,10 +71,10 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
  As evidenced in the buildup to the last two US presidential elections, filtered information can positively or negatively influence global outcomes. Consequently, Meta can easily influence global culture by controlling the kind of information billions of people have access to. That much power, if unchecked, is potentially dangerous.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. A Privacy Dilemma
@@ -105,14 +105,14 @@ Not convinced?
 
 ![Screenshot_20211223-204847](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204847.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
 
@@ -145,20 +145,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-mastering-obs-recording-setup-and-usage-tips-for-mac-users/"><u>[New] 2024 Approved Mastering OBS Recording Setup & Usage Tips for Mac Users</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-first-timers-map-to-earning-wealth-with-periscope/"><u>[New] First-Timer's Map to Earning Wealth with Periscope</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-the-ultimate-guide-to-displaying-screens-in-google-meet-for-2024/"><u>[New] The Ultimate Guide to Displaying Screens in Google Meet for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-simplifying-avi-gif-conversion-with-filmora-on-windowsmac/"><u>2024 Approved Simplifying AVI-GIF Conversion with Filmora on Windows/Mac</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-significant-benefits-stepping-away-from-social-screens/"><u>6 Significant Benefits: Stepping Away From Social Screens</u></a></li>
-<li><a href="https://facebook.techidaily.com/alleged-ban-of-ethical-marketing-claims-surface-at-fb/"><u>Alleged Ban of Ethical Marketing Claims Surface at FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-tech-companies-reading-your-mental-dialogues/"><u>Are Tech Companies Reading Your Mental Dialogues?</u></a></li>
-<li><a href="https://facebook.techidaily.com/break-free-halt-facebooks-invasion-tactics/"><u>Break Free: Halt Facebook’s Invasion Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-distances-leveraging-your-facebook-portal-tvs-capabilities/"><u>Bridging Distances: Leveraging Your Facebook Portal TV's Capabilities</u></a></li>
-<li><a href="https://facebook.techidaily.com/connecting-communities-with-the-facebook-portal-tv/"><u>Connecting Communities with the Facebook Portal TV</u></a></li>
-<li><a href="https://facebook.techidaily.com/conscious-sharing-a-guide-to-ethical-social-media-influence/"><u>Conscious Sharing: A Guide to Ethical Social Media Influence</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Vivo Y77t | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/is-it-possible-to-use-miracast-with-apple-iphone-13-pro-drfone-by-drfone-ios/"><u>Is it Possible to Use Miracast with Apple iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/lenovo-display-software-upgrade-free-download-and-installation-guide/"><u>Lenovo Display Software Upgrade: Free Download and Installation Guide</u></a></li>
-<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-channel-finale-101-insider-tricks-for-successful-outros/"><u>[New] 2024 Approved Channel Finale 101 Insider Tricks for Successful Outros</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-effective-online-channels-for-youtube-advertising/"><u>[New] Effective Online Channels for YouTube Advertising</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-optimizing-twitter-video-shares-for-facebook-users/"><u>[New] Optimizing Twitter Video Shares for Facebook Users</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-definitive-guide-for-quick-srt-to-txt-con/"><u>2024 Approved The Definitive Guide for Quick SRT to TXT Con</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-llifes-viability-as-we-step-into-the-metaverse/"><u>Examining LLife's Viability As We Step Into the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbtwitters-new-sports-showcase-feature/"><u>FB/Twitter's New Sports Showcase Feature</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-realme-gt-5-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Realme GT 5</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-crystal-clear-playback-top-5-ultra-hd-gaming-displays-with-hdmi-21-ps5/"><u>In 2024, Crystal Clear Playback Top 5 Ultra HD Gaming Displays with HDMI 2.1 [PS5]</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-facebook-fan-count-privacy/"><u>Securing Your Facebook Fan Count Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/silence-in-the-friend-zone-ending-fb-connections/"><u>Silence in the Friend Zone: Ending FB Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-a-leap-in-privacy-protection-facebook-unveils-stronger-security-for-instagram-dms-and-messenger-calls/"><u>Taking a Leap in Privacy Protection: Facebook Unveils Stronger Security for Instagram DMs and Messenger Calls.</u></a></li>
+<li><a href="https://windows11.techidaily.com/taming-the-memory-monster-edge-webview2-troubleshooting/"><u>Taming the Memory Monster: Edge WebView2 Troubleshooting</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Platform Accountability: Combating COVID-19 Disinformation"
-date: 2024-10-08T02:44:03.020Z
-updated: 2024-10-08T17:45:59.308Z
+date: 2024-10-11T23:29:56.619Z
+updated: 2024-10-15T12:59:54.193Z
 tags:
   - facebook
 categories:
@@ -42,13 +42,6 @@ Here's what social media platforms can do to tackle the issue.
 
  These include prominent public figures such as Children's Health Defense Chairman Robert F. Kennedy Jr. and the entrepreneur Joseph Mercola.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation
 
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
@@ -75,11 +68,25 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Tap Into Celebrities and Religious and Community Leaders
 
  Many people distrust figures of authority, such as the government. Social media companies can partner with celebrities and religious and community leaders to post videos presenting factual and myth-busting information online.
 
  They can also share their personal experiences around getting vaccinated.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Establish Shared Online Standards Across Social Media Platforms
 
@@ -95,13 +102,6 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Social media platforms can show users who have been exposed to content in violation of the COVID-19 policy corrective posts from experts and trusted sources.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Add Warning Screens When Users Click Links to Misinformation Sites
 
  Companies should consider adding a warning screen in front of third-party websites or untrustworthy sources housing COVID-19-related misinformation.
@@ -109,10 +109,10 @@ YouTube also removes videos that violate its COVID-19 policy.
  Related: [The Best Fact-Checking Sites for Finding Unbiased Truth](https://www.makeuseof.com/tag/true-5-factchecking-websites/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Ban Private and Secret Anti-Vaccine Facebook Groups
@@ -120,10 +120,10 @@ YouTube also removes videos that violate its COVID-19 policy.
  Ban private groups that traffic primarily in vaccine disinformation and prevent groups that require a Facebook disclaimer from existing as private or secret groups, as anti-vaxxers rely on the privacy of these groups to spread dangerous anti-vaccine misinformation.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Social Media Companies Play a Key Role in Reducing COVID-19 Related Misinformation Online
@@ -147,19 +147,20 @@ YouTube also removes videos that violate its COVID-19 policy.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-top-text-tilt-treasures/"><u>[New] In 2024, Top Text Tilt Treasures</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-stabilize-your-lens-no-trips-only-tricks-for-2024/"><u>[Updated] Stabilize Your Lens No Trips, Only Tricks for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-virtual-realms-with-kinemaster-app-for-android-users/"><u>2024 Approved Exploring Virtual Realms with KineMaster App for Android Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/big-three-of-social-networking-inspire-bidens-health-strategy/"><u>Big Three of Social Networking Inspire Biden's Health Strategy</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-through-social-medias-silent-exclusion-shadowban-insights/"><u>Breaking Through Social Media's Silent Exclusion: Shadowban Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/buzz-box-the-top-20-must-visit-social-applications-and-websites/"><u>Buzz Box: The Top 20 Must-Visit Social Applications and Websites</u></a></li>
-<li><a href="https://facebook.techidaily.com/charting-connections-in-newly-designated-social-zones/"><u>Charting Connections in Newly Designated Social Zones</u></a></li>
-<li><a href="https://facebook.techidaily.com/court-of-pages-when-will-facebook-decision-be-revealed/"><u>Court of Pages: When Will Facebook Decision Be Revealed?</u></a></li>
-<li><a href="https://facebook.techidaily.com/critical-listening-the-best-and-worst-from-2022s-podcast-scene/"><u>Critical Listening: The Best and Worst From 2022'S Podcast Scene</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On OnePlus 11R | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-honor-play-40c-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Honor Play 40C Face Lock?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-asus-rog-phone-7-ultimate-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Asus ROG Phone 7 Ultimate to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-oppo-reno-8t-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Oppo Reno 8T Location by Number | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/track-down-your-misplaced-or-pilfered-iphone-with-ease-using-apples-find-my-service/"><u>Track Down Your Misplaced or Pilfered iPhone with Ease Using Apple's Find My Service</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-content-governance-an-examination-of-its-panel/"><u>Facebook's Content Governance: An Examination of Its Panel</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721468447250-get-your-ios-up-to-date-overcome-update-problems-with-these-9-handy-fixes-for-iphones-and-ipads/"><u>Get Your iOS Up-to-Date: Overcome Update Problems With These 9 Handy Fixes For iPhones and iPads.</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-ios-145-could-pave-the-way-to-a-privacy-revolution/"><u>How iOS 14.5 Could Pave the Way to a Privacy Revolution</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-easy-steps-on-how-to-create-a-new-apple-id-account-on-apple-iphone-8-by-drfone-ios/"><u>In 2024, Easy Steps on How To Create a New Apple ID Account On Apple iPhone 8</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-x100-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo X100 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-speed-why-meta-is-building-a-lightning-fast-ai-giant/"><u>Innovating Speed: Why Meta Is Building a Lightning-Fast AI Giant</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/navigating-project-journeys-unveiling-the-project-paths-tab/"><u>Navigating Project Journeys: Unveiling the Project Paths Tab</u></a></li>
+<li><a href="https://facebook.techidaily.com/reasons-behind-upcoming-instagram-thread-cessation/"><u>Reasons Behind Upcoming Instagram Thread Cessation</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/revamping-social-media-presence-efficient-changes-in-video-covers/"><u>Revamping Social Media Presence Efficient Changes in Video Covers</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/the-ultimate-battle-of-might-and-machine-join-the-2024-global-server-smash-contest/"><u>The Ultimate Battle of Might and Machine - Join the 2024 Global Server Smash Contest!</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-internet-illusions-the-factual-side-of-facebook-claims/"><u>Unveiling Internet Illusions: The Factual Side of Facebook Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-multi-platform-support-confirmed-by-zuckerberg/"><u>WhatsApp Multi-Platform Support Confirmed by Zuckerberg</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-did-facebook-whatsapp-and-instagram-go-down/"><u>Why Did Facebook, WhatsApp, and Instagram Go Down?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Nokia C12 Plus | Dr.fone</u></a></li>
 </ul></div>
 

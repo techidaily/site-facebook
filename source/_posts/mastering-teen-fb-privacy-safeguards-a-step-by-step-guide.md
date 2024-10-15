@@ -1,7 +1,7 @@
 ---
 title: "Mastering Teen FB Privacy Safeguards: A Step-by-Step Guide"
-date: 2024-10-07T06:05:35.706Z
-updated: 2024-10-08T16:58:23.001Z
+date: 2024-10-14T06:36:18.260Z
+updated: 2024-10-14T16:05:20.230Z
 tags:
   - facebook
 categories:
@@ -32,37 +32,44 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
  When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Privacy Setting Basics
 
@@ -90,25 +97,24 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Check Ad Settings
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
-![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
 Close
 
@@ -139,18 +145,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-masterpieces-in-3d-graphics-and-golden-displaytexts-online/"><u>[New] 2024 Approved Masterpieces in 3D Graphics and Golden DisplayTexts Online</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-fixing-inability-of-messenger-apps-to-dispatch-videos-correctly-for-2024/"><u>[New] Fixing Inability of Messenger Apps to Dispatch Videos Correctly for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-voice-recorder-mac-5-best-voice-recorders-for-mac-devices/"><u>[New] Voice Recorder Mac - 5 Best Voice Recorders for Mac Devices</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-ultimate-playbook-top-20-best-practices-for-maximizing-facebook-video-success/"><u>[Updated] 2024 Approved The Ultimate Playbook Top 20 Best Practices for Maximizing Facebook Video Success</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/a-step-by-step-guide-to-professionalizing-your-personal-brand-on-fb-stories-for-2024/"><u>A Step-by-Step Guide to Professionalizing Your Personal Brand on FB Stories for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/are-user-dialogues-pivotal-for-the-progress-of-chatgpts-knowledge/"><u>Are User Dialogues Pivotal for the Progress of ChatGPT's Knowledge?</u></a></li>
-<li><a href="https://facebook.techidaily.com/brands-get-a-voice-on-instagram-reels-and-fb-stickers/"><u>Brands Get a Voice on Instagram Reels and FB Stickers</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaching-privacy-boundaries-safely/"><u>Breaching Privacy Boundaries Safely</u></a></li>
-<li><a href="https://facebook.techidaily.com/disengage-from-discussions-apolitical-facebook-life/"><u>Disengage From Discussions: Apolitical Facebook Life</u></a></li>
-<li><a href="https://driver-download.techidaily.com/hp-laserjet-printer-drivers-free-download-for-windows-7/"><u>HP Laserjet Printer Drivers Free Download for Windows 7</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-social-media-for-successful-industry-connections-via-facebook/"><u>Navigating Social Media for Successful Industry Connections via Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-power-of-solitude-6-reasons-to-abandon-facebook/"><u>The Power of Solitude - 6 Reasons to Abandon Facebook</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-best-online-print-providers/"><u>Unveiling the Best Online Print Providers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-direct-syncing-tweeting-videos-onto-snapchat-channels/"><u>[New] Direct Syncing Tweeting Videos Onto Snapchat Channels</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-academic-avenue-leading-educators-on-youtube/"><u>[New] In 2024, Academic Avenue Leading Educators on YouTube</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-navigating-modern-and-future-terrain-with-drones-for-2024/"><u>[New] Navigating Modern and Future Terrain with Drones for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-understanding-split-screen-techniques-in-facebook-lives/"><u>[Updated] 2024 Approved Understanding Split Screen Techniques in Facebook Lives</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-supercharge-your-channels-mastering-youtube-traffic-boosts/"><u>2024 Approved Supercharge Your Channels Mastering YouTube Traffic Boosts</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-x-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone X</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagrams-end-to-end-encryption-awaiting-2022/"><u>Facebook and Instagram's End-to-End Encryption Awaiting 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-pauses-trump-ban-review-by-regulatory-council/"><u>Facebook Pauses Trump Ban Review by Regulatory Council</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-upcoming-update-revamped-reels-rooms-in-stories/"><u>Facebook's Upcoming Update: Revamped Reels, Rooms in Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-everyone-group-notification-feature/"><u>Halt Everyone Group Notification Feature</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-huawei-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Huawei</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-s23-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy S23 Phone with Broken Screen</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-perfect-your-wedding-countdown-experience-with-these-top-apps-androidios/"><u>In 2024, Perfect Your Wedding Countdown Experience with These Top Apps (Android/iOS)</u></a></li>
+<li><a href="https://facebook.techidaily.com/make-a-mark-messengers-formatting-fundamentals/"><u>Make a Mark: Messenger's Formatting Fundamentals</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-newsfeed-just-got-easier-on-fb/"><u>Personalizing Your Newsfeed Just Got Easier on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-fb-image-exposure-settings/"><u>Tailoring FB Image Exposure Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-upside-to-connectivity-9-good-aspects-of-online-communities/"><u>The Upside to Connectivity: 9 Good Aspects of Online Communities</u></a></li>
+<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-nokia-c12-plus-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Nokia C12 Plus.</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-telegrams-advantages-when-fb-was-offline/"><u>Unveiling Telegram's Advantages When FB Was Offline</u></a></li>
 </ul></div>
 

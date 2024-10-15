@@ -1,7 +1,7 @@
 ---
 title: Mission Complete? When Will E2EE Roll Out in FB Messenger?
-date: 2024-10-07T22:33:28.297Z
-updated: 2024-10-08T22:04:22.324Z
+date: 2024-10-10T16:24:27.880Z
+updated: 2024-10-15T01:02:07.094Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/356d504c4e521db72b45b5ec62fa587016c69e83d
  However, Kent added that the work was a long-term project. At the earliest, users should expect the feature to be released in 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Facebook Messenger Chats Are Yet to Be Encrypted
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/356d504c4e521db72b45b5ec62fa587016c69e83d
 ![Photo of the Facebook Messenger app logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-messenger-logo.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  One thing all Facebook users can attest to is how easy Messenger is to access; you can easily log into your account from any device with an internet connection. Facebook even allows you to log into your account on multiple devices simultaneously.
@@ -61,16 +61,10 @@ thumbnail: https://thmb.techidaily.com/356d504c4e521db72b45b5ec62fa587016c69e83d
  Facebook’s drive to keep the platform easily accessible is why it is yet to offer end-to-end encryption by default on Messenger.
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Should You Be Worried About the Privacy of Your Messenger Chats?
@@ -94,19 +88,18 @@ thumbnail: https://thmb.techidaily.com/356d504c4e521db72b45b5ec62fa587016c69e83d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-android-beat-best-free-apps-for-downloading-youtube-tunes-for-2024/"><u>[New] Android Beat Best Free Apps for Downloading YouTube Tunes for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-the-ultimate-drone-racing-headset-compilation/"><u>[New] In 2024, The Ultimate Drone Racing Headset Compilation</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-from-footage-to-frames-screen-and-webcam-capturing-with-vimeo/"><u>[Updated] From Footage to Frames Screen & Webcam Capturing with Vimeo</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-perfecting-your-vids-a-comprehensive-youtube-studio-tutorial/"><u>[Updated] In 2024, Perfecting Your Vids A Comprehensive YouTube Studio Tutorial</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-picku-or-better-a-critical-look-at-androids-premier-photo-tool/"><u>[Updated] PickU or Better? A Critical Look at Android's Premier Photo Tool</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-consumers-trust-their-smartphones-with-privacy-intact/"><u>Can Consumers Trust Their Smartphones With Privacy Intact?</u></a></li>
-<li><a href="https://facebook.techidaily.com/cultivating-a-dynamic-social-media-space-with-ripl/"><u>Cultivating a Dynamic Social Media Space with Ripl</u></a></li>
-<li><a href="https://facebook.techidaily.com/forget-not-your-fb-views-how-to-wipe-history/"><u>Forget Not Your FB Views: How to Wipe History</u></a></li>
-<li><a href="https://facebook.techidaily.com/reinstating-security-code-from-facebook-account/"><u>Reinstating Security Code From Facebook Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/second-life-and-its-position-in-the-emerging-metaverse-market/"><u>Second Life and Its Position in The Emerging Metaverse Market</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-synergy-in-the-virtual-realm-8-methods-to-connect/"><u>Social Synergy in the Virtual Realm: 8 Methods to Connect</u></a></li>
-<li><a href="https://fox-that.techidaily.com/stop-missed-calls-discover-11-methods-for-reactivating-iphone-ringers/"><u>Stop Missed Calls: Discover 11 Methods for Reactivating iPhone Ringers</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-8-best-games-on-google-play-pass/"><u>The 8 Best Games on Google Play Pass</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tips-for-addressing-sluggish-downloads-on-windows-pcs/"><u>Tips for Addressing Sluggish Downloads on Windows PCs</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-comprehensive-guide-to-io-screen-capture-capabilities-for-2024/"><u>[New] Comprehensive Guide to IO Screen Capture Capabilities for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-exploring-the-heart-of-srt-in-depth-for-2024/"><u>[Updated] Exploring the Heart of SRT in Depth for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-choosing-the-best-screen-capture-app-obs-vs-fraps/"><u>[Updated] In 2024, Choosing the Best Screen Capture App – OBS vs Fraps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-transforming-social-media-nostalgia-how-to-edit-lookback/"><u>[Updated] In 2024, Transforming Social Media Nostalgia How to Edit Lookback</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-xiaomi-redmi-k70-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Xiaomi Redmi K70 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-apples-distinct-path-beyond-metaverse-hype/"><u>Exploring Apple's Distinct Path Beyond Metaverse Hype</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-auto-lock-greyed-out-on-apple-iphone-12-pro-max-drfone-by-drfone-ios/"><u>In 2024, How To Fix Auto Lock Greyed Out on Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-platform-revises-humor-standards/"><u>Social Media Platform Revises Humor Standards</u></a></li>
+<li><a href="https://facebook.techidaily.com/speedy-login-cycle-switching-between-various-fb-users/"><u>Speedy Login Cycle: Switching Between Various FB Users</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/strategies-to-find-the-perfect-power-source-for-drones/"><u>Strategies to Find the Perfect Power Source for Drones</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-price-of-permanence-uncovering-top-10-reasons-to-leave-facebook-behind/"><u>The Price of Permanence: Uncovering Top 10 Reasons to Leave Facebook Behind</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-side-of-success-how-connectivity-can-aid-growth/"><u>The Social Side of Success: How Connectivity Can Aid Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-recovering-forgotten-facebook-comments/"><u>The Ultimate Guide to Recovering Forgotten Facebook Comments</u></a></li>
 </ul></div>
 

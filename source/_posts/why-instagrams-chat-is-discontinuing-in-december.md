@@ -1,7 +1,7 @@
 ---
 title: Why Instagram's Chat Is Discontinuing in December
-date: 2024-09-13T19:07:13.854Z
-updated: 2024-09-16T16:49:29.715Z
+date: 2024-10-11T11:04:02.523Z
+updated: 2024-10-14T16:42:42.029Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ Why is Threads on its way out? Let's find out...
 
  Threads came out shortly after Instagram killed its previous messenger app Direct, whose purpose was to provide direct text functionality to Instagram users without opening the main app. Now Threads is also getting killed after a lackluster two-year run.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Threads' Demise Was Inevitable
 
  Facebook's rebrand to Meta is part of a drive by the company to unify its products. This integration has created lots of overlap between the different products. For example, Instagram and Messenger are now unified, making Threads a redundant feature. Indeed, the company updated Threads last year to make all Instagram messages displayed within the app.
@@ -43,6 +50,13 @@ Why is Threads on its way out? Let's find out...
  Related:[What Happens to Your Instagram Account When You Die?](https://www.makeuseof.com/what-happens-to-instagram-when-you-die/)
 
  Instagram never marketed Threads aggressively, which would explain the lackluster downloads. It is as if Instagram launched Threads and then forgot about it themselves and failed to remind users that it even existed.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Threads Will Not Be Missed
 
@@ -61,18 +75,19 @@ Why is Threads on its way out? Let's find out...
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-capture-and-record-every-sound-on-your-pc-with-x-recorder/"><u>[New] 2024 Approved Capture & Record Every Sound on Your PC with X-Recorder</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-cutting-edge-alternatives-to-vimeos-video-editor-for-2024/"><u>[New] Cutting Edge Alternatives to Vimeo's Video Editor for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-expert-tips-for-ultimate-fcp-efficiency/"><u>[Updated] Expert Tips for Ultimate FCP Efficiency</u></a></li>
+<li><a href="https://windows11.techidaily.com/enhancing-diagnostics-in-the-latest-windows-versions/"><u>Enhancing Diagnostics in the Latest Windows Versions</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tips-for-overcoming-top-11-facebook-glitches/"><u>Essential Tips for Overcoming Top 11 Facebook Glitches</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-6-methods-for-switching-from-apple-iphone-13-pro-to-samsung-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 6 Methods for Switching from Apple iPhone 13 Pro to Samsung | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-milestones-six-intriguing-facebook-updates/"><u>Metaverse Milestones: Six Intriguing Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinvent-your-brand-on-facebook-focus-on-nameurl/"><u>Reinvent Your Brand on Facebook: Focus on Name/URL</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/rust-crash-no-more-troubleshooting-common-errors/"><u>Rust Crash No More: Troubleshooting Common Errors</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-v27e-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from V27e</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-to-understand-for-better-control-over-your-data-with-facebook/"><u>The Essentials to Understand for Better Control Over Your Data with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-perfect-moment-to-overhaul-facebook-image/"><u>The Perfect Moment to Overhaul Facebook Image</u></a></li>
+</ul></div>
 

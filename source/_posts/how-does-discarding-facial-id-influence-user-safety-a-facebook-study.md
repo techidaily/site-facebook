@@ -1,7 +1,7 @@
 ---
 title: How Does Discarding Facial ID Influence User Safety? A Facebook Study
-date: 2024-09-11T18:22:30.748Z
-updated: 2024-09-16T18:17:53.810Z
+date: 2024-10-13T11:03:21.483Z
+updated: 2024-10-14T19:54:34.763Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/14a22e63716263e4dbf21490561e8b1d60bb16b34
 
  There’s also a longtime Facebook feature that gave users automatic notifications when friends posted photos featuring them. Similarly, it suggested who people should tag when uploading photos. Facial recognition worked in the background in those cases.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What’s Changing With Facebook Facial Recognition?
 
  The most significant part of Facebook’s move away from facial recognition is that it will delete the identifying[templates of more than a billion](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) people who’d agreed to use the site’s service. The total figure represents more than one-third of Facebook’s users.
@@ -47,10 +54,16 @@ thumbnail: https://thmb.techidaily.com/14a22e63716263e4dbf21490561e8b1d60bb16b34
  It continued, “These are places where facial recognition is both broadly valuable to people and socially acceptable when deployed with care. While we will continue working on use cases like these, we will ensure people have transparency and control over whether they are automatically recognized.”
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will This Change Affect Facebook’s Public Perception?
@@ -68,15 +81,22 @@ thumbnail: https://thmb.techidaily.com/14a22e63716263e4dbf21490561e8b1d60bb16b34
  Facebook made security changes then, too, such as making it easier for people to select data and privacy preferences. It’s easy to suspect, then, that pledges to strengthen security by deleting facial recognition data is a mere scramble to fix the company’s image. It’s too early to say whether this change alone will positively affect how people view the business, though.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## No Major Security Improvements Here
 
 ![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If a person only reads the headlines about Facebook’s facial recognition plans, they might get the impression the company’s leadership genuinely cares about making changes for the better.
 
@@ -97,5 +117,23 @@ thumbnail: https://thmb.techidaily.com/14a22e63716263e4dbf21490561e8b1d60bb16b34
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-elevate-your-gaming-experience-nintendo-switch-and-steam-synergy-for-2024/"><u>[New] Elevate Your Gaming Experience Nintendo Switch and Steam Synergy for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-ensure-video-perfection-before-sharing-on-instagram-for-2024/"><u>[New] Ensure Video Perfection Before Sharing on Instagram for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-luminance-hdr-review-is-this-a-good-choice-to-create-hdr-for-2024/"><u>[New] Luminance HDR Review Is This a Good Choice to Create HDR for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-detailed-process-of-saving-movies-on-various-os-for-2024/"><u>[Updated] Detailed Process of Saving Movies on Various OS for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-master-quick-photo-collage-with-google-images-in-minutes/"><u>[Updated] Master Quick Photo Collage with Google Images in Minutes</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/expert-tips-for-overcoming-crusader-kings-ii-startup-problems/"><u>Expert Tips for Overcoming Crusader Kings II Startup Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-recover-deleted-facebook-posts/"><u>How to Recover Deleted Facebook Posts</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-samsung-galaxy-s23-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Samsung Galaxy S23 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/join-facebooks-metaverse-creation-seeking-10k-talents/"><u>Join Facebook's Metaverse Creation - Seeking 10K Talents!</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/optimizing-viewing-experience-video-filters-for-all-screens-for-2024/"><u>Optimizing Viewing Experience Video Filters for All Screens for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/parental-control-updates-on-childs-messenger-details/"><u>Parental Control Updates on Child's Messenger Details</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/paving-pathways-in-pixels-the-leading-vr-treadmills-reviewed-for-2024/"><u>Paving Pathways in Pixels The Leading VR Treadmills Reviewed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/post-away-from-pics-lessons-learned-in-disconnecting/"><u>Post Away From Pics: Lessons Learned in Disconnecting</u></a></li>
+<li><a href="https://facebook.techidaily.com/tapping-into-personal-memories-on-facebook-today/"><u>Tapping Into Personal Memories on Facebook Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/testing-marketing-potential-sticker-ads-in-story-formats-on-fbinsta/"><u>Testing Marketing Potential: Sticker Ads in Story Formats on FB/Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-covert-concept-of-acceptance-on-fb-networks/"><u>The Covert Concept of Acceptance on FB Networks</u></a></li>
+</ul></div>
 

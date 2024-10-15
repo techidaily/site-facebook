@@ -1,7 +1,7 @@
 ---
 title: Mastering Hidden Feedback Mechanisms in FB Communities
-date: 2024-10-02T00:47:16.337Z
-updated: 2024-10-08T23:14:07.255Z
+date: 2024-10-13T06:44:20.196Z
+updated: 2024-10-15T03:25:20.710Z
 tags:
   - facebook
 categories:
@@ -61,10 +61,10 @@ Close
  All anonymous posts are subject to approval from admins and moderators, even if you don’t have post approval turned on for your group. As an admin, you’ll also be able to see the identity of users who wish to post anonymously on the pending posts page.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Might You Want to Enable Anonymous Posts on Facebook?
@@ -76,10 +76,10 @@ Close
  Enabling anonymous posts will encourage people who are shy or worried about expressing themselves publicly to share their thoughts with everyone else. This will increase your group engagement and reduce the chances of people[leaving the group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) .
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Should You Enable Anonymous Posting in Your Facebook Group?
@@ -103,14 +103,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-mastering-selective-edits-blurring-images-in-ps/"><u>[New] Mastering Selective Edits Blurring Images in PS</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-proven-steps-to-create-high-impact-facebook-video-ads-for-2024/"><u>[New] Proven Steps to Create High-Impact Facebook Video Ads for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-transform-your-tech-for-successful-social-media-livestreams/"><u>[Updated] In 2024, Transform Your Tech for Successful Social Media Livestreams</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-revolutionizing-home-broadcasts-with-advanced-webcams/"><u>2024 Approved Revolutionizing Home Broadcasts with Advanced WebCams</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-practical-approach-to-ending-a-fb-assembly/"><u>A Practical Approach to Ending a Fb Assembly</u></a></li>
-<li><a href="https://facebook.techidaily.com/bracing-for-impact-expecting-tough-news-on-fb/"><u>Bracing for Impact: Expecting Tough News on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-a-cloaked-space-for-online-dialogues/"><u>Creating a Cloaked Space for Online Dialogues</u></a></li>
-<li><a href="https://facebook.techidaily.com/customizing-profile-information-emailphone-switch/"><u>Customizing Profile Information: Email/Phone Switch</u></a></li>
-<li><a href="https://fox-links.techidaily.com/top-30-screen-selections-for-xbox-series-x-gamers-enhance-every-playtime/"><u>Top 30 Screen Selections for Xbox Series X Gamers - Enhance Every Playtime</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-comprehensive-solution-for-srt-not-working-in-premiere-for-2024/"><u>[New] Comprehensive Solution for SRT Not Working in Premiere for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-slide-swivel-and-shift-the-instagram-way-to-rotating-images-with-finesse/"><u>[New] In 2024, Slide, Swivel and Shift The Instagram Way to Rotating Images with Finesse</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-fast-track-converting-your-srt-files-to-text-format-today-for-2024/"><u>[Updated] Fast Track Converting Your SRT Files to Text Format Today for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-watching-outdated-facebook-chronicles-mobilelaptop/"><u>[Updated] Watching Outdated Facebook Chronicles (Mobile/Laptop)</u></a></li>
+<li><a href="https://fox-that.techidaily.com/mastering-your-device-a-guide-to-fixing-common-icloud-issues-for-iphone-and-ipad-users/"><u>Mastering Your Device: A Guide to Fixing Common iCloud Issues for iPhone and iPad Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/mobile-momentum-speedy-lite-android-apps-ranking/"><u>Mobile Momentum: Speedy Lite Android Apps Ranking</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-longer-tracked-eliminating-your-facebook-history/"><u>No Longer Tracked: Eliminating Your Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-net-no-ease-assessing-post-social-impact/"><u>No Net, No Ease? Assessing Post-Social Impact</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/re-boot-your-windows-11-to-fix-anydesk/"><u>Re-Boot Your Windows 11 to Fix AnyDesk</u></a></li>
+<li><a href="https://facebook.techidaily.com/reassessing-your-internet-interaction-and-cutting-down-on-chats/"><u>Reassessing Your Internet Interaction and Cutting Down on Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-lost-access-post-facebook-disconnections-unpredictably/"><u>Regaining Lost Access Post Facebook Disconnections Unpredictably</u></a></li>
+<li><a href="https://facebook.techidaily.com/report-protocol-for-child-created-accounts-on-fb/"><u>Report Protocol for Child-Created Accounts on FB</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-audio-hiccups-a-guide-to-restoring-zoom-microphone-functionality-on-windows/"><u>Solving Audio Hiccups: A Guide to Restoring Zoom Microphone Functionality on Windows</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-encyclopedia-of-hands-on-detection-for-2024/"><u>The Encyclopedia of Hands-On Detection for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-social-platforms-in-mitigating-scam-advertisements/"><u>The Role of Social Platforms in Mitigating Scam Advertisements</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-sharing-in-various-languages-on-facebook/"><u>Tips for Sharing in Various Languages on Facebook</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/ultimate-selection-top-video-editors-for-webcams/"><u>Ultimate Selection Top Video Editors for Webcams</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-permanent-delete-feature-in-messenger/"><u>Understanding the Permanent Delete Feature in Messenger</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/journey-to-stylish-vlogging-a-beginners-guide-mac-edition-for-2024/"><u>Your Journey to Stylish Vlogging A Beginner's Guide, Mac Edition for 2024</u></a></li>
 </ul></div>
 

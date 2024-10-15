@@ -1,7 +1,7 @@
 ---
 title: Undervalued Tech Developments - Top 4 Silent Game Changers
-date: 2024-10-05T03:25:57.788Z
-updated: 2024-10-09T00:41:20.938Z
+date: 2024-10-08T03:53:53.580Z
+updated: 2024-10-14T18:22:25.528Z
 tags:
   - facebook
 categories:
@@ -41,15 +41,28 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The $2.9 Million Tweet
 
 ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
@@ -61,16 +74,16 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to[professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Welcome to the Metaverse
 
 ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
@@ -82,16 +95,16 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Apple and Facebook's Privacy War
 
 ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
@@ -102,13 +115,6 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
  Related:[How iOS 14.5 Will Hurt Facebook](https://www.makeuseof.com/how-the-ios-14-5-update-is-going-to-really-hurt-facebook/)
 
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What Tech News Will We See in 2022?
 
@@ -131,18 +137,19 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-simplifying-remote-work-with-zoom-recording-techniques/"><u>[New] In 2024, Simplifying Remote Work with Zoom Recording Techniques</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-injecting-spark-into-your-unique-podcast-format/"><u>2024 Approved Injecting Spark Into Your Unique Podcast Format</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-facebooks-oversight-judicial-panel/"><u>Demystifying Facebook's Oversight Judicial Panel</u></a></li>
-<li><a href="https://techidaily.com/how-to-repair-apple-iphone-15-pro-ios-system-issues-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone 15 Pro iOS System Issues? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-lava-yuva-3-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Lava Yuva 3 | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-x90s-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Vivo X90S Phone with Broken Screen</u></a></li>
-<li><a href="https://facebook.techidaily.com/insightful-analysis-facebooks-organizational-framework/"><u>Insightful Analysis: Facebook's Organizational Framework</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-engagement-with-content-translated-into-multiple-languages/"><u>Maximizing Engagement with Content Translated Into Multiple Languages</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimizing-lifes-priorities-by-curbing-excessive-facebook-visits/"><u>Optimizing Life's Priorities by Curbing Excessive Facebook Visits</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-soundscape-evolution-a-new-chapter-for-facebook-and-spotify/"><u>Social Soundscape Evolution: A New Chapter for Facebook and Spotify</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-instructions-for-disabling-or-cancelling-a-twitch-user-account/"><u>Step-by-Step Instructions for Disabling or Cancelling a Twitch User Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-revolutionary-duo-facebook-meets-spotify-for-project-boombox/"><u>The Revolutionary Duo: Facebook Meets Spotify for Project Boombox</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-xiaomi-civi-3-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Xiaomi Civi 3 for Parents | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-poco-x5-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Poco X5 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/does-asus-rt-ac88u-really-meet-the-high-demands-of-gamers-a-thorough-review/"><u>Does Asus RT-AC88U Really Meet the High Demands of Gamers? A Thorough Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/does-paying-regularly-for-youtube-premium-give-you-more-than-just-an-ad-free-view/"><u>Does Paying Regularly For YouTube Premium Give You More Than Just An Ad-Free View?</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-accounts-defenses-an-update-guide-for-social-media/"><u>Elevating Your Account's Defenses: An Update Guide for Social Media</u></a></li>
+<li><a href="https://network-issues.techidaily.com/error-22-in-gpu-drivers-addressed/"><u>Error 22 in GPU Drivers Addressed</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-infinix-note-30-pro-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Infinix Note 30 Pro to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-digital-writing-9-ways-chatgpt-revolutionizes-content-creation/"><u>Mastering Digital Writing: 9 Ways ChatGPT Revolutionizes Content Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/perfected-plaintext-in-chat-bold-italic-highlights/"><u>Perfected Plaintext in Chat: Bold, Italic Highlights</u></a></li>
+<li><a href="https://facebook.techidaily.com/pivotal-errors-key-tech-mishaps-from-this-year/"><u>Pivotal Errors: Key Tech Mishaps From This Year</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/programming-prodigies-clash-comparing-chatgpt-and-geminis-code-crafting-capabilities/"><u>Programming Prodigies Clash: Comparing ChatGPT and Gemini's Code-Crafting Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/reveal-your-most-cherished-chat-app/"><u>Reveal Your Most Cherished Chat App</u></a></li>
+<li><a href="https://facebook.techidaily.com/shield-yourself-from-facebook-fakes-identify-these-14-tricks/"><u>Shield Yourself From Facebook Fakes: Identify These 14 Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-new-frontier-in-relationship-building-with-facebook/"><u>Social Media's New Frontier in Relationship Building with Facebook</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/windows-evolved-spotlight-on-latest-changes/"><u>Windows Evolved Spotlight on Latest Changes</u></a></li>
 </ul></div>
 

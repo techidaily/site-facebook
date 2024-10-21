@@ -1,7 +1,7 @@
 ---
 title: The Photographic Pathway to Popularity Online
-date: 2024-10-07T22:40:53.651Z
-updated: 2024-10-14T18:13:55.183Z
+date: 2024-10-16T00:35:54.029Z
+updated: 2024-10-20T17:45:40.022Z
 tags:
   - facebook
 categories:
@@ -32,13 +32,6 @@ thumbnail: https://thmb.techidaily.com/ccf5464afb4aa685619c7a259990847a57c5c05da
 
  How much of your face and body should show?[Buffer](https://blog.bufferapp.com/best-profile-picture-science-research-psychology) says that head-to-shoulders is the ideal length, but you can go head-to-torso if you want. A photo of your whole body will probably be too zoomed to see well, since profile pictures are usually very small. A close-up photo of just your face or part of your face can also make it hard to tell who you are.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Smile or Laugh, With Teeth
 
  Should you smile and laugh or play it cool and grim? Should that laugh show your teeth?
@@ -46,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/ccf5464afb4aa685619c7a259990847a57c5c05da
 ![person taking selfie on phone with black and white filter applied](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/black-white-selfie.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  A smile is typically best, but you may want to consider what message you are trying to send in your profile. Is it just for fun, a professional profile, or an informational one? This may affect what expression you want to make in your photo.
@@ -57,10 +50,10 @@ thumbnail: https://thmb.techidaily.com/ccf5464afb4aa685619c7a259990847a57c5c05da
  For example, a laughing smile makes you look more likable, but it can drop how competent and influential you seem. Keep this in mind if you are[building a professional Facebook profile](https://www.makeuseof.com/tag/manage-facebook-profile-like-professional-weekly-facebook-tips/) .
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Remember That Most Platforms Use Circular Profile Pictures
@@ -71,9 +64,29 @@ thumbnail: https://thmb.techidaily.com/ccf5464afb4aa685619c7a259990847a57c5c05da
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/screenshot-2023-08-13-at-10-00-29-pm.png)
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Some social media platforms also allow you to add a cover photo to your profile, like Facebook, LinkedIn and X. Cover photos are a landscape photo that will display on your profile in addition to your profile picture. There are no hard-and-fast rules about what your cover photo should be, but they are a fun way to show off more of your personality on your profile!
 
  You can add a picture of you and your friends, the city you're from, or your favorite hobby! Remember to keep it relevant if your profile is for a specific type of content, like a small business. To make your profile even more cohesive, add a cover photo that has similar colors to your profile picture, so they match. You can even[create your own cover photos for platforms like Facebook](https://www.makeuseof.com/tag/how-to-create-amazing-facebook-cover-pictures-for-your-timeline/) .
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Use Bright Colors and a Simple Background
 
@@ -82,13 +95,6 @@ thumbnail: https://thmb.techidaily.com/ccf5464afb4aa685619c7a259990847a57c5c05da
 ![Viewing professional photography and camera shots](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Professional-headshots.jpg)
 
  You don't want your background to distract from yourself in your profile photo. Wear something bright that brings the attention to you, and choose a background that isn't too busy. A simple nature landscape or just a plain color wall is best. If you really like a picture but don't like the background, you can easily[change the background in Photoshop](https://www.makeuseof.com/tag/how-to-change-the-background-of-a-photo-in-photoshop/) .
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Use a Versatile Photo That You Can Use Across Most Platforms
 
@@ -117,22 +123,24 @@ thumbnail: https://thmb.techidaily.com/ccf5464afb4aa685619c7a259990847a57c5c05da
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-top-10-choices-the-ultimate-gb-emulator-list-android/"><u>[New] In 2024, Top 10 Choices The Ultimate GB Emulator List, Android</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-smirk-studio-memomaker/"><u>2024 Approved Smirk Studio MemoMaker</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ng-edge-gadgets-for-elite-gamers/"><u>Cutting-Edge Gadgets for Elite Gamers</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-the-latest-insignia-ns-pcy5bma2-driver-for-enhanced-performance-on-all-microsoft-windows-versions/"><u>Download the Latest Insignia NS-PCY5BMA2 Driver for Enhanced Performance on All Microsoft Windows Versions</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-tecno-spark-10-5g-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Tecno Spark 10 5G Phone Password Without Factory Reset Full Guide Here</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-marketplace-with-confidence-and-caution/"><u>Navigating the Marketplace with Confidence and Caution</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-features-on-the-horizon-for-facebooks-stories-panel/"><u>New Features on the Horizon for Facebook's Stories Panel?</u></a></li>
-<li><a href="https://facebook.techidaily.com/overcoming-blocked-facebook-messagesposts-load-issues/"><u>Overcoming Blocked Facebook Messages/Posts Load Issues</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-the-windows-11-brightness-control-problem-for-a-perfect-display-setup/"><u>Resolving the Windows 11 Brightness Control Problem for a Perfect Display Setup</u></a></li>
-<li><a href="https://facebook.techidaily.com/retrieving-removed-facebook-shares-techniques-and-tips/"><u>Retrieving Removed Facebook Shares: Techniques and Tips</u></a></li>
-<li><a href="https://win-bits.techidaily.com/secure-your-digital-presence-using-multi-factor-authentication-activation-tips-and-tricks-insights-from-zdnet/"><u>Secure Your Digital Presence Using Multi-Factor Authentication: Activation Tips & Tricks - Insights From ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-avoiding-intrusive-social-media-popups/"><u>Strategies for Avoiding Intrusive Social Media Popups</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-power-of-social-fb-twt-streaming-nba-games/"><u>The Power of Social: FB, Twt Streaming NBA Games</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-scale-of-power-governments-vs-techs-mighty-empire/"><u>The Scale of Power: Governments Vs. Tech's Mighty Empire</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/humbnails-the-ultimate-guide-to-optimal-youtube-sizes/"><u>Top Thumbnails The Ultimate Guide to Optimal YouTube Sizes</u></a></li>
-<li><a href="https://facebook.techidaily.com/unwinding-the-facebook-tiktok-rivalry-with-reel-innovation/"><u>Unwinding the Facebook-TikTok Rivalry with Reel Innovation</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>What Legendaries Are In Pokemon Platinum On Apple iPhone 11? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-fb-live-streaming-to-perfect-mp3-format-2023-converter/"><u>[New] In 2024, FB Live Streaming to Perfect MP3 Format - 2023 Converter</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-ultimate-terria-customization-collection/"><u>[New] Ultimate Terria Customization Collection</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-essential-insights-for-youtube-content-protection/"><u>[Updated] 2024 Approved Essential Insights for YouTube Content Protection</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-unknown-to-famous-boosting-video-views-on-youtube-step-by-step/"><u>[Updated] 2024 Approved From Unknown to Famous Boosting Video Views on YouTube Step-by-Step</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-experts-at-work-swift-professional-thumbnails-for-valorant-highlights/"><u>[Updated] In 2024, Experts at Work Swift, Professional Thumbnails for Valorant Highlights</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-premier-emulator-titles-simulating-playstation-2-on-ios-for-2024/"><u>[Updated] Premier Emulator Titles Simulating PlayStation 2 on iOS for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/block-unsolicited-general-member-postings/"><u>Block Unsolicited General Member Postings</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanded-social-footprint-distribute-instagram-reels-to-facebook-network/"><u>Expanded Social Footprint: Distribute Instagram Reels to Facebook Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-data-collection-at-risk-due-to-ios-145-update/"><u>Facebook's Data Collection at Risk Due to iOS 14.5 Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/four-pivotal-shifts-causing-facebooks-user-slide/"><u>Four Pivotal Shifts Causing Facebook's User Slide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/gain-instagram-reel-fame-emulate-top-tiktok-trends-and-insights-for-2024/"><u>Gain Instagram Reel Fame Emulate Top TikTok Trends & Insights for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-xiaomi-mix-fold-3-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Xiaomi Mix Fold 3 Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-mark-yourself-as-safe-on-facebook/"><u>How to Mark Yourself as Safe on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/intentionally-efficient-reducing-unwanted-social-networking/"><u>Intentionally Efficient: Reducing Unwanted Social Networking</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/realtimevid-recorder-overview-for-2024/"><u>RealTimeVid Recorder Overview for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-cyberspace-for-socializing/"><u>Secure Cyberspace for Socializing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-hosting-events-via-facebook-platform/"><u>The Art of Hosting Events via Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-science-behind-facebooks-suggested-posts/"><u>The Science Behind Facebook's Suggested Posts</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-20-free-unlicensed-pubg-screenshot-compilations/"><u>Top 20 Free Unlicensed PUBG Screenshot Compilations</u></a></li>
 </ul></div>
 

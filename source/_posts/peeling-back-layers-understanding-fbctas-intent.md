@@ -1,7 +1,7 @@
 ---
 title: "Peeling Back Layers: Understanding FBCTA's Intent"
-date: 2024-10-08T22:18:11.160Z
-updated: 2024-10-14T23:15:41.585Z
+date: 2024-10-16T16:46:01.874Z
+updated: 2024-10-20T17:07:52.902Z
 tags:
   - facebook
 categories:
@@ -51,10 +51,16 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How the Filter Bubble Transparency Act Could Affect You
@@ -62,10 +68,10 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 ![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The bill means that instead of a personalized news feed, you could have the option to choose between that and a feed showing you posts as they appear on apps like Facebook and Instagram—much like on Twitter.
@@ -75,10 +81,10 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
  This, and giving users an option to opt out of a personalized algorithm, sounds more realistic, at least for now until tech giants can improve their algorithms.
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will Personalized Algorithms Become a Thing of the Past?
@@ -102,24 +108,24 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/not-so-goodbye-exploring-reasons-behind-facebooks-survival/"><u>'Not So Goodbye': Exploring Reasons Behind Facebook’s Survival</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-conversion-companion-best-youtubes-to-avis/"><u>[New] 2024 Approved The Ultimate Conversion Companion Best YouTubes to AVIs</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-affiliate-advancements-how-small-channels-thrive-financially/"><u>[Updated] 2024 Approved Affiliate Advancements How Small Channels Thrive Financially</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-fade-techniques-in-audio-production-with-adobe-tools/"><u>[Updated] Fade Techniques in Audio Production with Adobe Tools</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-strategies-to-design-lively-and-uplifting-content-shows/"><u>[Updated] Strategies to Design Lively and Uplifting Content Shows</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1-master-the-art-of-capturing-gaming-moments-the-ultimate-guide-to-recording-your-pc-gameplay-in-6-effective-methods/"><u>1. Master the Art of Capturing Gaming Moments: The Ultimate Guide to Recording Your PC Gameplay in 6 Effective Methods</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-ultimate-guide-to-reverse-playback-in-snapchat/"><u>2024 Approved The Ultimate Guide to Reverse Playback in Snapchat</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-activation-lock-on-iphone-xr-4-easy-ways-by-drfone-ios/"><u>Bypass Activation Lock On iPhone XR - 4 Easy Ways</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-wants-10000-workers-to-build-the-metaverse-could-you-be-one-of-them/"><u>Facebook Wants 10,000 Workers to Build the Metaverse: Could You Be One of Them?</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-hidden-features-for-improved-spotify-use/"><u>Facebook's Hidden Features for Improved Spotify Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/fbs-memory-purgatory-how-to-uninvite-acquaintances/"><u>FB's Memory Purgatory: How to Uninvite Acquaintances</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-streamlining-post-production-adding-annotations-to-videos/"><u>In 2024, Streamlining Post-Production Adding Annotations to Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-your-way-back-into-a-locked-out-facebook/"><u>Navigating Your Way Back Into a Locked-Out Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/profits-from-peoples-partnership-platforms/"><u>Profits From People's Partnership Platforms</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-music-after-realme-10t-5g-has-been-deleted-by-fonelab-android-recover-music/"><u>Recover your music after Realme 10T 5G has been deleted</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-sharing-made-simple-integrating-fb-content-across-3-services/"><u>Social Sharing Made Simple: Integrating FB Content Across 3 Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategic-use-of-facebooks-daily-alert-for-rest-breaks/"><u>Strategic Use of Facebook's Daily Alert for Rest Breaks</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-pattern-4-signs-that-point-to-lesser-usage-on-fb/"><u>Understanding the Pattern: 4 Signs That Point to Lesser Usage on FB</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-vivo-y36-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-top-rated-best-webcam-mounting-solutions/"><u>[New] 2024 Approved Top-Rated Best Webcam Mounting Solutions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-100plus-best-whatsapp-bio-ideas-for-12-zodiac-signs/"><u>[New] In 2024, 100+ Best Whatsapp Bio Ideas for 12 Zodiac Signs</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/1723199728306-solved-bad-system-config-info-blue-screen-error-quickly-and-easily/"><u>[SOLVED] Bad System Config Info Blue Screen Error | Quickly & Easily!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-channel-connectivity-made-simple-easy-to-use-youtube-buttons/"><u>[Updated] Channel Connectivity Made Simple Easy-to-Use YouTube Buttons</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-get-best-alternatives-of-vsdc-video-editor-on-mac/"><u>2024 Approved Get Best Alternatives of VSDC Video Editor on Mac</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-evolved-2023-samsung-bd-j5900-a-deep-dive/"><u>2024 Approved The Evolved 2023 Samsung BD-J5900 A Deep Dive</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-the-excess-enhancing-your-feed-focus/"><u>Cut the Excess: Enhancing Your Feed Focus</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-language-of-likes-reactions-and-more-in-fb/"><u>Decoding the Language of Likes, Reactions & More in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-era-chronicle-facebooks-2004-beginnings-to-meta-future/"><u>Digital Era Chronicle: Facebook’s 2004 Beginnings to Meta Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-facebooks-algorithmic-shift-toward-business-recommendations/"><u>Discovering Facebook's Algorithmic Shift Toward Business Recommendations</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-concept-to-celebration-structuring-fb-events/"><u>From Concept to Celebration: Structuring FB Events</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/journey-into-unprecedented-sound-clarity-the-new-flexus-200-by-klipsch/"><u>Journey Into Unprecedented Sound Clarity: The New Flexus 200 by Klipsch</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-a-mark-with-high-res-images-on-facebook/"><u>Making a Mark with High-Res Images on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/nft-art-on-insta/"><u>NFT Art on Insta</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/seeking-excellence-prime-free-srt-online-translators-guide-for-2024/"><u>Seeking Excellence Prime Free SRT Online Translators Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-standards-right-to-suspend-trump-with-time-capsule/"><u>Social Networking Standards: Right to Suspend Trump, With Time Capsule</u></a></li>
+<li><a href="https://driver-error.techidaily.com/system-setup-error-intelladapter-not-recognized/"><u>System Setup Error: IntellAdapter Not Recognized</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-on-telegram-from-facebook-outage-a-study/"><u>The Impact on Telegram From Facebook Outage: A Study</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-15-apps-to-hack-wifi-password-on-xiaomi-redmi-k70e-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Xiaomi Redmi K70E</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Why Facebook, WhatsApp, and Instagram Went Offline for Six Hours
-date: 2024-09-10T20:26:11.912Z
-updated: 2024-09-16T16:41:47.462Z
+date: 2024-10-17T16:18:59.988Z
+updated: 2024-10-20T20:31:21.557Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
 
  So, why were Facebook's apps down? And what caused this epic outage?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Facebook Went Down for Six Hours
 
  Facebook's platforms are now back up and running, and Facebook has since apologized and offered an explanation for the outage. The social media platform has blamed the outage on a "faulty configuration change."
@@ -53,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
  Facebook has vowed to learn a lesson from this outage, with Janardhan concluding:
 
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
 
@@ -73,12 +87,19 @@ thumbnail: https://thmb.techidaily.com/71f657792ad13f84286b1544671aaf8455260b87c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-achieving-optimal-watchability-with-two-screens-on-netflix/"><u>[New] 2024 Approved Achieving Optimal Watchability with Two Screens on Netflix</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-dissecting-tunefabs-technology-for-flawless-capture/"><u>[Updated] Dissecting Tunefab's Technology for Flawless Capture</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-typhoon-h-by-yuneec-an-in-depth-analysis/"><u>[Updated] Typhoon H by Yuneec An In-Depth Analysis</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-reality-of-now-vrs-evolution-and-challenges/"><u>2024 Approved The Reality of Now VR's Evolution and Challenges</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-facebook-surveillance-on-your-terms/"><u>Eliminate Facebook Surveillance on Your Terms</u></a></li>
+<li><a href="https://win-answers.techidaily.com/error-solved-successful-steps-for-connecting-to-live-configuration-servers/"><u>Error Solved: Successful Steps for Connecting to Live Configuration Servers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/identify-malfunctioning-hardware-drivers-with-windows-device-manager-in-windows-11-and-10-by-drivereasy-guide/"><u>Identify malfunctioning hardware drivers with Windows Device Manager in Windows 11 & 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-safe-flagging-in-your-fb-account/"><u>Implementing Safe Flagging in Your FB Account</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/james-bond-on-screen-watching-the-spy-saga-from-beginning-to-end/"><u>James Bond on Screen: Watching the Spy Saga From Beginning to End</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-hidden-feedback-mechanisms-in-fb-communities/"><u>Mastering Hidden Feedback Mechanisms in FB Communities</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/peering-into-popularity-instagram-analytics-for-you/"><u>Peering Into Popularity Instagram Analytics for You</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-to-effective-event-design-on-facebook/"><u>Unveiling the Secrets to Effective Event Design on Facebook</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facing Accusations, FB Stands by Advertising Principles
-date: 2024-10-09T03:19:31.383Z
-updated: 2024-10-15T11:22:11.394Z
+date: 2024-10-20T01:01:50.606Z
+updated: 2024-10-20T19:51:28.263Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
  In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Responds to Signal's Move
@@ -52,10 +52,10 @@ Facebook responded with the following statement to the media:
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Signal's Ads You’ll Never See on Instagram
@@ -67,10 +67,10 @@ Facebook responded with the following statement to the media:
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is This Nothing But a PR Stunt on Signal's Part?
@@ -98,20 +98,24 @@ Facebook responded with the following statement to the media:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-comprehensive-manual-best-practices-for-using-mobizen-recording-tool/"><u>[Updated] 2024 Approved Comprehensive Manual Best Practices for Using Mobizen Recording Tool</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-adding-descriptive-tags-to-your-images-on-pcs-and-macs/"><u>[Updated] Adding Descriptive Tags to Your Images on PCs and Macs</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-3-elemental-strategies-for-writing-effective-social-media-promotions-for-2024/"><u>[Updated] The 3 Elemental Strategies for Writing Effective Social Media Promotions for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-affordable-full-hd-cameras-for-stunts-and-sports/"><u>2024 Approved Affordable Full HD Cameras for Stunts and Sports</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-cloud-to-hard-drive-your-facebook-photos-and-videos-journey/"><u>From Cloud to Hard Drive: Your Facebook Photos & Videos Journey</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-latest-nvidia-rtx-2060-super-drivers-for-smooth-performance-on-windows-11-free-download/"><u>Get the Latest NVIDIA RTX 2060 Super Drivers for Smooth Performance on Windows 11 – Free Download</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-meta-manages-misdirected-moments-in-the-web-space/"><u>How Meta Manages Misdirected Moments in the Web Space</u></a></li>
-<li><a href="https://facebook.techidaily.com/identity-illuminators-which-shines-brighter-metalogue-gold-or-twitter-luster/"><u>Identity Illuminators: Which Shines Brighter, Metalogue Gold or Twitter Luster?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-import-music-to-inshot-app/"><u>In 2024, How to Import Music to Inshot App?</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-maximize-your-online-interactions-with-these-5-devices/"><u>In 2024, Maximize Your Online Interactions with These 5 Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/inaccessible-online-spaces-discover-the-3-no-facebook-nations/"><u>Inaccessible Online Spaces: Discover the 3 No-Facebook Nations</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategizing-your-events-with-a-focus-on-facebooks-features/"><u>Strategizing Your Events with a Focus on Facebook's Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-language-of-facebooks-emoji-keyboard/"><u>The Language of Facebook's Emoji Keyboard</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/trasforma-mkv-in-mov-online-e-gratis-con-mediacraft-macchina-del-cinema-digital/"><u>Trasforma MKV in MOV Online E Gratis Con MediaCraft - Macchina Del Cinema Digital</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-voyage-charting-facebooks-course-to-meta/"><u>Virtual Voyage: Charting Facebook's Course to Meta</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitter-takeover-1-10-must-watch-threads/"><u>[New] 2024 Approved Twitter Takeover #1-#10 Must-Watch Threads</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unlocking-full-potential-with-final-cut-pro/"><u>[New] 2024 Approved Unlocking Full Potential with Final Cut Pro</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-customize-and-captivate-thumbnail-magic-for-shorts/"><u>[Updated] Customize & Captivate Thumbnail Magic for Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-download-youtube-tunes-with-these-10plus-no-cost-audio-crackers-for-2024/"><u>[Updated] Download YouTube Tunes with These 10+ No-Cost Audio Crackers for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-superior-corporate-space-for-storage/"><u>2024 Approved Superior Corporate Space for Storage</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-poco-m6-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-igtv-status-strategies-for-viewership-surge/"><u>Elevate Your IGTV Status Strategies for Viewership Surge</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-orders-judgment-for-trumps-prohibition/"><u>Facebook Orders Judgment for Trump's Prohibition.</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-securely-update-and-enhance-your-broadcom-gigabit-ethernet-drivers-on-windows-11/"><u>How to Securely Update and Enhance Your Broadcom Gigabit Ethernet Drivers on Windows 11</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-effortless-pc-sound-logging-with-x-recorder-software/"><u>In 2024, Effortless PC Sound Logging with X-Recorder Software</u></a></li>
+<li><a href="https://extra-support.techidaily.com/masterful-windows-melodies-for-2024/"><u>Masterful Windows Melodies for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-the-fall-of-facial-recognition-with-fb/"><u>Meta Drops: The Fall of Facial Recognition with FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-quests-account-privacy-meta-or-fb/"><u>Oculus Quest's Account Privacy: Meta or FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevent-data-theft-check-for-illicit-pcemail-usage/"><u>Prevent Data Theft: Check for Illicit PC/Email Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-society-top-7-social-media-advantages/"><u>Revolutionizing Society: Top 7 Social Media Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-your-news-feed-from-political-strife/"><u>Silent Your News Feed From Political Strife</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegram-notifies-tracking-upholds-user-friendly-features/"><u>Telegram Notifies: Tracking Upholds User-Friendly Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-review-of-this-years-most-engaging-podcasts/"><u>The Ultimate Review of This Year's Most Engaging Podcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/users-rebel-against-ios-invasion/"><u>Users Rebel Against iOS Invasion</u></a></li>
 </ul></div>
 

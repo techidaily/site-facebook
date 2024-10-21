@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Identifying FB Banned Acquaintances
-date: 2024-09-10T19:42:24.900Z
-updated: 2024-09-16T21:07:59.949Z
+date: 2024-10-15T00:16:35.320Z
+updated: 2024-10-20T19:05:54.017Z
 tags:
   - facebook
 categories:
@@ -44,9 +44,23 @@ Close
 
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to View Your Blocked List on the Web
 
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
 
@@ -57,6 +71,13 @@ Close
 
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Can People Tell if You've Blocked Them on Facebook?
 
  People will not be notified when you block them on Facebook. However, there are[ways to figure out if someone has blocked you on Facebook](https://www.makeuseof.com/tag/who-blocked-me-on-facebook/) .
@@ -66,10 +87,10 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
@@ -89,5 +110,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/updated-hypervision-pro-all-in-one-4k-screen-desks/"><u>[Updated] HyperVision Pro All-in-One 4K Screen Desks</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-6-best-linkedin-video-downloaders-to-save-videos-from-linkedin/"><u>2024 Approved 6 Best Linkedin Video Downloaders to Save Videos From LinkedIn</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-vivo-t2-5g-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Vivo T2 5G? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-oppo-reno-10-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/free-online-avi-to-m4v-converter-moveave/"><u>Free Online AVI to M4V Converter - Moveave</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-connection-to-isolation-the-facebook-story/"><u>From Connection to Isolation: The Facebook Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/insta-interruption-the-strategy-behind-urging-a-social-media-vacation/"><u>Insta-Interruption: The Strategy Behind Urging a Social Media Vacation</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-past-interactions-in-fb-environment/"><u>Investigating Past Interactions in FB Environment</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-content-erasure-on-linkedin/"><u>Mastering the Art of Content Erasure on LinkedIn</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/motivation-maestro-the-honterus-way/"><u>Motivation Maestro - The Honterus Way</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-here-is-the-solution-of-your-all-questions-some-of-the-reliable-and-durable-free-wmv-video-joiners-are-given-below/"><u>New In 2024, Here Is the Solution of Your All Questions; some of the Reliable and Durable Free WMV Video Joiners Are Given Below</u></a></li>
+<li><a href="https://facebook.techidaily.com/pro-palestinian-campaign-targets-social-media-star-system/"><u>Pro-Palestinian Campaign Targets Social Media Star System</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-approach-to-personalized-fb-navigation-tools/"><u>Strategic Approach to Personalized Fb Navigation Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-escaping-facebook-tags/"><u>Techniques for Escaping Facebook Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dangers-of-shadowbanning-steps-to-skirt-around-it/"><u>The Hidden Dangers of Shadowbanning: Steps to Skirt Around It</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-new-dawn-of-creativity-spotlight-on-six-visionary-nftos-for-2024/"><u>The New Dawn of Creativity Spotlight on Six Visionary NFTOs for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/tips-and-tricks-for-setting-up-your-motorola-g54-5g-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Motorola G54 5G Phone Pattern Lock</u></a></li>
+</ul></div>
 

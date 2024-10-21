@@ -1,7 +1,7 @@
 ---
 title: Stop @Everyone Emoticons in Comments
-date: 2024-09-10T14:59:07.409Z
-updated: 2024-09-11T14:59:07.409Z
+date: 2024-10-16T01:48:27.924Z
+updated: 2024-10-20T21:56:59.440Z
 tags:
   - facebook
 categories:
@@ -19,27 +19,10 @@ thumbnail: https://thmb.techidaily.com/f5bde08083c297970b9e93f509911df9c27588c39
 
  If you don't want to receive these batch notifications, we've got you covered. Read on to learn how to turn off the annoying @everyone tag on Facebook.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to Turn Off the @everyone Tag on Facebook
 
@@ -47,57 +30,9 @@ thumbnail: https://thmb.techidaily.com/f5bde08083c297970b9e93f509911df9c27588c39
 
 ![screenshot showing facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/screenshot-showing-facebook-settings-menu.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![screenshot showing facebook notification settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/screenshot-showing-facebook-notification-settings-page.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![screenshot showing facebook tag page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/screenshot-showing-facebook-tag-page.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Close
 
@@ -108,25 +43,12 @@ Close
 
  That's all there is to it. You'll no longer receive notifications when someone uses the @everyone tag in a group post. You can further customize the notifications you receive on the**Notifications Settings** page to receive even fewer notifications.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Why You Should Turn Off @everyone Tags on Facebook
 
@@ -136,19 +58,12 @@ Close
 
  Turning off the Batch @everyone mentions toggle can be a great way to take control of your notifications and stop getting spammed by overzealous group admins. You will still get notified of personal tags, so you won't miss any vital conversations.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Take Control of Your Facebook Tags
 
@@ -156,14 +71,11 @@ Close
 
  You don't have to leave the group or mute the conversation if you don't want to—just turn off the Batch @everyone mentions toggle and be done with it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -172,12 +84,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-curated-cinematic-journeys-the-best-yt-film-selections/"><u>[New] 2024 Approved Curated Cinematic Journeys The Best YT Film Selections</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-fundamentals-of-compelling-documentary-screenplay-for-2024/"><u>[New] The Fundamentals of Compelling Documentary Screenplay for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-aesthetic-video-upgrade-implement-lc-overlay-and-black-bars-on-facebook/"><u>[Updated] 2024 Approved Aesthetic Video Upgrade Implement LC Overlay & Black Bars on Facebook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-make-every-snap-spectacited-top-editors-for-snapchats-best-effects/"><u>2024 Approved Make Every Snap Spectacited Top Editors for Snapchat's Best Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-digital-gallery-diy-photo-collage-tips/"><u>Crafting Your Digital Gallery: DIY Photo Collage Tips</u></a></li>
+<li><a href="https://games-able.techidaily.com/dive-into-hardware-and-downloads-for-bg3-lovers/"><u>Dive Into Hardware & Downloads for BG3 Lovers</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-textual-interactions-embrace-soundmojis-in-messenger/"><u>Elevate Your Textual Interactions: Embrace Soundmojis in Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-risks-3-worrying-factors-of-metaverse/"><u>Examining Risks: 3 Worrying Factors of Metaverse</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-metaverse-insight-discovering-6-realistic-examples/"><u>In 2024, Metaverse Insight Discovering 6 Realistic Examples</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-guide-to-latest-watches-in-facebook/"><u>Quick Guide to Latest Watches in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-your-social-media-account-post-code-mishap/"><u>Recovering Your Social Media Account, Post-Code Mishap</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-digital-identity-with-2fa-focus-on-gmail-and-outlook/"><u>Securing Digital Identity with 2FA - Focus on Gmail and Outlook</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/strategies-for-minimizing-large-scale-video-and-audio-data-for-2024/"><u>Strategies for Minimizing Large-Scale Video and Audio Data for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-comprehensive-guide-to-the-newly-released-samsung-galaxy-watch-7-pricing-specs-and-release-updates/"><u>The Comprehensive Guide to the Newly Released Samsung Galaxy Watch #7 - Pricing, Specs and Release Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/untangling-the-messages-fb-icon-semantics/"><u>Untangling the Messages: FB Icon Semantics</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-social-media-governance-facebooks-latest-policies-hub/"><u>Unveiling Social Media Governance: Facebook's Latest Policies Hub</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ge-video-production-techniques-for-timelessness/"><u>Vintage Video Production Techniques for Timelessness</u></a></li>
+</ul></div>
 

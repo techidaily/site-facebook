@@ -1,7 +1,7 @@
 ---
 title: Meta Drops Facial Recognition—How Does It Impact Facebook?
-date: 2024-09-11T17:07:19.188Z
-updated: 2024-09-16T16:52:43.646Z
+date: 2024-10-19T00:16:40.438Z
+updated: 2024-10-21T01:50:14.918Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,23 @@ thumbnail: https://thmb.techidaily.com/14a22e63716263e4dbf21490561e8b1d60bb16b34
 
  Related:[How Dark Patterns Mislead You Into Making Bad Privacy Choices](https://www.makeuseof.com/tag/dark-patterns-bad-privacy-choices/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is Meta Disabling Facial Recognition on Facebook?
 
 ![blonde woman taking photo with phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/blonde-woman-pixabay.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The official reason, given in a[Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
 
@@ -55,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/14a22e63716263e4dbf21490561e8b1d60bb16b34
  At the time of writing, Meta is battling yet another major controversy after whistleblower, Frances Haugen, released[internal documents dubbed “the Facebook papers”](https://www.makeuseof.com/what-are-facebook-papers/) alleging that Facebook prioritizes profits over truth.
 
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Will Meta's Disabling of Facebook's Facial Recognition Enhance Privacy?
 
@@ -79,12 +100,21 @@ thumbnail: https://thmb.techidaily.com/14a22e63716263e4dbf21490561e8b1d60bb16b34
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-guide-to-exporting-pinterest-videos-into-mp3-format/"><u>[New] In 2024, Guide to Exporting Pinterest Videos Into MP3 Format</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/upgraded-strategies-for-eliminating-minecraft-lag-and-enhancing-playtime/"><u>[UPGRADED] Strategies for Eliminating Minecraft Lag and Enhancing Playtime</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-craft-nfts-with-minimal-exertion/"><u>2024 Approved How to Craft NFTs with Minimal Exertion</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/come-procedere-nella-crea-e-nel-preparare-uninstallazione-uefi-su-unssd-clonata-per-giochi-e-applicazioni/"><u>Come Procedere Nella Crea E Nel Preparare Un'Installazione UEFI Su Un'SSD Clonata per Giochi E Applicazioni</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-samsung-galaxy-s24plus-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Samsung Galaxy S24+ Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-hidden-drain-how-many-leaving/"><u>Facebook's Hidden Drain: How Many Leaving?</u></a></li>
+<li><a href="https://facebook.techidaily.com/germany-orders-facebook-to-stop-collecting-data-on-whatsapp-users/"><u>Germany Orders Facebook to Stop Collecting Data on WhatsApp Users</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/harness-the-power-of-zoom-on-your-windows-10-pc/"><u>Harness the Power of Zoom on Your Windows 10 PC</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-image-generation-integrating-dall-e-into-chatgpt-4-for-creative-visuals/"><u>Mastering Image Generation: Integrating DALL-E Into ChatGPT-4 for Creative Visuals</u></a></li>
+<li><a href="https://program-issues.techidaily.com/mastering-troubleshooting-techniques-to-prevent-starfield-from-freezing-on-pc/"><u>Mastering Troubleshooting Techniques to Prevent Starfield From Freezing on PC</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/protecting-youth-in-digital-dialogues-5-safe-chatgpt-strategies/"><u>Protecting Youth in Digital Dialogues: 5 Safe ChatGPT Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-downloads-of-social-network-memories-from-facebook/"><u>Seamless Downloads of Social Network Memories From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/separating-fact-from-fiction-a-new-lens-on-facebook-reports/"><u>Separating Fact From Fiction: A New Lens on Facebook Reports</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-my-facebook-account-disabled-6-possible-causes/"><u>Why Is My Facebook Account Disabled? 6 Possible Causes</u></a></li>
+</ul></div>
 

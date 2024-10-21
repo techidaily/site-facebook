@@ -1,7 +1,7 @@
 ---
 title: Platform Policies on Expressing Displeasure
-date: 2024-09-10T22:58:12.775Z
-updated: 2024-09-16T19:32:53.641Z
+date: 2024-10-17T23:37:52.984Z
+updated: 2024-10-20T23:39:40.819Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 
  Also, the creators of the videos garnering the dislikes can still see their number in their analytics. It's the viewers who have no concept of the number.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Less Stress When Posting
 
 ![stressed woman with laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/stressed-woman-with-laptop.jpg)
@@ -51,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
  With the new policy on not showing the number of dislikes, however, that doesn't have to be such a major issue as it was before.
 
  Sure, the dislikes will still be there in your analytics, but they won't be there for all to see. And, unless you go looking for them, they won't affect you. So that can make posting a much more stress-free experience.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### It Helps Your Mental Health
 
@@ -68,22 +82,15 @@ What's more, it goes beyond affecting only the poster.
 
  By hiding the dislikes number, YouTube essentially spares both the creator and their fan base of the stress, anxiety, and all the other negative emotions that can arise from being the victim of a hate campaign.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Cons to the Dislike Button Hiding Its Numbers
 
  Let's talk about the negatives that follow the action of hiding the dislikes number on posts.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### You Can't Discern Helpfulness
@@ -97,6 +104,13 @@ What's more, it goes beyond affecting only the poster.
  If there are more dislikes than likes, it's a good indication that the video is not helpful at all. That way, you don't waste time watching it and can immediately look for another video that better fits the bill.
 
  By hiding dislikes, YouTube essentially took that practical trick away, and now you can't tell if a video is good or bad off the bat.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### You Can't Tell if It's Worth Seeing
 
@@ -127,10 +141,10 @@ What's more, it goes beyond affecting only the poster.
  The company also ensured that this was only a test to see what people wanted, and it hasn't been decided whether the change would follow or the company would hold off on it. If you don't like a post, you have the option to skip over it and not like it, or you can reply or quote retweet it and share your opinion on it. So, does a dislike button make sense at all?
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### You Can't Imagine the Platform Without It
@@ -144,13 +158,6 @@ What's more, it goes beyond affecting only the poster.
  Downvotes are so integral to Reddit that Twitter's recent dabble with applying a downvote system on its platform leads people to compare the two social media sites.
 
  Reddit needs the balance of both upvotes and downvotes to be the platform people signed up to use. So, instead of removing the button entirely, it chose to hide the count of both buttons it offers.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Are Hidden Dislikes the Future?
 
@@ -171,5 +178,24 @@ What's more, it goes beyond affecting only the poster.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-decoding-youtube-shorts-all-you-need-to-understand/"><u>[Updated] In 2024, Decoding YouTube Shorts All You Need to Understand</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-in-depth-scrutiny-the-hero4-black-universe/"><u>2024 Approved In-Depth Scrutiny The Hero4 Black Universe</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-photographic-edge-cutting-edge-editing-strategies/"><u>2024 Approved The Photographic Edge Cutting-Edge Editing Strategies</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-top-10-epic-adventures-game-editions-greatest-hits/"><u>2024 Approved Top 10 Epic Adventures Game Edition's Greatest Hits</u></a></li>
+<li><a href="https://facebook.techidaily.com/fine-tune-your-digital-experience-decrease-targeted-promotions/"><u>Fine-Tune Your Digital Experience: Decrease Targeted Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-design-dynamic-engagement-hubs-in-facebook/"><u>How to Design Dynamic Engagement Hubs in Facebook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-master-the-art-of-streaming-pick-from-the-leading-6-cost-free-and-on-demand-short-video-downloads/"><u>In 2024, Master the Art of Streaming Pick From the Leading 6 Cost-Free & On-Demand Short Video Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-tagged-photos-take-control-with-ease/"><u>Mastery Over Tagged Photos: Take Control with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-outage-opens-new-challenges-for-giants/"><u>Online Outage Opens New Challenges for Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/reshaping-profile-narratives-from-polity-and-beliefs/"><u>Reshaping Profile Narratives From Polity and Beliefs</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solve-silent-computers-fast-the-easy-fix-you-need-now/"><u>Solve Silent Computers Fast – The Easy Fix You Need Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-truth-seekers-toolkit-for-discerning-social-identity-authenticity/"><u>The Truth-Seeker's Toolkit for Discerning Social Identity Authenticity</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-tech-review-expert-insights-on-latest-gadgets/"><u>Tom's Tech Review - Expert Insights on Latest Gadgets</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/top-7-icloud-activation-bypass-tools-for-your-iphone-13-pro-by-drfone-ios/"><u>Top 7 iCloud Activation Bypass Tools For your iPhone 13 Pro</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/troubleshooting-and-fixing-samsung-printer-drivers-on-windows-a-comprehensive-guide/"><u>Troubleshooting and Fixing Samsung Printer Drivers on Windows: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/watch-out-screenshots-going-missing-in-messenger/"><u>Watch Out: Screenshots Going Missing in Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-are-users-turned-off-by-global-social-networks/"><u>Why Are Users Turned Off by Global Social Networks?</u></a></li>
+</ul></div>
 

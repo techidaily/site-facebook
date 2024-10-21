@@ -1,7 +1,7 @@
 ---
 title: English Sports Teams Begin Their Boycott of Social Media
-date: 2024-10-11T20:03:45.780Z
-updated: 2024-10-15T04:00:04.557Z
+date: 2024-10-13T21:05:55.089Z
+updated: 2024-10-20T22:26:49.418Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Will the Social Media Blackout Involve?
@@ -44,16 +44,10 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Are Sports Teams Boycotting Social Media?
@@ -67,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Taking a Stand Against Racism
@@ -92,18 +86,20 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-an-easy-to-follow-guide-to-applying-cc-license-types/"><u>[New] 2024 Approved An Easy-to-Follow Guide to Applying CC License Types</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-future-of-content-creation-profitability-on-youtube/"><u>[Updated] 2024 Approved The Future of Content Creation Profitability on YouTube</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ai-creative-showdown-ranking-three-advanced-chatbots-against-a-common-task/"><u>AI Creative Showdown: Ranking Three Advanced Chatbots Against a Common Task</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/amplify-engagement-broadcasting-from-twitch-to-facebook-for-2024/"><u>Amplify Engagement Broadcasting From Twitch to Facebook for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/boost-your-vm-capabilities-upgrading-to-virtualbox-70-in-win11/"><u>Boost Your VM Capabilities: Upgrading to VirtualBox 7.0 in Win11</u></a></li>
-<li><a href="https://facebook.techidaily.com/evolutionary-leap-why-now-meet-a-social-innovator-at-facebook/"><u>Evolutionary Leap: Why Now, Meet a 'Social Innovator' At Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovating-restraint-how-will-upcoming-us-antitrust-laws-impact-big-tech/"><u>Innovating Restraint: How Will Upcoming US Antitrust Laws Impact Big Tech?</u></a></li>
-<li><a href="https://facebook.techidaily.com/oculus-launches-customizable-digital-alter-egos/"><u>Oculus Launches Customizable Digital Alter Egos</u></a></li>
-<li><a href="https://win11.techidaily.com/overcoming-windows-enter-button-failures/"><u>Overcoming Windows Enter Button Failures</u></a></li>
-<li><a href="https://facebook.techidaily.com/renewables-redefined-facebooks-complete-energy-overhaul/"><u>Renewables Redefined: Facebook's Complete Energy Overhaul</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1722892372280-snapchat-tricks-unveiled-transforming-forward-videos-into-reversed-magic/"><u>Snapchat Tricks Unveiled: Transforming Forward Videos Into Reversed Magic</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-integration-at-what-cost-dissecting-the-pros-and-cons-of-facebook-for-app-sign-ins/"><u>Social Integration at What Cost? Dissecting the Pros & Cons of Facebook for App Sign-Ins</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-next-big-thing-in-smartphones-exclusive-insights-into-the-iphone-16-16-pro-and-max/"><u>The Next Big Thing in Smartphones - Exclusive Insights Into the iPhone 16, 16 Pro & Max</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-crafting-content-for-insta-clout-a-9-step-playbook-for-fame/"><u>[New] Crafting Content for Insta Clout A 9-Step Playbook for Fame</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-visionary-tech-that-cares-for-the-earth-for-2024/"><u>[New] Visionary Tech That Cares for the Earth for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-boosting-roi-in-fb-ads-through-animation-techniques/"><u>[Updated] Boosting ROI in FB Ads Through Animation Techniques</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-magic-meets-technology-the-future-of-home-studio-production/"><u>[Updated] Magic Meets Technology The Future of Home Studio Production</u></a></li>
+<li><a href="https://facebook.techidaily.com/detecting-deception-eyes-that-see-beyond-screen-saves/"><u>Detecting Deception: Eyes that See Beyond Screen Saves</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-upgrade-canon-eos-dslr-camera-software/"><u>Download and Upgrade Canon EOS DSLR Camera Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-knowledge-on-new-facebook-ui-elements/"><u>Essential Knowledge on New Facebook UI Elements</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-innovates-with-subscription-links-apple-comparison-explained/"><u>Facebook Innovates With Subscription Links: Apple Comparison Explained</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-iphone-15-pro-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>Forgot iPhone 15 Pro Backup Password? Heres What to Do | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/halting-ios-app-tracking-the-mass-movement/"><u>Halting iOS App Tracking: The Mass Movement</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/iphone-12-pro-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>iPhone 12 Pro Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-challenges-with-deficient-xinput13dll-availability/"><u>Overcoming Challenges with Deficient XINPUT1_3.dll Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dynamics-facebook-and-the-metaverse-connection/"><u>The Hidden Dynamics: Facebook and The Metaverse Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/weighing-in-should-you-utilize-meta-ai-on-social-networks/"><u>Weighing In: Should You Utilize Meta AI on Social Networks?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-you-dont-see-can-hurt-your-online-presence-evasion-techniques/"><u>What You Don't See Can Hurt Your Online Presence - Evasion Techniques</u></a></li>
 </ul></div>
 

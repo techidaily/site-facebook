@@ -1,7 +1,7 @@
 ---
 title: "NFT Adoption: Meta Drops Tested on Social Giants"
-date: 2024-09-10T14:57:41.238Z
-updated: 2024-09-11T14:57:41.238Z
+date: 2024-10-14T00:39:22.942Z
+updated: 2024-10-20T16:54:08.732Z
 tags:
   - facebook
 categories:
@@ -17,27 +17,10 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
  Before it has even truly begun, Meta has announced that it will end its NFT tools on Instagram and Facebook.The revelation, made by Meta commerce and fintech lead Stephane Kasriel, comes as a surprise given Facebook's pivot to Meta in recognition of its new focus on the metaverse.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Meta Is "Winding Down" NFTs on Instagram and Facebook
 
@@ -47,25 +30,12 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
  Meta rolled out[NFT sales for Instagram creators in November 2022](https://www.makeuseof.com/meta-pushes-instagram-nfts-who-is-buying/) , so its quick retraction and change of direction won't do much to inspire confidence in the social media giant's other metaverse and Web3 plans.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## What's Next for Meta, Crypto, and the Metaverse?
 
@@ -79,14 +49,11 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
  Whether the scramble to roll back NFT support on Instagram and Facebook is purely cost-cutting or is the start of a new approach to the metaverse for Meta remains to be seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,12 +62,20 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-discoveries-10-facebook-meme-pages-that-surprise-you/"><u>[New] Discoveries 10 Facebook Meme Pages That Surprise You</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-lg-27uhd68-screen-revolution-understanding-4k-sync-technology/"><u>[New] LG 27UHD68 Screen Revolution Understanding 4K Sync Technology</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-best-collection-for-enlivening-text/"><u>[Updated] Best Collection for Enlivening Text</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-flight-to-film-expert-techniques-for-video-editors-using-drones/"><u>[Updated] Flight to Film Expert Techniques for Video Editors Using Drones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mastering-the-fine-art-of-instagram-photo-borders/"><u>2024 Approved Mastering the Fine Art of Instagram Photo Borders</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-glimpse-into-the-machinery-of-facebooks-policy-framework/"><u>A Glimpse Into the Machinery of Facebook's Policy Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-gaming-the-true-scope-of-the-metaverse/"><u>Beyond Gaming: The True Scope of the Metaverse</u></a></li>
+<li><a href="https://windows11.techidaily.com/clearing-up-audio-error-devices-being-used-by-non-targeted-apps/"><u>Clearing Up Audio Error: Devices Being Used by Non-Targeted Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-sunset-mastering-the-art-of-permanent-deletion-on-facebook/"><u>Digital Sunset: Mastering the Art of Permanent Deletion on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-web-locating-profile-and-group-links/"><u>Exploring Facebook's Web: Locating Profile & Group Links</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-lava-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Lava</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-vivo-t2x-5g-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Vivo T2x 5G Device</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/most-anticipated-ios-18-benefit-for-dedicated-android-devotees/"><u>Most Anticipated iOS 18 Benefit for Dedicated Android Devotees</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Social Scaffolding: Platforms That Build Community Bonds"
-date: 2024-09-11T18:19:44.923Z
-updated: 2024-09-16T17:37:25.391Z
+date: 2024-10-14T23:34:41.662Z
+updated: 2024-10-21T01:21:02.183Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ Here are the ways that social media brings people together...
 
 ![Screenshot of Facebook Messenger chat window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Messenger-Chat-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Sometimes, life keeps couples physically apart from one another. But through social media, you and your partner can stay connected without needing to constantly chat.
 
  You can look through each other's photos and reminisce, then connect via Messenger chat. Facebook's Messenger application also has a video call option available when you want some face-to-face time.
@@ -58,18 +65,18 @@ To use Facebook Messenger's video call feature:
 
 ![Woman scrolling Instagram feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/instagram-feed.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Many families live away from each other and this can be very difficult for everyone involved. Grandparents, especially, have a difficult time being away from their grandchildren. But social media is an easy way to stay connected even when you're far apart.
 
  Sharing photos to your Instagram account is a great way for your family to feel like they are involved in your everyday activities. The platform lets you share as many photos as you like and it's easy to use even for beginners. You can add artistic filters to your photos, tag people in them, and privately chat via their message application.
 
  Instagram can be used on your phone or computer. If you want to make a new post on Instagram, follow the tips in this article detailing[how to post on Instagram from your PC or Mac](https://www.makeuseof.com/tag/how-to-post-on-instagram-from-pc-mac/) . Your family will enjoy seeing what you're up to every day!
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Connecting Through Facebook Groups
 
@@ -79,16 +86,16 @@ To use Facebook Messenger's video call feature:
 
  If you are feeling lonely, joining a Facebook group is a perfect way to meet people who share the same interests as you.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Join Groups on Facebook
 
 ![Screenshot of Facebook group search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Groups-Search.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 To join a group on Facebook, follow these steps:
 
@@ -107,6 +114,13 @@ Then, wait for your request to be approved and start connecting!
 
 ![People protesting in public](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Web3-Protests-Against-Jack-Dorsey-Tweet.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Social media has brought many of us closer together. One of the major ways people are uniting is via social media movements like the "Me Too" movement against sexual harassment and assault, which is one of the many[Twitter hashtags that have shaped history](https://www.makeuseof.com/twitter-hashtags-that-shaped-history/) .
 
  People who have experienced these terrible crimes have come together to tell their stories and stand up against the exploitation of vulnerable people.
@@ -114,16 +128,10 @@ Then, wait for your request to be approved and start connecting!
  The birthplace of many social media movements is on Twitter. People use hashtags such as #metoo to unite all the posts in one place and tell their stories. Hashtags have brought attention to many injustices in the world and have also bonded people together in times of tragedy.
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Meeting New People
@@ -133,13 +141,6 @@ Then, wait for your request to be approved and start connecting!
  We spoke earlier about how social media helps you connect with your existing loved ones, but platforms like Instagram and Twitter are also excellent for meeting new people with similar interests. For example, if you have a hobby like photography, you could potentially make lifelong friends by meeting these people in real life and going for regular photoshoots.
 
  Sports fans can similarly use social media networks to meet fans of the same or different teams, and even watch games together. The more niche your interests are, the better social media is for helping you find like-minded people. Consider trying these great[social media apps for making friends in your community](https://www.makeuseof.com/best-social-media-apps-for-making-friends/) if you're looking to build your network.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. Helping People Reunite With Others and Items
 
@@ -168,5 +169,21 @@ Then, wait for your request to be approved and start connecting!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-innovative-techniques-for-secure-and-quality-vimeo-recording/"><u>[Updated] In 2024, Innovative Techniques for Secure & Quality Vimeo Recording</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-pinnacle-visuals-for-the-modern-broadcaster/"><u>[Updated] In 2024, Pinnacle Visuals for the Modern Broadcaster</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/ad-free-thinking-ad-free-win-11-start/"><u>Ad-Free Thinking, Ad-Free Win 11 Start</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-realme-11-pro-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/boost-music-production-with-our-leading-free-beat-detection-software-for-2024/"><u>Boost Music Production with Our Leading Free Beat Detection Software for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ensuring-child-privacy-with-chatgpt-top-5-measures/"><u>Ensuring Child Privacy with ChatGPT: Top 5 Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chatter-vs-linkedin-leaders-discussion-and-development-dissected/"><u>Facebook Chatter Vs. LinkedIn Leaders: Discussion and Development Dissected</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-enhanced-community-management-features/"><u>Facebook Unveils Enhanced Community Management Features</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirror-your-apple-iphone-se-2022-display-drfone-by-drfone-ios/"><u>How to Screen Mirror your Apple iPhone SE (2022) Display? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/steer-clear-understanding-the-dangers-of-random-friendships/"><u>Steer Clear: Understanding the Dangers of Random Friendships</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/stellar-data-recovery-windows/"><u>Stellar Data Recovery(ステラ・データリカバリ): Windows用無料プログラムで、簡単に安全なデータ修復が可能</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-crowdflower-tools-for-data-driven-decision-making/"><u>Top 8 CrowdFlower Tools for Data-Driven Decision Making</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-online-presence-seamless-fb-posts-and-notes-movement/"><u>Transform Your Online Presence: Seamless Fb Posts & Notes Movement</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-your-social-spheres-on-xbox-a-step-by-step-guide/"><u>Uniting Your Social Spheres on Xbox: A Step-by-Step Guide</u></a></li>
+</ul></div>
 

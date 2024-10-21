@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2024-10-13T17:28:05.507Z
-updated: 2024-10-14T20:04:47.074Z
+date: 2024-10-16T02:07:22.437Z
+updated: 2024-10-20T23:44:17.400Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -60,24 +60,18 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-lenovo-savvy-efficient-screencasting-made-simple/"><u>[New] Lenovo Savvy Efficient Screencasting Made Simple</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-unlocking-efficiency-incorporating-zoom-into-your-gmail-routine-for-2024/"><u>[New] Unlocking Efficiency Incorporating Zoom Into Your Gmail Routine for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-from-pantry-to-fame-tiktoks-culinary-stars/"><u>[Updated] 2024 Approved From Pantry to Fame TikTok's Culinary Stars</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-hitting-the-sweet-spot-balancing-images-in-your-instagram-story/"><u>[Updated] In 2024, Hitting the Sweet Spot Balancing Images in Your Instagram Story</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-nvidia-shield-tv-pro-analysis-the-ultimate-gaming-streamers-choice/"><u>Comprehensive Nvidia Shield TV Pro Analysis: The Ultimate Gaming Streamer's Choice</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/conquer-the-cursor-flicker-problem-a-comprehensive-guide-for-quick-fixes/"><u>Conquer the Cursor Flicker Problem: A Comprehensive Guide for Quick Fixes</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-interaction-use-polls-to-peek-into-friends-lives/"><u>Enhance Interaction: Use Polls to Peek Into Friends' Lives</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exceptional-lg-24lh4830-screen-experience-without-breaking-your-wallet/"><u>Exceptional LG 24LH4830 Screen Experience Without Breaking Your Wallet</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-online-presence-facebook-vs-twitter-identities/"><u>Exploring Online Presence: Facebook vs Twitter Identities</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-app-tutorial-for-seamless-spotify-listening/"><u>Facebook App Tutorial for Seamless Spotify Listening</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-navigate-the-complex-world-of-fb-friendship-changes/"><u>How To Navigate The Complex World of FB Friendship Changes</u></a></li>
-<li><a href="https://facebook.techidaily.com/improving-non-responsive-facebook-alerts-and-updates/"><u>Improving Non-Responsive Facebook Alerts & Updates</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-tales-and-truths-the-worlds-finest-schools-top-8/"><u>In 2024, Mastering Tales & Truths The World's Finest Schools (Top 8)</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/is-the-keychron-q5-worth-it-a-detailed-examination-of-performance-vs-cost-for-high-end-tech-enthusiasts/"><u>Is the Keychron Q5 Worth It? A Detailed Examination of Performance Vs. Cost for High-End Tech Enthusiasts</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/mastering-pc-building-with-toms-hardware-wisdom/"><u>Mastering PC Building with Tom's Hardware Wisdom</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-blueprint-to-bar-private-images-online/"><u>Meta's Blueprint to Bar Private Images Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/resilience-in-rebellion-facebooks-sanctioned-sect-of-deniers/"><u>Resilience in Rebellion: Facebook’s Sanctioned Sect of Deniers</u></a></li>
-<li><a href="https://facebook.techidaily.com/seize-profit-with-these-5-online-platform-strategies/"><u>Seize Profit with These 5 Online Platform Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/sheryl-sandberg-and-social-media-dynamics/"><u>Sheryl Sandberg and Social Media Dynamics</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-complete-breakdown-the-android-adaptation-of-lightroom-app/"><u>[New] Complete Breakdown The Android Adaptation of Lightroom App</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-expert-tips-for-selecting-video-control-software/"><u>[New] Expert Tips for Selecting Video Control Software</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-leading-8-multimedia-apps-for-creative-phones-android-ios-for-2024/"><u>[New] The Leading 8 Multimedia Apps for Creative Phones (Android, iOS) for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-premier-tactics-capturing-high-quality-sporting-live-events/"><u>[Updated] 2024 Approved Premier Tactics Capturing High-Quality Sporting Live Events</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-the-elite-fraudsters-web-networks/"><u>Avoiding the Elite Fraudsters' Web Networks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-best-to-extraordinary-mondlys-journey-in-german-linguistics/"><u>From Best to Extraordinary: Mondly’s Journey in German Linguistics</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-world-of-ergonomic-seating-an-expert-take-on-the-cumuluspro-standing-desk-mat/"><u>Navigating the World of Ergonomic Seating: An Expert Take on the CumulusPRO Standing Desk Mat</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-meets-live-audience-with-facebooks-update/"><u>Social Media Meets Live Audience with Facebook's Update</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-oneplus-nord-ce-3-lite-5g-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your OnePlus Nord CE 3 Lite 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-old-social-circles-on-fb/"><u>Unveiling Old Social Circles on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-realities-seeing-the-whole-picture-in-fb-data-exposes/"><u>Unveiling Realities: Seeing the Whole Picture in FB Data Exposés</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-will-your-messages-be-private-with-fb-messenger-e2ee/"><u>When Will Your Messages Be Private with FB Messenger E2EE?</u></a></li>
 </ul></div>
 

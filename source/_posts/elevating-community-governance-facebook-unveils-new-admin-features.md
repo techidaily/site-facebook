@@ -1,7 +1,7 @@
 ---
 title: "Elevating Community Governance: Facebook Unveils New Admin Features"
-date: 2024-10-14T01:14:29.227Z
-updated: 2024-10-14T23:49:00.809Z
+date: 2024-10-18T23:54:03.649Z
+updated: 2024-10-20T16:55:51.539Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -48,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -61,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -88,24 +88,22 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-guide-to-podcast-cover-design-10-core-insights/"><u>[New] In 2024, Guide to Podcast Cover Design 10 Core Insights</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-maximize-youtube-potential-leading-rank-tracker-software/"><u>[New] In 2024, Maximize YouTube Potential Leading Rank Tracker Software</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-infinite-views-looping-videos-on-your-iphone/"><u>[Updated] Infinite Views Looping Videos on Your iPhone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-streamline-your-tv-with-youtube-video-loops/"><u>2024 Approved Streamline Your TV with YouTube Video Loops</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-unleashing-time-management-mastery-with-zero-cost-clocks/"><u>2024 Approved Unleashing Time Management Mastery with Zero Cost Clocks</u></a></li>
-<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-htc-u23-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on HTC U23 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/eternal-digital-footprints-life-after-fb/"><u>Eternal Digital Footprints: Life After FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/exact-date-of-my-digital-milestone-facebook-account-creation/"><u>Exact Date of My Digital Milestone: Facebook Account Creation</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-post-in-multiple-languages-on-facebook/"><u>How to Post In Multiple Languages on Facebook</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Tecno Camon 20 | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-hot-30-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Infinix Hot 30 5G PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/iphone-troubleshooting-suite-comprehensive-guide-and-solutions-for-your-ios-device/"><u>IPhone Troubleshooting Suite: Comprehensive Guide & Solutions for Your iOS Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastodons-social-structure-unveiled/"><u>Mastodon's Social Structure Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-facebook-verification-how-vpns-evolved-and-connect-an-android-phone-to-your-tv/"><u>Meta's Facebook Verification, How VPNs Evolved, and Connect an Android Phone to Your TV</u></a></li>
-<li><a href="https://facebook.techidaily.com/reclaiming-unplanned-disconnect-from-facebook/"><u>Reclaiming Unplanned Disconnect From Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/solar-surge-fbs-operations-now-100-renewable/"><u>Solar Surge: FB's Operations Now 100% Renewable</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-fabric-redefined-why-the-metaverse-raises-concerns/"><u>The Social Fabric Redefined - Why the Metaverse Raises Concerns</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unlocking-character-potential-with-gpt-and-visionary-ai-tools/"><u>Unlocking Character Potential with GPT and Visionary AI Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/uploading-ultrahd-photos-to-your-fb-profile/"><u>Uploading UltraHD Photos to Your FB Profile</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-reducing-motion-illusion-in-vr-environments/"><u>[Updated] 2024 Approved Reducing Motion Illusion in VR Environments</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-editors-elite-gadgets-best-machines-for-screen-magic/"><u>2024 Approved Editor’s Elite Gadgets Best Machines for Screen Magic</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-job-prospects-with-these-6-facebook-tactics/"><u>Boost Your Job Prospects with These 6 Facebook Tactics</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/celestial-craftsmanship-perfecting-night-portraits-step-by-step-for-2024/"><u>Celestial Craftsmanship Perfecting Night Portraits Step-by-Step for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/diy-fixes-for-persistent-horizontal-stripes-on-computer-screens/"><u>DIY Fixes for Persistent Horizontal Stripes on Computer Screens</u></a></li>
+<li><a href="https://video-capture.techidaily.com/download-full-hd-videos-from-facebook-in-stunning-1080p-quality-a-comprehensive-tutorial/"><u>Download Full HD Videos From Facebook in Stunning 1080P Quality – A Comprehensive Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/enabling-blacked-out-interface-for-facebook-use/"><u>Enabling Blacked-Out Interface for Facebook Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-commanding-circle/"><u>Facebook's Commanding Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-poll-on-facebook-in-pages-groups-and-stories/"><u>How to Create a Poll on Facebook (in Pages, Groups, and Stories)</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-from-iphone-14-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out From iPhone 14 How to Bypass?</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-conversation-privacy-on-fb-upheld/"><u>Is Conversation Privacy on FB Upheld?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-matrix-of-multiple-social-media-connections-on-xbox/"><u>Mastering the Matrix of Multiple Social Media Connections on Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielded-social-circle-fb-privacy-guide/"><u>Shielded Social Circle: FB Privacy Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-ppro-fs-viewing/"><u>The Ultimate Guide to PPro FS Viewing</u></a></li>
+<li><a href="https://win-able.techidaily.com/top-6-solutions-to-overcome-low-fps-challenges-in-escape-from-tarkov/"><u>Top 6 Solutions to Overcome Low-FPS Challenges in Escape From Tarkov</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-social-media-presence-with-effective-backgrounds/"><u>Transform Your Social Media Presence with Effective Backgrounds</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/transforming-reality-with-ai-unleashing-a-new-era/"><u>Transforming Reality with AI: Unleashing a New Era</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Strategic Move: Facebook Allocates $5M Amidst Rising Competition From Substack"
-date: 2024-09-13T18:59:46.044Z
-updated: 2024-09-16T23:01:14.242Z
+date: 2024-10-16T16:38:49.065Z
+updated: 2024-10-20T23:13:39.146Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/d35a9f55c38e62a416cd2700848e1170978470691
 
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook's News Drive
 
  Whether Facebook can make a success of this new venture remains to be seen. The social networking giant says that it will be investing $1 billion in news over the next three years, of which this current $5 million is just a tiny percentage.
@@ -57,18 +64,26 @@ thumbnail: https://thmb.techidaily.com/d35a9f55c38e62a416cd2700848e1170978470691
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-sleeper-strikers-top-10-undetected-fb-memes/"><u>[New] 2024 Approved Sleeper Strikers Top 10 Undetected FB Memes</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-28-practical-tips-for-streaming-online-courses-on-a-budget/"><u>2024 Approved 28 Practical Tips for Streaming Online Courses on a Budget</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-infinix-note-30-pro-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Infinix Note 30 Pro Fingerprint Lock</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/choreographing-attractive-podcast-briefs/"><u>Choreographing Attractive Podcast Briefs</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-fixes-when-your-razer-man-owar-microphone-stops-working/"><u>Effective Fixes When Your Razer Man O'War Microphone Stops Working</u></a></li>
+<li><a href="https://facebook.techidaily.com/exciting-virtual-horizons-6-major-changes-ahead-for-fbs-metaverse/"><u>Exciting Virtual Horizons: 6 Major Changes Ahead for FB’s Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-judicial-committee-prepares-to-rule-on-trump-exclusion/"><u>Facebook's Judicial Committee Prepares to Rule on Trump Exclusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/fourfold-tailoring-techniques-for-a-unique-social-media-feed/"><u>Fourfold Tailoring Techniques for a Unique Social Media Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-selfie-to-story-designing-an-fb-cover-with-your-avatar/"><u>From Selfie to Story: Designing an FB Cover With Your Avatar</u></a></li>
+<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-vivo-y27-5g-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/handling-late-friends-online-presence-with-sensitivity-and-care/"><u>Handling Late Friends' Online Presence with Sensitivity and Care</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-x-flip-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo X Flip To Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-chuckle-inducing-cover-versions/"><u>In 2024, Chuckle-Inducing Cover Versions</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-interruption-the-impact-of-taking-a-step-back-online/"><u>Instagram Interruption: The Impact of Taking a Step Back Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/refusing-new-whatsapp-privacy-changes-unrestricted-feature-access/"><u>Refusing New WhatsApp Privacy Changes: Unrestricted Feature Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-void-living-without-online-spaces/"><u>Social Void: Living Without Online Spaces?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-a-profile-image-in-digital-networks/"><u>The Power of a Profile Image in Digital Networks</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-top-free-video-trimming-tools-2023-edition/"><u>Updated 2024 Approved Top Free Video Trimming Tools 2023 Edition</u></a></li>
+</ul></div>
 

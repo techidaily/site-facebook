@@ -1,7 +1,7 @@
 ---
 title: "Zen Your Feed: Eliminate Political Echo Chambranes"
-date: 2024-09-15T16:41:23.364Z
-updated: 2024-09-16T21:03:47.611Z
+date: 2024-10-17T18:52:46.803Z
+updated: 2024-10-20T23:57:25.521Z
 tags:
   - facebook
 categories:
@@ -42,9 +42,23 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 
  We've talked about[how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People
 
 ![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Did you know that Facebook lets you block articles from specific pages, groups, and people? One good way to use this is to keep an eye out for articles that annoy you. That means clickbait, politics, the works.
 
@@ -56,22 +70,16 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 
  The only thing to keep an eye out for here is that some sources are a mixed bag, and have genuine value to offer, even if they are occasionally annoying. In those cases, you're probably better off letting that source stay and using the more sophisticated strategy to get rid of these posts.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Remove Your Political Views From Your Profile
 
 ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  When you create your Facebook profile, it asks you about your political views, among other things. If you do add your views, however, Facebook uses this information to suggest political posts and ads to you. Adding this piece of information to your profile is not really necessary, unless you are affiliated with a political party, and you have to put your views on display.
 
@@ -86,10 +94,10 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You can use a browser extension called[FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
@@ -115,5 +123,26 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-smooth-transition-from-skype-to-zoom-for-better-collaboration/"><u>[New] Smooth Transition From Skype to Zoom for Better Collaboration</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-essentials-of-sims-4-gameplay-recording/"><u>[New] The Essentials of Sims 4 Gameplay Recording</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-turning-viewers-into-vendors-mastery-of-youtube-income-streams/"><u>[Updated] In 2024, Turning Viewers Into Vendors Mastery of YouTube Income Streams</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-laugh-ledger-pinpointing-prime-meme-generators/"><u>2024 Approved Laugh Ledger Pinpointing Prime Meme Generators</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/crafting-professional-edits-including-sounds-in-premiere-projects-for-2024/"><u>Crafting Professional Edits Including Sounds in Premiere Projects for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tactics-for-producing-attention-grabbing-video-stories-in-60-seconds/"><u>Essential Tactics for Producing Attention-Grabbing Video Stories in 60 Seconds</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-asus-rog-phone-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-get-behringers-professional-audio-driver-for-seamless-usb-connectivity/"><u>How to Get Behringer's Professional Audio Driver for Seamless USB Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-join-and-whats-inside-facebook-local-spots/"><u>How to Join and What's Inside Facebook Local Spots?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-tecno-spark-10-5g-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Tecno Spark 10 5G? </u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebooks-today-memory-recollection/"><u>Leveraging Facebook's Today Memory Recollection</u></a></li>
+<li><a href="https://facebook.techidaily.com/lockout-ledger-cleared-simple-steps-to-regain-fb-entry/"><u>Lockout Ledger Cleared: Simple Steps to Regain FB Entry</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-teen-fb-privacy-safeguards-a-step-by-step-guide/"><u>Mastering Teen FB Privacy Safeguards: A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-the-science-of-quantum-hdr/"><u>Mastering the Science of Quantum HDR</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-seas-of-social-medias-past-highlights/"><u>Navigating the Seas of Social Media’s Past Highlights</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-standstill-facebook-and-cos-6-hour-pause/"><u>Social Media Standstill: Facebook & Co.'s 6-Hour Pause</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-role-of-telegram-in-facebooks-down-time/"><u>Understanding the Role of Telegram in Facebook's Down-Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-covert-norms-of-online-networking-on-fb/"><u>Unveiling the Covert Norms of Online Networking on FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-select-arabic-6-insights-on-mondlys-online-platform/"><u>Why Select Arabic: 6 Insights on Mondly's Online Platform</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Football Elite Quit Twitter & Facebook for Better Mental Health
-date: 2024-09-10T22:03:40.094Z
-updated: 2024-09-16T22:14:20.899Z
+date: 2024-10-19T18:12:33.089Z
+updated: 2024-10-21T01:12:36.457Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/19529825bc864f6a7105eee056c51264b322fc80a
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -79,12 +86,21 @@ thumbnail: https://thmb.techidaily.com/19529825bc864f6a7105eee056c51264b322fc80a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-captivating-yt-cover-art-for-maximum-traffic/"><u>[New] 2024 Approved Captivating YT Cover Art for Maximum Traffic</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/1716069614405-new-in-2024-leveraging-built-in-recorders-on-mate-1020-and-p2010-series-to-screen-capture/"><u>[New] In 2024, Leveraging Built-In Recorders on Mate 10/20 & P20/10 Series to Screen Capture.</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-streamline-editing-how-to-load-music-in-inshot/"><u>[New] Streamline Editing How to Load Music in InShot</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-youtube-video-mastery-through-finalcut-pro-methods/"><u>[Updated] Unveiling YouTube Video Mastery Through FinalCut Pro Methods</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/explore-tiktoks-wonders-the-ultimate-macbook-setup/"><u>Explore TikTok's Wonders The Ultimate MacBook Setup</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-receiving-fb-message-banners/"><u>How to Stop Receiving FB Message Banners</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-google-pixel-7a-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-oppo-f23-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Oppo F23 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-telegrams-ascension-during-facebook-breakdown/"><u>Investigating Telegram’s Ascension During Facebook Breakdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-separation-in-on-this-day-stories/"><u>Maintaining Separation in On This Day Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/rapid-id-shifting-for-distinct-social-media-profiles-fb/"><u>Rapid ID Shifting for Distinct Social Media Profiles, FB</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-msmpengexe-high-cpu-usage-in-windows-11/"><u>Resolved! MsMpEng.exe High CPU Usage in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-freedom-from-fomo-top-10-reasons-why-you-shouldnt-be-tied-to-facebook/"><u>The Freedom From FOMO: Top 10 Reasons Why You Shouldn’t Be Tied to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-journey-social-medias-rising-stars/"><u>The Journey: Social Media's Rising Stars</u></a></li>
+</ul></div>
 

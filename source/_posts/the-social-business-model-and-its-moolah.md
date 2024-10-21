@@ -1,7 +1,7 @@
 ---
 title: The Social Business Model and Its Moolah
-date: 2024-09-10T22:17:28.864Z
-updated: 2024-09-16T21:01:51.678Z
+date: 2024-10-17T00:16:22.201Z
+updated: 2024-10-20T23:26:41.721Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
 
 ![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The biggest way that social networks make money is through advertising. There's a reason why the sites are designed to be addicting. The more you look, the more advertising you're exposed to.
 
  You can see it everywhere you go. Promoted posts on Reddit's front page, videos within Instagram's Stories, sponsored tweets on Twitter's timeline, and so on.
@@ -47,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
  Social media platforms charge companies money so they can advertise on their site. The exact cost of that depends on many factors. For example, companies can pay more for their advert to be seen by more people or promoted for a longer period of time.
 
  Advertising is a fine line to tread. If social media companies flood their sites with too many adverts, users will be turned off or use ad-blockers. Just the right amount and users will be more likely to see things that interest them, click through, and potentially make a purchase.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. User Data
 
@@ -74,6 +88,13 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
 
  The majority of users won't pay for these premium memberships, which is one of the reasons that the base account is free. However, for those people who are willing to pay, it makes for a good income stream for the social networks.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Transaction Fees and Virtual Products
 
 ![facebook fundraisers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-fundraisers.jpg)
@@ -85,10 +106,10 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
  Another way of making money is through virtual products. This can be seen in something like Tumblr, which charges for some blog themes. Elsewhere, Facebook used to sell "Gifts" (amusing icons that you can put on someone's profile), but it has since retired this.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Diversifying
@@ -98,19 +119,6 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
  It's why Meta owns Facebook, WhatsApp, Instagram, and Oculus. It's also why Twitter has acquired companies like Gnip, MoPub, and Periscope. Not only do they get the technologies and user data that these companies possess, but they can also use them as an additional revenue source to fund their social media platform.
 
  Diversifying goes beyond just buying other companies. For example, take the Portal. This is Facebook's video chat camera. It wants you to buy this not only to make a profit on the physical device, but also to hook you in to its ecosystem—soon you'll be using Messenger to chat to friends or Workplace to collaborate within your business. Though note, there are[concerns with Facebook Portal privacy](https://www.makeuseof.com/tag/trust-facebook-portal-privacy/) .
-
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## You Can Make Money on Social Media
 
@@ -131,5 +139,24 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-exploring-paid-tweeting-on-twitter/"><u>[New] 2024 Approved Exploring Paid Tweeting on Twitter</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-choosing-spiritual-audio-for-your-cellphone/"><u>[New] In 2024, Choosing Spiritual Audio for Your Cellphone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/roven-hashtags-for-youtube-audience-surge/"><u>[New] Proven #Hashtags for YouTube Audience Surge</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-integrate-titles-and-descriptions-into-your-youtube-video/"><u>[Updated] 2024 Approved How to Integrate Titles and Descriptions Into Your YouTube Video</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-transform-your-avi-images-from-video-to-graphics-using-filmora/"><u>[Updated] 2024 Approved Transform Your AVI Images From Video To Graphics Using Filmora</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-oneplus-open-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 OnePlus Open Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/english-sports-teams-begin-their-boycott-of-social-media/"><u>English Sports Teams Begin Their Boycott of Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-list-free-apps-elevating-your-social-presence/"><u>Exclusive List: FREE Apps Elevating Your Social Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-calls-for-caution-younger-generations-stepping-back-from-instagram/"><u>Facebook Calls for Caution: Younger Generations Stepping Back From Instagram</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixes-and-solutions-how-to-stop-dirt-5-from-crashing-on-your-windows-computer/"><u>Fixes and Solutions: How to Stop Dirt 5 From Crashing on Your Windows Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/greeting-basics-from-ni-hao-to-friendly-small-talk/"><u>Greeting Basics: From 'Ni Hao' To Friendly Small Talk</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-nirvana-discovering-the-top-20-social-sites-and-apps/"><u>Network Nirvana: Discovering the Top 20 Social Sites & Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-remedies-for-top-11-social-media-headaches-on-fb/"><u>Quick Remedies for Top 11 Social Media Headaches on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-clash-amazon-vs-social-media-group-leaders/"><u>The Clash: Amazon Vs. Social Media Group Leaders</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-importance-of-selectivity-in-facebook-friendships/"><u>The Importance of Selectivity in Facebook Friendships</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-impact-of-enabling-facebooks-browsing-archive/"><u>Understanding the Impact of Enabling Facebook’s Browsing Archive</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unlock-new-possibilities-leveraging-chatgpts-power-with-gpt-for-sheets-in-your-document-workflows/"><u>Unlock New Possibilities: Leveraging ChatGPT's Power with GPT-for-Sheets in Your Document Workflows</u></a></li>
+</ul></div>
 

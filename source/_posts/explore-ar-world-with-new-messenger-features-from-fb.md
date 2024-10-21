@@ -1,7 +1,7 @@
 ---
 title: Explore AR World with New Messenger Features From FB
-date: 2024-10-10T09:49:46.183Z
-updated: 2024-10-15T12:28:19.906Z
+date: 2024-10-13T21:30:14.310Z
+updated: 2024-10-20T17:10:23.158Z
 tags:
   - facebook
 categories:
@@ -37,16 +37,10 @@ So, what are Group Effects all about? Keep reading to find out.
  Related:[Facebook Messenger Icons and Symbols: What Do They Mean?](https://www.makeuseof.com/tag/what-do-the-different-facebook-messenger-circles-mean-and-more/)
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Facebook Messenger’s Group Effects Work
@@ -54,10 +48,10 @@ So, what are Group Effects all about? Keep reading to find out.
 ![Screenshot of messenger group effects effects on facebook blog](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Screenshot-of-messenger-AR-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  A huge shift from the platform's one-participant-at-a-time AR feature, the Group Effects feature allows you to play multiplayer games with your friends during a video call, so you can do more than just catch up.
@@ -69,10 +63,10 @@ So, what are Group Effects all about? Keep reading to find out.
  To start using Group Effects, open the Messenger app and**start a video call** or**create a room** . Tap the**smiley face icon** , and then select**Group Effects** . Now choose from the range of effects to start playing.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is Adding Dimension to Messenger Video Calls
@@ -98,18 +92,22 @@ So, what are Group Effects all about? Keep reading to find out.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-driving-income-from-views-on-youtube-for-2024/"><u>[New] Driving Income From Views on YouTube for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-entrepreneurs-guide-to-snapchat-e-commerce/"><u>[Updated] The Entrepreneur's Guide to Snapchat E-Commerce</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-realme-c53-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Realme C53</u></a></li>
-<li><a href="https://common-error.techidaily.com/easy-steps-to-resolve-right-click-issues-with-a-mouse-in-windows-10/"><u>Easy Steps to Resolve Right Click Issues with a Mouse in Windows 10</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-personalizes-mobile-transactions-eclipsing-traditional-app-store-practices/"><u>Facebook Personalizes Mobile Transactions, Eclipsing Traditional App Store Practices</u></a></li>
-<li><a href="https://facebook.techidaily.com/highlighted-happenings-bold-italic-for-impactful-talk/"><u>Highlighted Happenings: Bold, Italic for Impactful Talk</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-start-a-heart-connection-on-social-media-facebook-dating/"><u>How to Start a Heart Connection on Social Media: Facebook Dating</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-vivo-v29e-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Vivo V29e | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-flawless-online-invitation-crafting-youtube-subscription-buttons/"><u>In 2024, Flawless Online Invitation Crafting YouTube Subscription Buttons</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/mi-drone-reviewed-capturing-landscapes-in-full-resolution/"><u>MI Drone Reviewed Capturing Landscapes in Full Resolution</u></a></li>
-<li><a href="https://facebook.techidaily.com/revealing-the-hidden-loss-of-facebook-users/"><u>Revealing the Hidden Loss of Facebook Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-friend-secrets-with-messengers-polling-tools/"><u>Unlock Friend Secrets with Messenger's Polling Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-did-i-transition-from-audience-to-participant-online/"><u>When Did I Transition From Audience to Participant Online?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-get-smart-with-your-youtube-thumbnails-using-a-mac/"><u>[Updated] In 2024, Get Smart with Your YouTube Thumbnails, Using a Mac</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-pushing-boundaries-with-advanced-audacity-recording/"><u>[Updated] Pushing Boundaries with Advanced Audacity Recording</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-quick-and-clever-sharing-gifs-on-snapchat-made-simple/"><u>[Updated] Quick & Clever Sharing GIFs on Snapchat Made Simple</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-reasons-to-still-use-facebook/"><u>6 Reasons to Still Use Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/attorneys-general-demand-remove-kids-from-facebooks-instagram/"><u>Attorneys General Demand: Remove Kids From Facebook's Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/chronicling-googles-moments-that-shook-the-world/"><u>Chronicling Google's Moments That Shook the World</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-discussions-with-facebooks-innovative-group-moderation-features/"><u>Guiding Discussions with Facebook's Innovative Group Moderation Features</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-14-pro-max-to-other-iphone-12-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 14 Pro Max To Other iPhone 12 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-nubia-z50-ultra-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Nubia Z50 Ultra Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-honor-v-purse-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Honor V Purse Device</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unlocking-advanced-functionalities-of-zoom-on-windows-10/"><u>In 2024, Unlocking Advanced Functionalities of Zoom on Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/netizens-network-8-strategies-to-merge-lives-digitally/"><u>Netizen's Network: 8 Strategies to Merge Lives Digitally</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-your-marketing-with-engaging-facebook-practices/"><u>Revolutionizing Your Marketing with Engaging Facebook Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-from-news-feed-to-just-feed-on-fb/"><u>The Evolution From News Feed to Just Feed on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollowing-pathways-leaving-facebook-for-good/"><u>Unfollowing Pathways: Leaving Facebook for Good</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-free-up-space-9-best-video-compression-software-for-windows-10/"><u>Updated In 2024, Free Up Space 9 Best Video Compression Software for Windows 10</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Is Participating in FB Quizzes Risky for Privacy?
-date: 2024-10-13T00:06:34.843Z
-updated: 2024-10-14T23:18:57.453Z
+date: 2024-10-15T23:46:10.214Z
+updated: 2024-10-21T00:24:12.098Z
 tags:
   - facebook
 categories:
@@ -30,16 +30,16 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
 [The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Cybersecurity Risks of Facebook Quizzes
 
 ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
 
@@ -49,16 +49,16 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
  These quizzes are[a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What to Do if You’ve Taken Facebook Quizzes
 
  It’s natural to be concerned if you realize you may have taken a malicious Facebook quiz. If this happens, don’t panic. You can take action to protect yourself and make sure others don’t fall for the same trap.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Analyze the Quiz
 
@@ -68,6 +68,13 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Take Screenshots and Notes
 
 ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
@@ -75,19 +82,6 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 
  Screenshot or write down your answers to the quiz next. If possible, delete your quiz response from the post. In most cases, this won't be possible and information might have already been gathered before you press "Submit".
-
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Report the Scam Quiz
 
@@ -100,10 +94,10 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
  Finally,[submit a report](https://www.identitytheft.gov/#/) to the Federal Trade Commission to alert them to a potential identity theft risk. This will help protect you and others from identity theft if the quiz gave away sensitive information to a fraudster or scammer. If you have an identity protection service or insurance plan, contact those representatives, as well.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Change Your Security Question Answers
@@ -133,22 +127,20 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-breaking-through-virtual-barriers-crafting-engaging-metaverse-content/"><u>[New] Breaking Through Virtual Barriers Crafting Engaging Metaverse Content</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-concurrent-display-registration-for-2024/"><u>[New] Concurrent Display Registration for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-digital-divas-top-ten-gamers-on-youtube/"><u>[New] In 2024, Digital Divas Top Ten Gamers on YouTube</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-accessing-your-curated-music-lists-on-youtube-for-2024/"><u>[Updated] Accessing Your Curated Music Lists on Youtube for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-bridging-social-media-posting-tweets-on-fb/"><u>[Updated] Bridging Social Media Posting Tweets on FB</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-vimeo-and-youtube-a-compreayer-of-their-core-philosophies/"><u>[Updated] In 2024, Vimeo and YouTube A Compreayer of Their Core Philosophies</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-organizing-your-iphones-picture-collection-from-sorting-to-icloud-backing-up/"><u>2024 Approved Organizing Your iPhone's Picture Collection From Sorting to iCloud Backing Up</u></a></li>
-<li><a href="https://facebook.techidaily.com/explore-and-rank-your-beloved-social-sites/"><u>Explore and Rank Your Beloved Social Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-imperfections-exposed-discovering-5-times-users-faced-letdowns/"><u>Facebook's Imperfections Exposed: Discovering 5 Times Users Faced Letdowns</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-get-more-likes-and-shares-on-facebook/"><u>How to Get More Likes and Shares on Facebook</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-zte-nubia-z60-ultra-by-drfone-android/"><u>In 2024, How to Bypass FRP on ZTE Nubia Z60 Ultra?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For OnePlus Ace 2V | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/potency-in-pixels-hashtags-contribution-to-engagement-metrics-on-fb/"><u>Potency in Pixels: Hashtags' Contribution to Engagement Metrics on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-giants-defend-free-speech-in-court/"><u>Social Media Giants Defend Free Speech in Court</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-bringing-back-disappeared-facebook-statuses/"><u>The Art of Bringing Back Disappeared Facebook Statuses</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-psychology-of-engaging-social-media-stories/"><u>The Psychology of Engaging Social Media Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/upgrading-your-profile-the-ultimate-facebook-name-alteration/"><u>Upgrading Your Profile: The Ultimate Facebook Name Alteration</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-audio-recipe-converting-insta-vids-to-mp3/"><u>[New] In 2024, Audio Recipe Converting Insta Vids to Mp3</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-the-compreeved-compendium-downloading-vimeo-content-pros-way/"><u>[New] In 2024, The Compreeved Compendium Downloading Vimeo Content Pro's Way</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-top-tier-tech-a-comparison-of-the-best-9-microphone-apps/"><u>[New] Top-Tier Tech A Comparison of the Best 9 Microphone Apps</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-mastering-ringtones-on-ios-a-comprehensible-process/"><u>[Updated] In 2024, Mastering Ringtones on iOS A Comprehensible Process</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-understanding-legal-implications-for-sharing-video-content-online/"><u>[Updated] In 2024, Understanding Legal Implications for Sharing Video Content Online</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-the-mirage-of-masks-on-modern-networks/"><u>Avoiding the Mirage of Masks on Modern Networks</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-comprehensive-guide-to-editing-hauls-for-online-audiences/"><u>In 2024, The Comprehensive Guide to Editing Hauls for Online Audiences</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-decision-to-reactivate-trumps-accounts/"><u>Meta's Decision to Reactivate Trump's Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-dreamers-needed-facebook-says-yes-to-10k/"><u>Metaverse Dreamers Needed - Facebook Says Yes to 10K</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-the-functions-of-facebooks-helpers/"><u>Navigating Through the Functions of Facebook’s Helpers</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-developments-facebook-may-unbundle-giphy/"><u>New Developments: Facebook May Unbundle Giphy</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-facebook-update-integrating-reels-and-rooms-in-stories/"><u>Potential Facebook Update: Integrating Reels & Rooms in Stories</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/revealed-apples-next-gen-audio-wearable-pricing-launch-and-features-uncovered/"><u>Revealed: Apple's Next-Gen Audio Wearable - Pricing, Launch & Features Uncovered!</u></a></li>
+<li><a href="https://facebook.techidaily.com/whispers-of-innovation-facebook-and-its-stealthy-smartwatch/"><u>Whispers of Innovation: Facebook and Its Stealthy Smartwatch</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Privacy Revolution: Facebook Unveils End-to-End Encryption for Direct and Call Messages"
-date: 2024-09-14T23:56:43.395Z
-updated: 2024-09-16T20:49:20.636Z
+date: 2024-10-15T18:21:13.192Z
+updated: 2024-10-20T16:08:58.361Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/80c97e26a42ec85426e926d8a619570205ae66ef3
 
  Aside from expanding end-to-end encryption, Facebook also said that it's giving users more control over their disappearing messages. Users in the chat can choose from a wider range of times when it comes to how long it takes for new messages to disappear. You'll now be able to choose from anywhere between five seconds and 24 hours.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Adapts to Growing Security Awareness Among Users
 
  Many messaging apps, such as Signal, WhatsApp, and Telegram already use end-to-end encryption. More users are prioritizing their security, and that means limiting the communication apps they use to those that offer end-to-end encryption.
@@ -59,12 +66,26 @@ thumbnail: https://thmb.techidaily.com/80c97e26a42ec85426e926d8a619570205ae66ef3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-record-gameplay-in-samsung-galaxy-phones/"><u>[New] In 2024, Record Gameplay in Samsung Galaxy Phones</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-to-use-youtube-analytics-to-grow-your-channel-in-2024/"><u>[Updated] How to Use YouTube Analytics to Grow Your Channel, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-triumph-in-the-digital-arena-discovering-youtubes-top-five-tactics/"><u>2024 Approved Triumph in the Digital Arena - Discovering YouTube’s Top Five Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/essence-of-googles-press-milestones/"><u>Essence of Google’s Press Milestones</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-giphy-split-feasible-analyst-insights-shared-today/"><u>Facebook-Giphy Split Feasible? Analyst Insights Shared Today</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/faithful-chimes-how-to-personalize-them-for-2024/"><u>Faithful Chimes - How to Personalize Them for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-successfully-install-and-configure-llama-2-locally-at-home-or-office/"><u>How to Successfully Install and Configure LLaMA 2 Locally at Home or Office</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/machine-learning-meets-numbers-game/"><u>Machine Learning Meets Numbers Game</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-a-new-identity-altering-your-facebook-handle/"><u>Navigating a New Identity: Altering Your Facebook Handle</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-cleanup-deleting-profiles-from-facebook/"><u>Navigating Social Media Cleanup: Deleting Profiles From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/photo-to-paragraph-unveiling-facebooks-stylistic-text-conversion-ai/"><u>Photo to Paragraph: Unveiling Facebook’s Stylistic Text Conversion AI</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/seamless-video-downloads-windowsmacosandroid-2e-2023-for-2024/"><u>Seamless Video Downloads Windows/macOS/Android, 2E 2023 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-shrouded-in-ambiguity-understanding-vague-posting/"><u>Social Media Shrouded in Ambiguity: Understanding Vague Posting</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-truth-about-leveraging-ai-bots-for-windows-11-activation-codes/"><u>The Truth About Leveraging AI Bots for Windows 11 Activation Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/to-use-or-not-to-use-meta-ai-instagramfacebook-edition/"><u>To Use or Not to Use Meta AI: Instagram/Facebook Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-indirectness-the-rationale-behind-vague-blogging/"><u>Why Indirectness? The Rationale Behind Vague Blogging</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-you-shouldnt-disregard-the-six-core-uses-of-facebook-today/"><u>Why You Shouldn’t Disregard the Six Core Uses of Facebook Today</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/makemkv-dvdblu-ray/"><u>ダウンロードできるMakeMKVキー: 制限なし・無料DVD/Blu-Rayリッピング手順</u></a></li>
+</ul></div>
 

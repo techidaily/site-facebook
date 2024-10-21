@@ -1,7 +1,7 @@
 ---
 title: English Soccer Teams Are Boycotting Social Media Over Online Abuse
-date: 2024-09-09T22:52:09.396Z
-updated: 2024-09-16T19:38:35.864Z
+date: 2024-10-18T16:57:07.695Z
+updated: 2024-10-20T18:30:15.153Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/4286d1d9e7f9f222d6b24d7259e18b93ce578dc75
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -79,18 +86,23 @@ thumbnail: https://thmb.techidaily.com/4286d1d9e7f9f222d6b24d7259e18b93ce578dc75
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-getting-started-in-the-world-of-online-product-evaluation-channels/"><u>[New] Getting Started in the World of Online Product Evaluation Channels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-effortless-method-to-post-sites-on-ig-storyposts/"><u>[Updated] In 2024, Effortless Method to Post Sites on IG Story/Posts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-metaverse-memetic-mastery-tips-for-aspiring-content-creators/"><u>[Updated] Metaverse Memetic Mastery Tips for Aspiring Content Creators</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/crafted-perfection-ranking-the-best-7-stardew-mods-7/"><u>Crafted Perfection Ranking the Best 7 Stardew Mods (#7)</u></a></li>
+<li><a href="https://win-dash.techidaily.com/efficiently-updating-your-amd-radeon-rx-580-gpu-drivers-download-and-installation-tips/"><u>Efficiently Updating Your AMD Radeon RX 580 GPU Drivers – Download & Installation Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elite-economical-countdown-companions-for-2024/"><u>Elite Economical Countdown Companions for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-purpose-behind-permitting-separate-identities-under-a-single-facebook-id/"><u>Exploring the Purpose Behind Permitting Separate Identities Under a Single Facebook ID</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-touch-features-a-utility-check-up/"><u>Facebook Touch Features: A Utility Check-Up</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-perfectly-pivoted-videos-the-ultimate-android-editing-guide/"><u>In 2024, Perfectly Pivoted Videos The Ultimate Android Editing Guide</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unlocking-youtubes-potential-with-targeted-keywords/"><u>In 2024, Unlocking YouTube's Potential with Targeted Keywords</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-chat-opportunities-invite-on-facebook-messenger/"><u>Maximize Chat Opportunities: Invite on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/metatrend-trumps-social-media-revival/"><u>Metatrend: Trump's Social Media Revival</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-to-access-restricted-videos-on-fb-without-issues/"><u>Techniques to Access Restricted Videos on FB Without Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unmissable-advantages-of-using-facebook-a-list/"><u>The Unmissable Advantages of Using Facebook: A List</u></a></li>
+<li><a href="https://facebook.techidaily.com/track-vanishing-snapshots-in-facebook-messenger/"><u>Track Vanishing Snapshots in Facebook Messenger</u></a></li>
+</ul></div>
 

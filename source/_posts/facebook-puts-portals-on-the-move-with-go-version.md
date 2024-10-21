@@ -1,7 +1,7 @@
 ---
 title: Facebook Puts Portals on The Move with Go Version
-date: 2024-10-08T02:52:15.716Z
-updated: 2024-10-14T17:50:08.524Z
+date: 2024-10-18T01:32:48.788Z
+updated: 2024-10-20T18:02:44.425Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,16 @@ thumbnail: https://thmb.techidaily.com/cf530c2c593b6932cef8db0cdf4cd19063a18ed96
  For privacy, the Portal Go offers a built-in camera cover and a switch that can disable the microphone and camera.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pre-Order the Facebook Portal Go Now
@@ -56,10 +62,10 @@ thumbnail: https://thmb.techidaily.com/cf530c2c593b6932cef8db0cdf4cd19063a18ed96
  The Facebook Portal Go[retails for $199](https://portal.facebook.com/products/portal-go/) . You can preorder the device now directly from Facebook. Orders will start shipping on October 19.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## A New Way to Use Facebook Portal
@@ -83,22 +89,22 @@ thumbnail: https://thmb.techidaily.com/cf530c2c593b6932cef8db0cdf4cd19063a18ed96
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-crafting-a-compelling-pitch-products-sponsoring-youtubers/"><u>[Updated] In 2024, Crafting a Compelling Pitch Products Sponsoring Youtubers</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/discover-the-new-look-of-macx-video-converter-pro-v6-advanced-ui-full-support-for-macos-sierra-now-available/"><u>Discover the New Look of MacX Video Converter Pro V6 - Advanced UI, Full Support for macOS Sierra Now Available!</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/easy-steps-for-transforming-your-vhs-collection-into-digital-dvd-format/"><u>Easy Steps for Transforming Your VHS Collection Into Digital DVD Format</u></a></li>
-<li><a href="https://program-issues.techidaily.com/effortless-troubleshooting-guide-to-stop-ghost-recon-breakpoint-from-freezing/"><u>Effortless Troubleshooting Guide to Stop Ghost Recon Breakpoint From Freezing</u></a></li>
-<li><a href="https://facebook.techidaily.com/embracing-auditory-content-facebooks-innovative-hub/"><u>Embracing Auditory Content: Facebook's Innovative Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-considerations-before-exiting-social-spaces/"><u>Essential Considerations Before Exiting Social Spaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/exposing-the-covert-users-in-facebooks-decline/"><u>Exposing the Covert Users in Facebook's Decline</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/leveraging-ai-for-compelling-youtube-thumbnails/"><u>Leveraging AI for Compelling YouTube Thumbnails</u></a></li>
-<li><a href="https://facebook.techidaily.com/maintain-your-online-boundaries-against-unsolicited-link-ups/"><u>Maintain Your Online Boundaries Against Unsolicited Link-Ups</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/recut-pro-for-2024/"><u>PictureCut Pro for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/premier-league-withdrawal-from-social-networking-against-hate-speech/"><u>Premier League Withdrawal From Social Networking Against Hate Speech</u></a></li>
-<li><a href="https://facebook.techidaily.com/rediscovering-previous-business-networking-events-on-facebook/"><u>Rediscovering Previous Business Networking Events on Facebook</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/safeguard-data-identify-authentic-vs-duplicitous-chatbots/"><u>Safeguard Data: Identify Authentic Vs. Duplicitous ChatBots</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-puzzles-the-nature-of-vague-disclosures/"><u>Social Media Puzzles - The Nature of Vague Disclosures</u></a></li>
-<li><a href="https://win11.techidaily.com/top-7-no-cost-windows-passwords-creator-tools/"><u>Top 7 No-Cost Windows Passwords Creator Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/triggering-resurrection-of-trumps-twitter-handle/"><u>Triggering Resurrection of Trump's Twitter Handle</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-vivo-y100i-power-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Vivo Y100i Power 5G FRP Bypass</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/aptivating-cold-ideal-snowy-scenes-to-brighten-videos-for-2024/"><u>[New] Captivating Cold Ideal Snowy Scenes to Brighten Videos for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-revisiting-old-memories-how-to-upload-them-on-snapchat/"><u>[New] Revisiting Old Memories How to Upload Them on Snapchat</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unlocking-the-potential-of-snapchat-highlights/"><u>[New] Unlocking the Potential of Snapchat Highlights</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/19-cutting-edge-pos-applications-for-businesses-beyond-chatgpt/"><u>19 Cutting-Edge POS Applications for Businesses Beyond ChatGPT</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/does-instant-subscription-strategy-improve-user-engagement-for-2024/"><u>Does Instant Subscription Strategy Improve User Engagement for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/getting-canon-dr-c225-drivers-for-your-windows-operating-system-windows-11108/"><u>Getting Canon DR-C225 Drivers for Your Windows Operating System (Windows 11/10/8)</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-repair-itunesfinder-when-it-wont-detect-your-iphone/"><u>How to Repair iTunes/Finder When It Won't Detect Your iPhone</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-maestro-departs-carolyn-eversons-next-move/"><u>Marketing Maestro Departs: Carolyn Everson's Next Move</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-meta-entry-to-user-account-central/"><u>Mastering Meta: Entry to User Account Central</u></a></li>
+<li><a href="https://facebook.techidaily.com/mutual-growth-social-medias-7-societal-boosters/"><u>Mutual Growth: Social Media's 7 Societal Boosters</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-community-support-or-subversion/"><u>Online Community: Support or Subversion?</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeking-at-potential-renaming-scheme-of-facebook/"><u>Peeking at Potential Renaming Scheme of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-social-interaction-with-integrated-fb-channels/"><u>Seamless Social Interaction with Integrated FB Channels</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-samsung-galaxy-a25-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Samsung Galaxy A25 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-likers-fb-post-privacy-tips/"><u>Stealthy Likers: FB Post Privacy Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-gracefully-stepping-out-facebook-groups-exit/"><u>The Art of Gracefully Stepping Out: Facebook Groups Exit</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-ultimate-guide-to-advanced-tech-tools-for-tranquil-slumber/"><u>The Ultimate Guide to Advanced Tech Tools for Tranquil Slumber</u></a></li>
 </ul></div>
 

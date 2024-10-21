@@ -1,7 +1,7 @@
 ---
 title: "Social Network Pursues Accuracy: New FB Misinfo Penalties"
-date: 2024-10-09T20:36:09.322Z
-updated: 2024-10-14T21:28:43.825Z
+date: 2024-10-17T16:40:12.713Z
+updated: 2024-10-20T22:32:59.335Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,16 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
  This means that anyone who is friends with or follows that user will really have to dig through their News Feed in order to find that person's posts, whether they contain misinformation or not. Facebook's new penalty might be a bit extreme, but the platform clearly believes that this will put a stop to the spread of misinformation.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is Also Pushing New Notifications
@@ -48,16 +54,10 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 ![Facebook Pages misinformation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-misinformation-pages.png)
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -67,10 +67,10 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 ![Fact checker notification](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fact-checker-notification.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -78,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
  The notification also warns users that people "who repeatedly share false information might have their posts moved lower in News Feed so other people are less likely to see them." Users will then have the choice to either delete their post, or they can click a link to find out more about Facebook's fact-checking policies.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will Facebook's Strict Misinformation Policies Pay Off?
@@ -105,22 +105,24 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-complete-guide-to-record-desktop-screen-on-windows-for-free-3-ways/"><u>[New] Complete Guide to Record Desktop Screen on Windows for Free [3 Ways]</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-initiate-the-art-of-movie-making-xp-edition-for-2024/"><u>[New] Initiate the Art of Movie Making Xp Edition for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-no-frills-screensaver-windows-compatible/"><u>[Updated] 2024 Approved No Frills Screensaver - Windows Compatible</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-decipher-the-best-video-tracker-tools-for-high-impact-results-for-2024/"><u>[Updated] Decipher the Best Video Tracker Tools for High-Impact Results for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-how-to-add-music-to-facebook-profile-iphone-and-android-for-2024/"><u>[Updated] How to Add Music to Facebook Profile (iPhone & Android)？ for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/elite-ambiance-picks-for-real-time-viewers/"><u>Elite Ambiance Picks for Real-Time Viewers</u></a></li>
-<li><a href="https://facebook.techidaily.com/evaluating-feed-structure-facebooks-proposed-research-approach/"><u>Evaluating Feed Structure: Facebook's Proposed Research Approach</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-cryptocurrencys-steadfast-asset-stablecoins/"><u>Exploring Cryptocurrency's Steadfast Asset: Stablecoins</u></a></li>
-<li><a href="https://techidaily.com/how-do-i-reset-my-poco-m6-pro-4g-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Poco M6 Pro 4G Phone without technical knowledge? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/multi-device-whatsapp-features-approved-by-mark/"><u>Multi-Device WhatsApp Features Approved by Mark</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/overcoming-the-challenge-of-unseen-graphics/"><u>Overcoming the Challenge of Unseen Graphics</u></a></li>
-<li><a href="https://facebook.techidaily.com/quick-response-apps-10-lightweight-android-stars/"><u>Quick-Response Apps: 10 Lightweight Android Stars</u></a></li>
-<li><a href="https://facebook.techidaily.com/ray-bans-unveiled-on-facebook-features-and-pricing/"><u>Ray-Bans Unveiled on Facebook: Features & Pricing</u></a></li>
-<li><a href="https://facebook.techidaily.com/recover-a-frozen-facebook-session-quickly/"><u>Recover a Frozen Facebook Session Quickly</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-for-overcoming-a-denied-login-on-facebook/"><u>Steps for Overcoming a Denied Login on Facebook</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/using-chatgpt-over-vpn-does-it-enhance-privacy-and-access/"><u>Using ChatGPT Over VPN – Does It Enhance Privacy And Access?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-are-these-certain-online-advertisements-for-me/"><u>Why Are These Certain Online Advertisements For Me?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-one-step-shot-simplify-podcast-streaming/"><u>[New] 2024 Approved One Step Shot Simplify Podcast Streaming</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-clear-and-concise-guide-to-easy-screen-capture-techniques/"><u>[New] Clear & Concise Guide to Easy Screen Capture Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-revolutionize-your-facebook-presence-with-these-10-strategies/"><u>[New] In 2024, Revolutionize Your Facebook Presence with These 10 Strategies</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-one-step-guide-for-sharing-tiktok-videos-on-facebook/"><u>[New] One-Step Guide for Sharing TikTok Videos on Facebook</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-cutting-edge-studio-lights-for-online-filmmakers/"><u>[Updated] 2024 Approved Cutting-Edge Studio Lights for Online Filmmakers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/a-comprehensive-guide-6-critical-aspects-when-leveraging-chatgpt-in-therapy/"><u>A Comprehensive Guide: 6 Critical Aspects When Leveraging ChatGPT in Therapy</u></a></li>
+<li><a href="https://facebook.techidaily.com/americas-stance-on-networking-harmful-impact/"><u>America's Stance on Networking: Harmful Impact</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-oppo-reno-11f-5g-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Oppo Reno 11F 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-hearts-online-facebooks-pioneering-dating-innovations/"><u>Connecting Hearts Online: Facebook’s Pioneering Dating Innovations</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/cross-platform-filmography-syncing-smartphones-and-systems/"><u>Cross-Platform Filmography Syncing Smartphones and Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/dial-down-the-intensity-of-targeted-advertisement-screens/"><u>Dial Down the Intensity of Targeted Advertisement Screens</u></a></li>
+<li><a href="https://facebook.techidaily.com/expedited-transition-tactics-for-facebook-user-accounts/"><u>Expedited Transition Tactics for Facebook User Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-in-standstill-heres-how-to-get-it-moving-again/"><u>Facebook in Standstill? Here’s How to Get It Moving Again</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-stolen-apple-iphone-8-in-different-conditionsin-drfone-by-drfone-ios/"><u>How To Unlock Stolen Apple iPhone 8 In Different Conditionsin | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-tecno-spark-go-2023-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Tecno Spark Go (2023) via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-breaks-tradition-whatsapp-delivers-2fa-codes/"><u>Instagram Breaks Tradition: WhatsApp Delivers 2FA Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-new-password-implementation-on-facebook/"><u>Instructions: New Password Implementation on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-cannot-log-in-to-your-facebook-profile/"><u>Troubleshooting: Cannot Log In to Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-your-audience-for-effective-social-media-marketing/"><u>Understanding Your Audience for Effective Social Media Marketing</u></a></li>
 </ul></div>
 

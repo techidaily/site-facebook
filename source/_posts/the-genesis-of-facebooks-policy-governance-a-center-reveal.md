@@ -1,7 +1,7 @@
 ---
 title: "The Genesis of Facebook’s Policy Governance: A Center Reveal"
-date: 2024-09-12T20:45:49.026Z
-updated: 2024-09-16T22:22:25.985Z
+date: 2024-10-17T19:19:57.159Z
+updated: 2024-10-20T22:23:33.478Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/7c98b3aa443d56db5acb03366d8aa2c1ee75e1644
 
  A spokesperson for Facebook said "We’ll continue to add more information and build out the Transparency Center as our integrity efforts continue to evolve". From this, it seems clear that Facebook is taking the Center seriously and will continue to update it over time.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook's New Focus on Transparency
 
  With the release of the Transparency Center, it appears that Facebook has a new focus on transparency and is taking it seriously.
@@ -59,18 +66,20 @@ thumbnail: https://thmb.techidaily.com/7c98b3aa443d56db5acb03366d8aa2c1ee75e1644
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-harness-the-web-to-preserve-and-share-live-music-sounds/"><u>[New] 2024 Approved Harness the Web to Preserve and Share Live Music Sounds</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-pc-games-memory-freeze-and-capture-6-ways-to-win/"><u>[New] 2024 Approved PC Games Memory - Freeze and Capture 6 Ways to Win</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-no-smudges-on-screens-keeping-your-gopro-crisp/"><u>[Updated] No Smudges on Screens Keeping Your GoPro Crisp</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-oppo-find-n3-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Oppo Find N3? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/ace-your-pcs-problems-4-top-pct-strategies/"><u>Ace Your PC's Problems: 4 Top PCT Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/bridging-gaps-in-dialogue-techniques-for-smooth-editing-with-garageband/"><u>Bridging Gaps in Dialogue Techniques for Smooth Editing with GarageBand</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-infinix-smart-8-pro-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Infinix Smart 8 Pro phone? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-business-focused-content-tailoring-on-facebook/"><u>Introducing Business-Focused Content Tailoring on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-facebook-integrated-apps-and-sites/"><u>Navigating the Maze of Facebook-Integrated Apps and Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-quagmire-of-irksome-online-promotions/"><u>Navigating the Quagmire of Irksome Online Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/poll-indicates-growing-distrust-in-technology-leaders-with-facebook-worst-hit/"><u>Poll Indicates Growing Distrust in Technology Leaders, with Facebook Worst Hit</u></a></li>
+<li><a href="https://facebook.techidaily.com/respect-in-relationships-navigating-facebook-humor/"><u>Respect in Relationships: Navigating Facebook Humor</u></a></li>
+<li><a href="https://facebook.techidaily.com/trend-spotting-hacked-user-habits-drive-oculus-quest-sales/"><u>Trend Spotting: Hacked User Habits Drive Oculus Quest Sales</u></a></li>
+</ul></div>
 

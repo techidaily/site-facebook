@@ -1,7 +1,7 @@
 ---
 title: "Social Media Sanctuary: Why Instagram Encourages Digital Disengagement"
-date: 2024-10-09T16:21:27.438Z
-updated: 2024-10-14T21:55:21.457Z
+date: 2024-10-19T23:57:02.333Z
+updated: 2024-10-20T16:11:19.680Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092c
  Mosseri says the Take a Break feature will be tested with a handful of users, with plans to roll it out in December 2021.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Instagram Wants You to "Take a Break"
@@ -62,10 +62,10 @@ thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092c
  Meta’s Global Head of Security Antigone Davis also mentioned Instagram’s Take a Break feature in a Senate hearing over teen mental health back in September. At the hearing, Davis said the company aims to improve younger users' experience on the app by encouraging them to stop browsing after they'd been browsing too long.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will Instagram's Opt-In Feature Be Effective?
@@ -91,22 +91,14 @@ thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-mind-matters-top-educational-youtube-picks/"><u>[Updated] 2024 Approved Mind Matters Top Educational YouTube Picks</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-the-top-10-screenshot-tools-of-2021/"><u>[Updated] In 2024, The Top 10 Screenshot Tools of 2021</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-ultimate-blueprint-for-memetic-virality/"><u>[Updated] In 2024, The Ultimate Blueprint for Memetic Virality</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/assessing-cloud-price-trends-and-economical-alternatives/"><u>Assessing Cloud Price Trends & Economical Alternatives</u></a></li>
-<li><a href="https://win-blog.techidaily.com/complete-solution-for-cod-black-ops-cold-war-starting-issues-in-windows-gaming/"><u>Complete Solution for Cod: Black Ops Cold War Starting Issues in Windows Gaming</u></a></li>
-<li><a href="https://facebook.techidaily.com/gain-access-to-your-dormant-facebook-account/"><u>Gain Access to Your Dormant Facebook Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-unlock-account-without-mobile-after-theft/"><u>How to Unlock Account Without Mobile After Theft</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-from-video-content-to-cash-flow-youtubes-profit-mechanics/"><u>In 2024, From Video Content to Cash Flow YouTube's Profit Mechanics</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-revolutionize-tech-connectivity-top-free-speech-conversion-tools-for-macos/"><u>In 2024, Revolutionize Tech Connectivity Top Free Speech Conversion Tools for MacOS</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-the-silence-of-social-networks/"><u>Navigating Through the Silence of Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/one-voice-many-hearts-mentioning-full-groups-online/"><u>One Voice, Many Hearts: Mentioning Full Groups Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/resist-the-data-grabbing-from-facebook/"><u>Resist the Data Grabbing From Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-and-savvy-mastering-the-art-of-safe-facebook-trading/"><u>Secure and Savvy: Mastering the Art of Safe Facebook Trading</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotlight-your-vacancies-a-facebook-technique/"><u>Spotlight Your Vacancies: A Facebook Technique</u></a></li>
-<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-vivo-v30-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Vivo V30 | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/king-the-code-to-content-creator-commerce-with-carminati-ajay/"><u>Unlocking the Code to Content Creator Commerce with Carminati (AJay)</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtuality-unveiled-what-is-the-metaverse/"><u>Virtuality Unveiled: What Is the Metaverse?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-perfecting-the-instagram-story-format-with-youtube-integration/"><u>2024 Approved Perfecting the Instagram Story Format with YouTube Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/breach-resetting-oculus-q2-sales-soar-amongst-facebookers/"><u>Breach Resetting - Oculus Q2 Sales Soar Amongst Facebookers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effortlessly-elevate-your-ai-experience-free-powerful-and-smart-with-gpt-4-and-copilot/"><u>Effortlessly Elevate Your AI Experience: Free, Powerful and Smart with GPT-4 & Copilot</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-your-digital-world-identifying-fb-breaches/"><u>Guard Your Digital World: Identifying FB Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonizing-your-hands-on-gaming-and-online-connectivity-on-xbox/"><u>Harmonizing Your Hands-On Gaming and Online Connectivity on Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-facebooks-transparency-center-to-understand-the-social-network-better/"><u>How to Use Facebook's Transparency Center to Understand the Social Network Better</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Realme 10T 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/reinvent-storytelling-the-path-to-better-narratives-starts-here/"><u>Reinvent Storytelling – The Path to Better Narratives Starts Here</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/transform-your-copy-with-strategic-slug-line-usage/"><u>Transform Your Copy with Strategic Slug Line Usage</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Intentionally Decreasing Social Media Intake for Better Focus
-date: 2024-09-13T23:55:56.800Z
-updated: 2024-09-16T18:35:03.151Z
+date: 2024-10-17T00:56:26.006Z
+updated: 2024-10-20T21:06:29.089Z
 tags:
   - facebook
 categories:
@@ -48,29 +48,44 @@ Close
 
 Close
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Optimize Your Notification Settings
 
  In the same section of**Manage Your Time** , you can click on**Manage Your Notifications.** Options will open up for you to choose which notifications you want to receive. You'll be able to choose comments, tags, reminders, updates from friends, friend requests, as well as events and other promotions you wish (or don't wish) to be notified of.
 
  When you're finished making your selection, your feed will be optimized to your preferences, and you'll receive fewer distractions. This will hopefully lead to you spending less time on the app.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Use Apps to Limit Your Social Media Use
 
 ![Woman using Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Woman-using-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you are still having trouble staying off Facebook, there is software available, such as apps and plugins that control how much time you are spending on social media. You just have to find the one that works for you and install it on your devices.
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## If Nothing Works, Deactivate or Delete Facebook
@@ -90,5 +105,23 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/1716069539863-new-in-2024-get-savvy-with-chromebook-snaps-explore-these-4-methods/"><u>[New] In 2024, Get Savvy with Chromebook Snaps - Explore These 4 Methods!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-making-a-statement-standout-content-via-fb-slideshows/"><u>[New] In 2024, Making a Statement Standout Content via FB Slideshows</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-uniting-conversations-across-platforms-twitter-vids-on-whatsapp/"><u>2024 Approved Uniting Conversations Across Platforms Twitter Vids on WhatsApp</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/deactivate-or-delete-mastering-account-termination-on-chatgpt-platforms/"><u>Deactivate or Delete: Mastering Account Termination on ChatGPT Platforms</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/empowering-aesthetics-activating-color-management-in-win11/"><u>Empowering Aesthetics: Activating Color Management in Win11</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-facebooks-social-media-experience-expect-more-in-stories/"><u>Enhancing Facebook's Social Media Experience? Expect More in Stories</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-15-plus-3-ways-to-unlock-by-drfone-ios/"><u>How To Unlock iPhone 15 Plus 3 Ways To Unlock</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-beat-the-hurdle-best-video-extractors-for-your-iphoneipad-from-fb/"><u>In 2024, Beat the Hurdle Best Video Extractors for Your iPhone/iPad From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-complex-web-of-group-sharing-on-facebook/"><u>Navigating the Complex Web of Group Sharing on Facebook</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-unleash-your-creativity-top-20-free-adobe-premiere-title-templates/"><u>New In 2024, Unleash Your Creativity Top 20 Free Adobe Premiere Title Templates</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-pricing-spikes-as-facebook-users-purchase-for-security/"><u>Oculus Pricing Spikes as Facebook Users Purchase for Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/off-the-grid-the-changes-in-quitting-social-networks/"><u>Off the Grid: The Changes in Quitting Social Networks</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/outdated-or-not-does-gpt-writeups-for-students/"><u>Outdated or Not: Does GPT Writeups for Students?</u></a></li>
+<li><a href="https://facebook.techidaily.com/pinpointing-unfriended-individuals-on-facebook/"><u>Pinpointing Unfriended Individuals on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-your-fb-block-list-a-guide/"><u>Uncovering Your FB Block List: A Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-content-distribution-via-hashtags-on-a-popular-social-media-site-like-facebook/"><u>Understanding Content Distribution via Hashtags on a Popular Social Media Site Like Facebook</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Ensuring Authenticity: Tech Giants' Obligation to Remove Deceptive Advertising"
-date: 2024-09-11T17:17:39.851Z
-updated: 2024-09-16T17:43:37.495Z
+date: 2024-10-19T21:13:23.079Z
+updated: 2024-10-20T17:17:09.598Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,19 @@ Adam French, Consumer Rights Expert at Which?, said:
 
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Response by Facebook and Google
 
 Facebook and Google both responded to the report by Which?
@@ -69,12 +82,18 @@ Facebook further stated:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-correct-fb-chat-display-revealed-as-yourself/"><u>[New] In 2024, Correct FB Chat Display Revealed as Yourself</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-who-unfollowed-you-quick-guide/"><u>[New] Instagram Who Unfollowed You? Quick Guide</u></a></li>
+<li><a href="https://win-top.techidaily.com/enhancing-email-marketing-success-mastering-unique-address-management-with-massmails-advanced-cleanup-features/"><u>Enhancing Email Marketing Success: Mastering Unique Address Management with MassMail's Advanced Cleanup Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/envisioning-an-era-where-fb-brings-businesses-to-your-doorstep/"><u>Envisioning an Era Where FB Brings Businesses to Your Doorstep</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-poco-c55-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Poco C55? | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-free-wmv-video-merger-software-top-picks/"><u>In 2024, Free WMV Video Merger Software Top Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-page-disconnection-on-facebook/"><u>Mastering Page Disconnection on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/slowdown-at-social-media-governing-body-for-trump/"><u>Slowdown at Social Media Governing Body for Trump</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-antitrust-war-deconstructing-tech-giants-monopolies/"><u>The Antitrust War: Deconstructing Tech Giants' Monopolies</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-next-evolution-exploring-facebooks-vr-frontier/"><u>The Next Evolution: Exploring Facebook's VR Frontier</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/vivo-v29e-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Vivo V29e ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+</ul></div>
 

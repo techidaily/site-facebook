@@ -1,7 +1,7 @@
 ---
 title: Facebook & Google Face the Call for Greater Regulation Against Fraudulent Ads
-date: 2024-09-13T16:04:38.383Z
-updated: 2024-09-16T17:27:49.232Z
+date: 2024-10-19T16:40:21.557Z
+updated: 2024-10-20T16:42:37.069Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,19 @@ Adam French, Consumer Rights Expert at Which?, said:
 
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Response by Facebook and Google
 
 Facebook and Google both responded to the report by Which?
@@ -69,12 +82,26 @@ Facebook further stated:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-begin-a-new-era-of-editing-with-xps-video-suite/"><u>[New] In 2024, Begin a New Era of Editing with Xp's Video Suite</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/complete-narrative-what-is-google-podcast-in-2024/"><u>Complete Narrative What Is Google Podcast, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-crowdflower-tech-for-enhanced-analytics/"><u>Essential CrowdFlower Tech for Enhanced Analytics</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-tap-and-swipe-are-they-revolutionary/"><u>Facebook's Tap and Swipe: Are They Revolutionary?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/fix-successful-non-operational-obs-camera/"><u>Fix Successful Non-Operational OBS Camera</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/masterful-crypto-communication-top-10-gpt-powered-conversation-starters/"><u>Masterful Crypto Communication: Top 10 GPT-Powered Conversation Starters</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-facebook-interaction-when-to-follow-when-not-to-unfollow/"><u>Maximizing Facebook Interaction: When to Follow, When Not To Unfollow</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-sonic-landscape-of-modern-chats-on-fb/"><u>Navigating the Sonic Landscape of Modern Chats on FB</u></a></li>
+<li><a href="https://extra-information.techidaily.com/optimal-filter-pack-for-oceanic-video-shooting/"><u>Optimal Filter Pack for Oceanic Video Shooting</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-blocked-security-codes-on-facebook-sign-ins/"><u>Overcoming Blocked Security Codes on Facebook Sign-Ins</u></a></li>
+<li><a href="https://facebook.techidaily.com/report-facebook-and-google-should-do-more-to-remove-scam-ads/"><u>Report: Facebook and Google Should Do More to Remove Scam Ads</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-up-youtube-your-first-gear-list-for-2024/"><u>Starting Up YouTube - Your First Gear List for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-for-truth-on-platforms-during-a-global-crisis/"><u>The Battle for Truth on Platforms During a Global Crisis</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-matchmaker-how-facebooks-new-features-are-shaping-relationships/"><u>The Social Media Matchmaker: How Facebook's New Features Are Shaping Relationships</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-vivo-y36i-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Vivo Y36i Location | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-your-social-media-experience-with-todays-feature/"><u>Transforming Your Social Media Experience with Today’s Feature</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-guide-charging-your-playstation-5-dualsense-console-controller/"><u>Troubleshooting Guide: Charging Your PlayStation 5 DualSense Console Controller</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/tune-up-your-viewing-experience-netflix-speeds/"><u>Tune-Up Your Viewing Experience - Netflix Speeds</u></a></li>
+</ul></div>
 

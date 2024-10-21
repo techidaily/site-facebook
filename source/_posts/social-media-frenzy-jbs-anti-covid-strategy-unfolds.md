@@ -1,7 +1,7 @@
 ---
 title: "Social Media Frenzy: JB's Anti-COVID Strategy Unfolds"
-date: 2024-09-12T20:28:56.016Z
-updated: 2024-09-16T16:39:48.053Z
+date: 2024-10-14T22:57:35.391Z
+updated: 2024-10-20T22:46:41.347Z
 tags:
   - facebook
 categories:
@@ -42,11 +42,25 @@ thumbnail: https://thmb.techidaily.com/3e64ab7fbedf01adf094c0f7a07b62ec8466f9370
 
  Biden will film a direct-to-camera public service announcement that'll be spread across digital platforms, while vice president Kamala Harris will take part in social media publicity—which includes an interview with weekly newspaper[Carolina Peacemaker](http://www.peacemakeronline.com/) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Social Media Against COVID-19
 
  Recently,[Facebook made it easier to find yourself a COVID-19 vaccine](https://www.makeuseof.com/facebook-makes-easier-find-covid-19-vaccine/) if you live in the US. Before that, the platform[launched new profile frames](https://www.makeuseof.com/facebooks-latest-profile-frames-encourage-friends-get-covid-19-vaccines/) in support of the vaccines, and even[froze the page of the Venezuelan president](https://www.makeuseof.com/facebook-freezes-president-maduro-page-fake-covid-cure/) because he promoted a false "miracle cure."
 
 ![Facebook Twitter Russian Trolls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/09/facebook-twitter-russian-trolls.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: Pixabay/Pexels
 
@@ -67,12 +81,23 @@ thumbnail: https://thmb.techidaily.com/3e64ab7fbedf01adf094c0f7a07b62ec8466f9370
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/aunch-your-athletic-channel-step-by-step-guide-on-mac-os/"><u>[New] Launch Your Athletic Channel Step by Step Guide on Mac OS</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-prime-binge-worthy-hits-highest-tweets-and-view-counts/"><u>[Updated] Prime Binge-Worthy Hits Highest Tweets & View Counts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-video-capture-crusade-obs-vs-shadowcast/"><u>2024 Approved Video Capture Crusade OBS Vs ShadowCast</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-samsung-galaxy-s24plus-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Samsung Galaxy S24+ Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-revenue-at-risk-amidst-tiktoks-soaring-numbers/"><u>Facebook's Revenue at Risk Amidst TikTok's Soaring Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-on-fixing-the-stutter-in-fb-notifications/"><u>Guidelines on Fixing the Stutter in FB Notifications</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-nokia-xr21-to-mac-drfone-by-drfone-android/"><u>How to Mirror Nokia XR21 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-will-transparency-affect-your-digital-interactions/"><u>How Will Transparency Affect Your Digital Interactions?</u></a></li>
+<li><a href="https://facebook.techidaily.com/ignite-community-effective-ways-to-amplify-facebook-conversations/"><u>Ignite Community: Effective Ways to Amplify Facebook Conversations</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-depth-look-at-srt-knowledge-for-all-levels-for-2024/"><u>In-Depth Look at SRT Knowledge for All Levels for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ating-the-undisclosed-terrain-of-youtube-archives/"><u>Navigating the Undisclosed Terrain of YouTube Archives</u></a></li>
+<li><a href="https://change-location.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Vivo Y77t? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-bedrock-of-bitcoins-ecosystem-decoding-stablecoins/"><u>The Bedrock of Bitcoin's Ecosystem: Decoding Stablecoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-seeks-justice-against-g-f-t-for-censorship-claims/"><u>Trump Seeks Justice Against G-F-T for Censorship Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-not-everyone-is-still-checking-into-fb-today/"><u>Why Not Everyone Is Still Checking Into FB Today</u></a></li>
+</ul></div>
 

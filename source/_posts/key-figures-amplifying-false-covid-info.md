@@ -1,7 +1,7 @@
 ---
 title: Key Figures Amplifying False Covid Info
-date: 2024-09-13T23:02:54.609Z
-updated: 2024-09-16T22:24:41.138Z
+date: 2024-10-19T23:06:12.049Z
+updated: 2024-10-21T00:35:07.727Z
 tags:
   - facebook
 categories:
@@ -45,6 +45,13 @@ But what if, in reality, there are only 12 prime suspects?
 
  Even though the Disinformation Dozen has reportedly violated the Facebook, Instagram, and Twitter terms of service agreements on numerous occasions, only three of the 12 influencers have been removed from just one platform.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Are Social Media Platforms Doing Enough to Fight Misinformation?
 
  The CCDH says that the best way to combat the spread of harmful information is to de-platform repeat offenders that have big audiences. Have Facebook, Instagram, and Twitter been doing that? Well... kind of.
@@ -70,12 +77,17 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-what-are-luts-and-how-they-change-your-photo/"><u>[New] 2024 Approved What Are LUTs and How They Change Your Photo</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-quick-tips-for-posting-videos-on-instagram-for-2024/"><u>[New] Quick Tips for Posting Videos on Instagram for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/diy-programming-secrets-from-the-experts-at-stellar-your-ultimate-software-guidebook/"><u>DIY Programming Secrets From the Experts at Stellar - Your Ultimate Software Guidebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/identity-impersonation-unraveling-fb-scam-mechanics/"><u>Identity Impersonation: Unraveling FB Scam Mechanics</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-oppo-find-x7-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Oppo Find X7?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-xiaomi-redmi-note-12t-pro-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Xiaomi Redmi Note 12T Pro FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://facebook.techidaily.com/less-online-more-authentic-the-social-disconnect-experience/"><u>Less Online, More Authentic: The Social Disconnect Experience</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/nvidia-geforce-gaming-drivers-download-and-install-for-windows-11-and-10/"><u>NVIDIA GeForce Gaming Drivers: Download & Install for Windows 11 and 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-etiquette-101-social-media-disclosure-dos-and-donts/"><u>Online Etiquette 101: Social Media Disclosure Dos & Don'ts</u></a></li>
+<li><a href="https://facebook.techidaily.com/revitalize-the-silent-sphere-reactivating-facebook/"><u>Revitalize the Silent Sphere: Reactivating Facebook</u></a></li>
+</ul></div>
 

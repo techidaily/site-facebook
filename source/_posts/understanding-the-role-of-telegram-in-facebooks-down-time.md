@@ -1,7 +1,7 @@
 ---
 title: Understanding the Role of Telegram in Facebook's Down-Time
-date: 2024-10-13T16:27:01.962Z
-updated: 2024-10-20T21:48:51.847Z
+date: 2024-10-25T18:09:59.852Z
+updated: 2024-10-26T17:37:19.617Z
 tags:
   - facebook
 categories:
@@ -36,15 +36,28 @@ thumbnail: https://thmb.techidaily.com/cd6606343976e20cf388b00d45efaf1c0dc2657ac
 
 But why did Telegram benefit so much more than any of its rivals?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Did People Choose Telegram When WhatsApp Went Down?
 
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
@@ -54,10 +67,10 @@ But why did Telegram benefit so much more than any of its rivals?
  All of these features have helped it become the de facto number two behind WhatsApp in many people's minds, so installing it during a time of crisis was a no-brainer.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Important Is This for Telegram?
@@ -72,13 +85,6 @@ But why did Telegram benefit so much more than any of its rivals?
 
  It is arguably the first time that any WhatsApp competitor has been able to make that claim, and it suddenly makes the Facebook-owned app's hegemony look a lot less secure.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## It Wasn't All Perfect for Telegram
 
  While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In[a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
@@ -92,10 +98,10 @@ But why did Telegram benefit so much more than any of its rivals?
  Breaking WhatsApp's dominance is already a herculean task. If Telegram's app is not functioning when people need it, the progress it has been enjoying recently could be irrevocably damaged.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can Telegram Continue Its Momentous Rise?
@@ -119,17 +125,18 @@ But why did Telegram benefit so much more than any of its rivals?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/updated-altering-articulations-in-free-fire-arena/"><u>[Updated] Altering Articulations in Free Fire Arena</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-samsung-galaxy-s23-fe-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Samsung Galaxy S23 FE | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/dive-into-technology-with-toms-hardware-haven/"><u>Dive Into Technology with Tom's Hardware Haven</u></a></li>
-<li><a href="https://facebook.techidaily.com/echoes-of-anonymity-permanently-retiring-from-facebook/"><u>Echoes of Anonymity: Permanently Retiring From Facebook</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/finding-ev-chargers-on-google-maps-a-comprehensive-guide/"><u>Finding EV Chargers on Google Maps: A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/imminent-facebook-upgrade-introducing-reels-and-rooms-to-stories/"><u>Imminent Facebook Upgrade: Introducing Reels and Rooms to Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/pause-in-process-facebooks-governing-body-on-trump/"><u>Pause in Process: Facebook's Governing Body on Trump</u></a></li>
-<li><a href="https://facebook.techidaily.com/speak-stylized-not-bulk-essential-smart-words-for-effective-communication/"><u>Speak Stylized, Not Bulk: Essential SMART Words for Effective Communication</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-guide-downloading-and-setting-up-usb-c-drivers-in-windows-11/"><u>Step-by-Step Guide: Downloading and Setting Up USB-C Drivers in Windows 11</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-art-of-gentle-audio-dampening-on-lumafusion-platforms-for-2024/"><u>The Art of Gentle Audio Dampening on Lumafusion Platforms for 2024</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/updated-best-video-translator-app-for-pc-you-cannot-miss-for-2024/"><u>Updated Best Video Translator App for PC You Cannot Miss for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-privacy-at-risk-detecting-facebook-hacks-early/"><u>Your Privacy at Risk? Detecting Facebook Hacks Early</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/can-ai-language-models-like-chatgpt-contribute-to-creating-harmful-programs/"><u>Can AI Language Models Like ChatGPT Contribute to Creating Harmful Programs?</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-rules-through-the-lens-of-its-new-center/"><u>Decoding Facebook's Rules Through the Lens of Its New Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-your-social-media-identity-icon/"><u>Designing Your Social Media Identity Icon</u></a></li>
+<li><a href="https://facebook.techidaily.com/despite-ban-facebook-celebrates-its-vaccine-dissenters/"><u>Despite Ban, Facebook Celebrates Its Vaccine Dissenters</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnecting-from-facebook-android-instructions/"><u>Disconnecting From Facebook (Android) Instructions</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-facebooks-matchmaking-portal-initiation-steps/"><u>Discovering Facebook's Matchmaking Portal: Initiation Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-facebook-observation-via-off-fb-workflow/"><u>Dismantling Facebook Observation via Off-FB Workflow</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-solutions-getting-your-hyperx-cloud-stinger-microphone-back-in-action/"><u>Expert Solutions: Getting Your HyperX Cloud Stinger Microphone Back in Action</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-nokia-c12-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Nokia C12 FRP</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-revolutionizing-podcast-branding-with-ai-naming-generators/"><u>In 2024, Revolutionizing Podcast Branding with AI Naming Generators</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-vivo-y100a-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Vivo Y100A | Dr.fone</u></a></li>
 </ul></div>
 

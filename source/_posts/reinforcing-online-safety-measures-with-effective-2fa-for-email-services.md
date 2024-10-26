@@ -1,7 +1,7 @@
 ---
 title: Reinforcing Online Safety Measures with Effective 2FA for Email Services
-date: 2024-10-14T21:30:02.147Z
-updated: 2024-10-20T17:36:16.986Z
+date: 2024-10-25T20:17:31.349Z
+updated: 2024-10-26T20:17:55.729Z
 tags:
   - facebook
 categories:
@@ -41,10 +41,10 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 ![google 2fa second device prompt message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-second-device-prompt-message.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The first is through the newer Google Prompt system. Instead of sending a one-time code, you receive a Google Prompt on your separate device. You simply unlock your phone and tap**Yes** to unlock your account.
@@ -54,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 ![google 2fa options list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-options-list.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Once you accept the Google Prompt, you will meet another screen asking if you want to turn on 2-Step Verification. (Some users may meet a screen asking them to confirm their mobile number using an SMS; do this, then continue.) Select**Turn On** .
@@ -65,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 ### Authenticator App
 
 ![google 2fa authenticator options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-authenticator-options.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Some users may prefer to use a different 2FA system. One such option is the Google Authenticator app. The Authenticator app generates a six-digit code for you to log into your account, but you must have your phone with you for the system to work.
 
@@ -82,6 +89,13 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
 ![microsoft outlook two factor auth settings-1](<https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/microsoft> outlook two factor auth settings-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  In this instance, you are looking at Microsoft's Outlook.com service rather than the desktop Outlook client. The Outlook desktop client has other forms of security,[such as password-protecting your Outlook PST file](https://www.makeuseof.com/tag/tricks-outlook-microsoft-account-secure/) . However, 2FA isn't currently available.
 
  To lock down your Outlook.com account, visit[your Microsoft account page](https://redirect.viglink.com?key=0d8d9af05d1abe663696ac39935d3f6b&u=https%3A%2F%2Faccount.microsoft.com%2Faccount%2FAccount) , select the**Security** tab, followed by**Advanced** **Security Options** . Under the**Two-step Verification** header, select**Turn on two-step verification** , then hit**Next** to proceed.
@@ -92,18 +106,18 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
 **Note:** There are[other excellent 2FA authentication apps](https://www.makeuseof.com/tag/5-best-alternatives-google-authenticator/) out there.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set Up 2FA on Apple and iCloud
 
  Apple's 2FA is very Apple-centric. In that, you won't be using the Google Authenticator app or any other app for that matter. That said, the Apple 2FA process works very well and only takes a moment or two to set up.
 
  The process for turning 2FA on is different for a Mac or an iDevice. Head to this short MakeUseOf[guide to protecting your Apple account with 2FA](https://www.makeuseof.com/tag/apple-two-factor-authentication/) for full details.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Set Up 2FA on Facebook
 
@@ -115,6 +129,13 @@ Locking your Facebook account is as important as your email address.
 
  You can use the Google Authenticator app from the other sections in this article. Just scan the QR code and follow the Facebook instructions. Alternatively, enter your phone number, wait for the activation code to arrive, and follow the Facebook instructions. The security key option requires[a hardware security key](https://www.makeuseof.com/best-hardware-security-keys/) .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Twitter
 
 ![twitter two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/twitter-two-factor-auth-settings.jpg)
@@ -124,13 +145,6 @@ Locking your Facebook account is as important as your email address.
  Head to your[Twitter account settings](https://twitter.com/settings/account) , then under the**Security** header, select**Login Verification** . You can turn on SMS 2FA by entering your phone number and then entering the code. If your Twitter account isn't already using SMS verification, you must turn this on before enabling a third-party authentication app.
 
  Once you turn on Login Verification, head back to the same menu and select**Review your login verification methods** , then select**Mobile security app > Set up** . Scan the QR code using the Authenticator app and follow the Twitter instructions.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Set Up 2FA on Instagram
 
@@ -142,25 +156,11 @@ Locking your Facebook account is as important as your email address.
 
  If you select "Authentication App," the Instagram app will automatically detect your installed authentication app and send a login code. For instance, your Instagram account would automatically appear in the Google Authenticator app on your phone. However, by extension, the app authentication option cannot be turned on using the desktop version, which is disappointing.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set Up 2FA on Amazon
 
  Your Amazon account is another that requires serious security. If someone accesses your Amazon account, they can spend as if they were you. (Amazon does have additional security checks for new delivery addresses, but you shouldn't rely on that.)
 
  Head to your **Amazon Account Settings > Login & Security > Two-Step Verification (2SV) Settings.** Under Two-Step Verification (2SV) Settings, select**Edit > Get Started** . You can use SMS or an authenticator app. If you choose the latter, scan the QR code using the Authenticator app and follow the Amazon instructions.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Switching On Two-Factor Authentication Is Worth It
 
@@ -181,24 +181,19 @@ Locking your Facebook account is as important as your email address.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-quick-play-music-10-best-apps-phones-for-2024/"><u>[New] Quick Play Music 10 Best Apps, Phones for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-the-ultimate-fraps-experience-for-game-capture/"><u>[New] The Ultimate Fraps Experience for Game Capture</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-how-to-optimize-your-viewing-a-guide-to-high-definition-cricket-live-streaming/"><u>[Updated] In 2024, How to Optimize Your Viewing A Guide to High-Definition Cricket Live Streaming</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-no-root-audio-recording-on-android-devices-tutorial/"><u>[Updated] No-Root Audio Recording on Android Devices [Tutorial]</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-easy-steps-to-capturing-films-on-various-operating-systems/"><u>2024 Approved Easy Steps to Capturing Films on Various Operating Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dialogues-power-7-social-benefits-explored/"><u>Digital Dialogue’s Power: 7 Social Benefits Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-safety-settings-for-kids-profile-in-messengers/"><u>Enhancing Safety Settings for Kids’ Profile in Messengers</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-update-unpolitical-and-nonreligious-profiles-ahead/"><u>Facebook's Update: Unpolitical & Nonreligious Profiles Ahead</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-the-new-facebook-dating-features-will-affect-your-matches/"><u>How the New Facebook Dating Features Will Affect Your Matches</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/kloniere-lenovo-harddisks-auf-ssds-mit-top-software-effizient/"><u>Kloniere Lenovo-Harddisks Auf SSDs Mit Top-Software Effizient</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/mastering-your-tech-needs-with-expert-guides-from-toms-hardware/"><u>Mastering Your Tech Needs with Expert Guides From Tom's Hardware</u></a></li>
-<li><a href="https://facebook.techidaily.com/personal-space-protection-escape-from-these-invasive-apps/"><u>Personal Space Protection: Escape From These Invasive Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/reinventing-online-self-image-mastering-new-nickname-adjustment/"><u>Reinventing Online Self-Image: Mastering New Nickname Adjustment</u></a></li>
-<li><a href="https://facebook.techidaily.com/sharpening-speech-snippets-bold-and-italic-flair/"><u>Sharpening Speech Snippets: Bold & Italic Flair</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotlight-facebook-refining-news-feed-for-business-outreach/"><u>Spotlight: Facebook Refining News Feed for Business Outreach</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/the-evolution-of-audio-liberation-pazeras-advanced-techniques-2e/"><u>The Evolution of Audio Liberation Pazera's Advanced Techniques (2E)</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-great-connective-power-of-modern-social-media/"><u>The Great Connective Power of Modern Social Media</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-8-must-play-mobile-gaming-apps-of-the-year/"><u>Top 8 Must-Play Mobile Gaming Apps of the Year</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-samsung-galaxy-a15-5g-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Samsung Galaxy A15 5G Phone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-affordable-webinar-tools-for-efficient-recording-for-2024/"><u>[Updated] Affordable Webinar Tools for Efficient Recording for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-guidelines-to-frame-your-youtube-creation-flow/"><u>[Updated] In 2024, Guidelines to Frame Your YouTube Creation Flow</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-webinars-in-written-form/"><u>[Updated] In 2024, Webinars in Written Form</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-realizing-unseen-friend-requests-for-2024/"><u>[Updated] Realizing Unseen Friend Requests for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/4k-uxga-reality-check-detailed-review-of-asus-mg28uq-for-2024/"><u>4K UXGA Reality Check - Detailed Review of ASUS MG28UQ for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/essential-audio-gear-for-active-cameras/"><u>Essential Audio Gear for Active Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-cues-to-trigger-an-avatar-transformation/"><u>Essential Cues to Trigger an Avatar Transformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-banned-from-whatsapp-user-data-in-germany/"><u>Facebook Banned From WhatsApp User Data in Germany</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-to-remove-political-and-religious-views-from-profiles/"><u>Facebook to Remove Political and Religious Views From Profiles</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-lava-yuva-3-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Lava Yuva 3 to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaai-versus-traditional-bot-interactions-and-intelligence/"><u>MetaAI Versus Traditional Bot Interactions and Intelligence</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-ties-adding-newcomers-to-messenger/"><u>Navigating Social Ties: Adding Newcomers to Messenger</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/obs-or-wirecast-your-ultimate-guide-to-broadcast-software/"><u>OBS or Wirecast? Your Ultimate Guide to Broadcast Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-facebook-and-instagram-metas-proposed-disruption-in-europe/"><u>Unraveling Facebook & Instagram: Meta's Proposed Disruption in Europe</u></a></li>
 </ul></div>
 

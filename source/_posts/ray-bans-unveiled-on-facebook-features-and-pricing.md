@@ -1,7 +1,7 @@
 ---
 title: "Ray-Bans Unveiled on Facebook: Features & Pricing"
-date: 2024-09-10T14:56:59.299Z
-updated: 2024-09-11T14:56:59.299Z
+date: 2024-10-19T20:27:39.856Z
+updated: 2024-10-26T20:04:11.779Z
 tags:
   - facebook
 categories:
@@ -19,27 +19,10 @@ thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892
 
  So, what does the social media giant have up its sleeves (or rather, resting on its nose)? Let's find out.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## What Are Ray-Ban Stories?
 
@@ -53,19 +36,18 @@ thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892
 
  The big theme around the Ray-Ban Stories is giving you the ability to capture the world around you without needing to leave it. There’s no need to scramble for your phone when something amazing happens, nor do you need to stare through a screen when recording something. Now you can capture anything just by looking at it, so you can concentrate on living in the moment.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## The Ray-Ban Stories Specifications
 
@@ -83,68 +65,44 @@ thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892
 
  The glasses will have an off switch, which will disable all the tech on them once flipped. And Facebook is proud to show off a light-up LED on the camera to show others that you’re recording them, which helps improve privacy. In the video, Mark Zuckerberg claims this is “more than what smartphones do,” but we’d argue that holding up a phone to record someone is more obvious than an LED.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How Much Are the Ray-Ban Stories?
 
  If you want a pair of glasses for yourself, they won't break the bank too much. You can pick them up for $299, which is a pretty reasonable price for what you're getting.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## When Will the Ray-Ban Stories Come Out?
 
  The best bit is, if you're dying to wear a piece of the future, you can buy them right away. Just head over to the[Ray-Ban Stories store page](https://www.ray-ban.com/usa/electronics/RW4002%20UNISEX%20ray-ban%20stories%20%7C%20wayfarer-shiny%20black/8056597489478) and pick up a pair today.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## A New Chapter in the Story of Smart Glasses
 
  If you love capturing those precious moments, but you'd rather not experience it through a phone screen, the Ray-Ban Stories may just be up your alley. They're out now, so be sure to grab a pair ASAP if this sounds like something you want.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,12 +111,18 @@ thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://printer-issues.techidaily.com/printer-driver-alert-unable-to-locate-on-windows-10/"><u>[Printer Driver Alert]: Unable to Locate on Windows 10</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-integrating-textual-descriptions-into-videos-on-photos-windows-11/"><u>[Updated] 2024 Approved Integrating Textual Descriptions Into Videos on Photos (Windows 11)</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/connecting-your-android-phone-with-pc-three-easy-techniques/"><u>Connecting Your Android Phone with PC: Three Easy Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/decipher-friendship-chronicles-on-fb/"><u>Decipher Friendship Chronicles on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-latest-commitment-to-data-security/"><u>Decoding Meta's Latest Commitment to Data Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-watch-project-hints-at-dual-cam-features-in-upcoming-devices/"><u>FB Watch Project Hints at Dual Cam Features in Upcoming Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/go-live-unadorned-instagrams-new-feature/"><u>Go Live Unadorned: Instagram's New Feature</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-11-to-other-iphone-15-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 11 to other iPhone 15 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-masterful-fb-watching-essential-top-10-players/"><u>In 2024, Masterful FB Watching Essential Top 10 Players</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-play-facebook-reels-and-the-tiktok-dilemran/"><u>The Power Play: Facebook, Reels, and the TikTok Dilemran</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transformez-votre-fichier-mpeg-en-format-avi-de-gre-a-gre-solution-sans-frais-convertissez-avec-ease/"><u>Transformez Votre Fichier MPEG en Format AVI De Gré À Gré : Solution Sans Frais - Convertissez Avec Ease !</u></a></li>
+</ul></div>
 

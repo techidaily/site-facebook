@@ -1,7 +1,7 @@
 ---
 title: Why Meta Postpones Default E2E Encryption Till 2023 Explained
-date: 2024-10-14T19:40:43.615Z
-updated: 2024-10-21T00:36:08.341Z
+date: 2024-10-23T18:20:16.374Z
+updated: 2024-10-26T19:43:04.816Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
@@ -54,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
@@ -83,21 +83,14 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-choose-folder-for-stored-mac-screenshots/"><u>[New] Choose Folder for Stored Mac Screenshots</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-tailoring-timeline-memories-the-look-back-video-expertise/"><u>2024 Approved Tailoring Timeline Memories The Look Back Video Expertise</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/1728462856824-windows/"><u>解決 Windows 復原儲存錯誤的三大捷徑</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/a-guide-oppo-a1x-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Oppo A1x 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/best-5-mp4-editing-tools-compatible-with-mac-and-pc-a-comprehensive-guide/"><u>Best 5 MP4 Editing Tools Compatible with Mac & PC - A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/dismantling-hurdles-in-your-social-network/"><u>Dismantling Hurdles in Your Social Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-and-instagram-reload-trump-era/"><u>Facebook & Instagram Reload Trump Era</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-honor-x9b-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Honor X9b Without PUK Codes</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-asus-rog-phone-8-pro-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Asus ROG Phone 8 Pro to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-the-art-of-evading-cybernetic-swindlers/"><u>Master the Art of Evading Cybernetic Swindlers</u></a></li>
-<li><a href="https://facebook.techidaily.com/shield-personal-data-dont-use-these-3-suspect-apps/"><u>Shield Personal Data: Don't Use These 3 Suspect Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-modifying-your-facebook-handle/"><u>Step-by-Step Guide to Modifying Your Facebook Handle</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/superior-selections-pro-webcam-stabilizers/"><u>Superior Selections Pro Webcam Stabilizers</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-10-the-risks-of-befriending-unknowns-online/"><u>Top 10: The Risks of Befriending Unknowns Online</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unleash-the-fun-discover-these-best-chatgpt-games-today/"><u>Unleash the Fun! Discover These Best ChatGPT Games Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-economics-of-music-sharing-on-facebook/"><u>Unveiling The Economics of Music Sharing on Facebook</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-bridging-the-gap-audio-to-text-in-powerpoint-slides/"><u>2024 Approved Bridging the Gap Audio to Text in PowerPoint Slides</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/complete-examination-the-video-show-app/"><u>Complete Examination The Video Show App</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-on-the-best-time-for-fb-visual-update/"><u>Deciding on the Best Time for Fb Visual Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-purpose-of-facebooks-regulatory-body/"><u>Deciphering the Purpose of Facebook's Regulatory Body</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-authentic-relationships-without-facebooks-influence/"><u>Discover Authentic Relationships Without Facebook's Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-perks-of-taking-a-digital-pause/"><u>Discover the Perks of Taking a Digital Pause</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Xiaomi 13 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-itel-a70-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Itel A70 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-sound-problems-in-resident-evil-village-troubleshooting-guide/"><u>Resolving Sound Problems in Resident Evil: Village - Troubleshooting Guide</u></a></li>
 </ul></div>
 

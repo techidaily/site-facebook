@@ -1,7 +1,7 @@
 ---
 title: Steering Clear of Unwanted Facebook Screenshots
-date: 2024-10-14T22:04:48.084Z
-updated: 2024-10-20T21:36:39.002Z
+date: 2024-10-21T22:14:07.502Z
+updated: 2024-10-26T18:57:21.444Z
 tags:
   - facebook
 categories:
@@ -37,16 +37,16 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 * **Location:** Does your photo reveal where you are? If you're at home, have you just revealed your home address to the world?
 * **Embarrassment:** Has someone posted a snap of you in a compromising position? You probably don't want your family or your boss to see it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Facebook and Photo Privacy
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Inline Privacy Controls
 
@@ -68,13 +68,6 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
  Open the photo, and in the upper right-hand corner, you'll see the same dropdown menu as you see when setting inline privacy. Just choose your desired audience.
@@ -91,19 +84,39 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Pro Tip: Use the Activity Log
 
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Photos You're Tagged In
@@ -121,13 +134,6 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 ### Tag Suggestions
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
@@ -152,20 +158,21 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-accessing-google-meet-via-device-for-2024/"><u>[New] Accessing Google Meet via Device for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-enhancing-your-presence-on-tiktok-from-mac-and-windows-pcs/"><u>[New] In 2024, Enhancing Your Presence on TikTok From Mac and Windows PCs</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-excellence-on-the-screen-best-six-video-tools-for-big-sur-for-2024/"><u>[Updated] Excellence on the Screen Best Six Video Tools for Big Sur for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discovering-ideal-computer-specs-to-run-fallout-4-smoothly-and-effortlessly/"><u>Discovering Ideal Computer Specs to Run Fallout 4 Smoothly and Effortlessly</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-prototype-sparks-interest-could-support-two-cameras/"><u>Facebook Prototype Sparks Interest: Could Support Two Cameras?</u></a></li>
-<li><a href="https://change-location.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-fix-the-anticheat-connection-failed-issue-in-escape-from-tarkov/"><u>How to Fix the 'Anticheat Connection Failed' Issue in Escape From Tarkov</u></a></li>
-<li><a href="https://facebook.techidaily.com/humor-in-the-age-of-fact-vs-fiction/"><u>Humor in the Age of Fact vs Fiction</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-tecno-pop-8-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Tecno Pop 8 Phones with/without a PC</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-live-action-sims-perfecting-your-videos/"><u>In 2024, Live-Action Sims Perfecting Your Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-social-locating-facebook-profile-and-group-connections/"><u>Mastering Social: Locating Facebook Profile & Group Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-inside-the-new-era-of-privacy-control-with-facebooks-updated-settings-hub/"><u>Step Inside the New Era of Privacy Control With Facebook’s Updated Settings Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-temporary-trouble-6-hours-of-no-internet/"><u>Tech Temporary Trouble: 6 Hours of No Internet</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-potential-with-8-must-try-crowdfire-innovations/"><u>Unlocking Potential with 8 Must-Try Crowdfire Innovations</u></a></li>
-<li><a href="https://facebook.techidaily.com/upcoming-us-legislation-on-tech-monopolies-unpacked/"><u>Upcoming US Legislation on Tech Monopolies Unpacked</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-premier-collection-top-10-audio-capturers-on-spotify-for-2024/"><u>[New] Premier Collection Top 10 Audio Capturers on Spotify for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-iphones-full-video-loop-potential/"><u>[New] Unlock iPhone's Full Video Loop Potential</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-filmmakers-companion-the-finest-15-gopro-cine-luts-unveiled/"><u>2024 Approved Filmmaker's Companion The Finest 15 GOPRO Cine LUTs Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-and-facebook-charting-two-unrelated-futures/"><u>Apple and Facebook: Charting Two Unrelated Futures</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/are-video-selfies-on-instagram-really-genuine-for-2024/"><u>Are Video Selfies on Instagram Really Genuine for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/beat-blizzards-wow-lags-tips-for-a-smooth-gaming-experience/"><u>Beat Blizzard's WoW Lags: Tips for a Smooth Gaming Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/brands-gain-foothold-with-instagram-and-facebook-ad-integrations/"><u>Brands Gain Foothold with Instagram and Facebook Ad Integrations</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-cash-flow-the-online-money-mechanics/"><u>Connectivity Cash Flow: The Online Money Mechanics</u></a></li>
+<li><a href="https://facebook.techidaily.com/control-digital-overload-minimize-suggested-feeds/"><u>Control Digital Overload: Minimize Suggested Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/current-shareholders-of-facebook/"><u>Current Shareholders of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybernetic-cautionary-tales-decode-these-9-indicators-of-a-social-snatch/"><u>Cybernetic Cautionary Tales: Decode These 9 Indicators of a Social Snatch</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-defenders-guide-skip-three-snooping-apps/"><u>Data Defender's Guide: Skip Three Snooping Apps</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/engineers-rejoice-new-300-risc-v-laptop-by-innovative-chinese-company/"><u>Engineers Rejoice: New $300 RISC-V Laptop by Innovative Chinese Company</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/fixing-critical-system-failures-in-depth-solutions-for-the-infamous-blue-screen-and-kernel-data-errors-in-webpages/"><u>Fixing Critical System Failures: In-Depth Solutions for the Infamous Blue Screen and Kernel Data Errors in Webpages</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722970862344-zero-cost-full-functionality-download-the-qualcomm-atheros-ar938x-driver-now/"><u>Zero Cost, Full Functionality - Download the Qualcomm Atheros AR938X Driver Now!</u></a></li>
 </ul></div>
 

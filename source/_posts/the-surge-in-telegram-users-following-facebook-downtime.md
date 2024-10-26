@@ -1,7 +1,7 @@
 ---
 title: The Surge in Telegram Users Following Facebook Downtime
-date: 2024-09-10T14:54:21.768Z
-updated: 2024-09-11T14:54:21.768Z
+date: 2024-10-24T20:33:00.968Z
+updated: 2024-10-26T21:02:29.130Z
 tags:
   - facebook
 categories:
@@ -21,33 +21,10 @@ thumbnail: https://thmb.techidaily.com/fbf47cff7f90b38c5c4bfba881d1b7d8a9950edbb
 
  But how and why did it reap the rewards so spectacularly? Let's take a look.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How Did Telegram Gain So Many Users in One Day?
 
@@ -59,43 +36,16 @@ thumbnail: https://thmb.techidaily.com/fbf47cff7f90b38c5c4bfba881d1b7d8a9950edbb
 
 But why did Telegram benefit so much more than any of its rivals?
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Why Did People Choose Telegram When WhatsApp Went Down?
 
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
 
@@ -103,19 +53,12 @@ But why did Telegram benefit so much more than any of its rivals?
 
  All of these features have helped it become the de facto number two behind WhatsApp in many people's minds, so installing it during a time of crisis was a no-brainer.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How Important Is This for Telegram?
 
@@ -129,19 +72,12 @@ But why did Telegram benefit so much more than any of its rivals?
 
  It is arguably the first time that any WhatsApp competitor has been able to make that claim, and it suddenly makes the Facebook-owned app's hegemony look a lot less secure.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## It Wasn't All Perfect for Telegram
 
@@ -155,19 +91,12 @@ But why did Telegram benefit so much more than any of its rivals?
 
  Breaking WhatsApp's dominance is already a herculean task. If Telegram's app is not functioning when people need it, the progress it has been enjoying recently could be irrevocably damaged.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Can Telegram Continue Its Momentous Rise?
 
@@ -175,14 +104,11 @@ But why did Telegram benefit so much more than any of its rivals?
 
  The critical thing from Telegram's perspective is that the app is now installed on more people's handsets than ever before. The company now faces the challenge of retaining them as active users. Only time will tell whether that actually happens.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -191,12 +117,23 @@ But why did Telegram benefit so much more than any of its rivals?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-investigating-ffmpeg-for-intact-audio-preservation/"><u>[Updated] Investigating FFmpeg for Intact Audio Preservation</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-3dr-the-soloists-voyage-in-3d-printing-tech/"><u>2024 Approved '3DR' The Soloist’s Voyage in 3D Printing Tech</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-comprehensive-kinetic-analysis-2023/"><u>2024 Approved Comprehensive Kinetic Analysis 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/44-us-attorneys-general-petition-exclude-children-from-instagram/"><u>44 US Attorneys General Petition: Exclude Children From Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-detailed-walkthrough-for-updating-your-social-face/"><u>A Detailed Walkthrough for Updating Your Social Face</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-media-the-rise-and-reality-of-facebooks-metaverse/"><u>Beyond Social Media: The Rise and Reality of Facebook’s Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-realities-why-meta-is-engineering-a-global-ai-revolution/"><u>Bridging Realities: Why Meta Is Engineering a Global AI Revolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-brand-youre-proud-of-facebook-edition/"><u>Building a Brand You're Proud Of: Facebook Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/capture-and-convey-who-you-are-an-in-depth-look-at-creating-a-profile-photo-with-an-avatar/"><u>Capture and Convey Who You Are: An In-Depth Look at Creating a Profile Photo with an Avatar</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/clearview-pro-5-screen-mastery-for-2024/"><u>ClearView Pro 5 - Screen Mastery for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprerancial-online-presence-facebook-profiles-vs-usernames/"><u>Comprerancial Online Presence: Facebook Profiles Vs Usernames</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-itel-s23-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Itel S23 to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-vivo-v27e-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Vivo V27e</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-facebook-live-shopping-a-comprehensive-guide-for-2024/"><u>New Facebook Live Shopping A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quick-setup-of-intel-hdgraphics-520/"><u>Quick Setup of Intel HDGraphics 520</u></a></li>
+<li><a href="https://win-able.techidaily.com/tips-and-tricks-overcome-common-issues-with-biomutant-gameplay-on-pc/"><u>Tips & Tricks: Overcome Common Issues with Biomutant Gameplay on PC</u></a></li>
+</ul></div>
 

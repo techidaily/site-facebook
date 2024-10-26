@@ -1,7 +1,7 @@
 ---
 title: Social Network's Generosity Fights Global Health Emergency
-date: 2024-10-17T21:44:09.109Z
-updated: 2024-10-21T02:27:14.782Z
+date: 2024-10-20T20:01:03.758Z
+updated: 2024-10-26T17:45:27.623Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ Image Credit: Facebook
  "These fundraisers will support equitable vaccine distribution around the world, reducing the spread of COVID-19 and putting countries on a path to recovery," Facebook notes. Facebook will donate a total of $5 million to the cause.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Also Aims to Highlight "Trusted Messengers"
@@ -52,16 +52,10 @@ Image Credit: Facebook
 ![Facebook COVID messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-covid-messages.png)
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The platform is teaming up with AARP and Johns Hopkins University's Bloomberg School of Public Health to roll out vaccine-related campaigns in Spanish as well.
@@ -73,16 +67,16 @@ Image Credit: Facebook
  Lastly, Facebook will also be working with UNICEF to promote posts of healthcare workers receiving the vaccine around the globe. By making these posts more visible, Facebook hopes that it will encourage more people to get the vaccine.
 
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Fights for Vaccine Equity
@@ -104,18 +98,17 @@ Image Credit: Facebook
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-fb-video-grabber-hq-download-guide/"><u>[New] 2024 Approved FB Video Grabber HQ Download Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-a-guide-to-retrieving-historic-facebook-stories/"><u>[New] In 2024, A Guide to Retrieving Historic Facebook Stories</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-explore-new-movie-landscapes-top-7-alternates/"><u>[Updated] 2024 Approved Explore New Movie Landscapes - Top 7 Alternates</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-leading-edge-group-chat-apps-on-android-5plus-users/"><u>[Updated] 2024 Approved Leading Edge Group Chat Apps on Android (5+ Users)</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-old-tech-new-memories-portraits-from-iphone-x/"><u>[Updated] 2024 Approved Old Tech, New Memories Portraits From iPhone X</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-top-pioneers-making-waves-in-digital-av-creation/"><u>[Updated] Top Pioneers Making Waves in Digital AV Creation</u></a></li>
-<li><a href="https://facebook.techidaily.com/password-woes-easily-reinstate-your-facebook-sign-in/"><u>Password Woes? Easily Reinstate Your Facebook Sign-In</u></a></li>
-<li><a href="https://facebook.techidaily.com/reeling-in-profits-creators-guide-to-earnings-with-reels-and-marketplace-metrics/"><u>Reeling In Profits: Creators' Guide to Earnings with Reels and Marketplace Metrics</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-teenage-digital-footprint-navigating-facebook-settings/"><u>Securing Teenage Digital Footprint: Navigating Facebook Settings</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/solving-opengl32dll-file-absence-issues-a-step-by-step-guide/"><u>Solving OpenGL32.dll File Absence Issues: A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/stepwise-guide-to-sever-ties-in-fb-group/"><u>Stepwise Guide to Sever Ties in FB Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-complete-strategy-for-securing-your-fb-images/"><u>The Complete Strategy for Securing Your FB Images</u></a></li>
-<li><a href="https://program-issues.techidaily.com/world-of-warcraft-slowdown-solutions-expert-tips-and-tricks-to-skyrocket-your-fps/"><u>World of Warcraft Slowdown Solutions: Expert Tips & Tricks to Skyrocket Your FPS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/uaranteed-safe-approaches-for-turning-youtube-songs-into-mp3-files/"><u>[New] Guaranteed Safe Approaches for Turning YouTube Songs Into MP3 Files</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-crafting-curve-concepts-for-text-visualization/"><u>[New] In 2024, Crafting Curve Concepts for Text Visualization</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-integrated-content-the-brands-on-youtube-movement/"><u>[Updated] Integrated Content The Brands on YouTube Movement</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-three-of-social-networking-inspire-bidens-health-strategy/"><u>Big Three of Social Networking Inspire Biden's Health Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-through-social-medias-silent-exclusion-shadowban-insights/"><u>Breaking Through Social Media's Silent Exclusion: Shadowban Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzz-box-the-top-20-must-visit-social-applications-and-websites/"><u>Buzz Box: The Top 20 Must-Visit Social Applications and Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/court-of-pages-when-will-facebook-decision-be-revealed/"><u>Court of Pages: When Will Facebook Decision Be Revealed?</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-listening-the-best-and-worst-from-2022s-podcast-scene/"><u>Critical Listening: The Best and Worst From 2022'S Podcast Scene</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/free-excellent-programs-to-recover-and-repair-your-damaged-outlook-pst-data/"><u>Free Excellent Programs to Recover and Repair Your Damaged Outlook PST Data</u></a></li>
+<li><a href="https://win11.techidaily.com/steps-to-reattach-absent-drives-in-windows/"><u>Steps to Reattach Absent Drives in Windows</u></a></li>
+<li><a href="https://article-helps.techidaily.com/the-art-of-captivating-6-powerful-video-genres-for-2024/"><u>The Art of Captivating 6 Powerful Video Genres for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-from-start-to-finish-a-complete-guide-to-editing-mp4-videos-on-mac-and-windows-for-2024/"><u>Updated From Start to Finish A Complete Guide to Editing MP4 Videos on Mac and Windows for 2024</u></a></li>
 </ul></div>
 

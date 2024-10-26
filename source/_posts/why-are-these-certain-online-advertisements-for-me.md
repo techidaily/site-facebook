@@ -1,7 +1,7 @@
 ---
 title: Why Are These Certain Online Advertisements For Me?
-date: 2024-09-10T14:56:56.530Z
-updated: 2024-09-11T14:56:56.530Z
+date: 2024-10-24T17:17:38.431Z
+updated: 2024-10-26T22:04:41.562Z
 tags:
   - facebook
 categories:
@@ -21,13 +21,10 @@ thumbnail: https://thmb.techidaily.com/8f5cadb41c029899508ca6efd6723f50f45c76c59
 
  Facebook’s**Why am I seeing this ad** option can be useful, but if you really want to learn more about ads on Facebook and how to adjust them to your interests, continue reading.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## How Does Facebook Know What Ads to Show You?
 
@@ -37,21 +34,14 @@ thumbnail: https://thmb.techidaily.com/8f5cadb41c029899508ca6efd6723f50f45c76c59
 
 ![Facebook ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-ads.png)
 
-
-
-
+ If Facebook ads seem too frighteningly specific to you, that is simply because Facebook is keeping track of your online activity all the time. Facebook separates its targeting categories into three subcategories:**Interests** ,**Behaviors** , and**Demographics** .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
- If Facebook ads seem too frighteningly specific to you, that is simply because Facebook is keeping track of your online activity all the time. Facebook separates its targeting categories into three subcategories:**Interests** ,**Behaviors** , and**Demographics** .
 
 ### Interests
 
@@ -59,23 +49,16 @@ thumbnail: https://thmb.techidaily.com/8f5cadb41c029899508ca6efd6723f50f45c76c59
 
  Related:[Why Targeted Ads Are a Serious Threat to Your Privacy](https://www.makeuseof.com/tag/targeted-ads-threat-privacy/)  This category includes posts users share on their timeline, pages that they “Like,” and apps that they use.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Behaviors
 
  This subcategory will reach people based on their purchase intents or behaviors, device usage, and so on. Facebook usually acquires this data from third-party data collection companies.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Demographics
 
@@ -101,61 +84,20 @@ thumbnail: https://thmb.techidaily.com/8f5cadb41c029899508ca6efd6723f50f45c76c59
 
 ![Facebook Settings & Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Settings-And-Privacy.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  After that, click**Settings** .
 
 ![Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Settings.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  You will then have the**Ads** button on the left side of the screen. This allows you to see the advertisers that you have been getting ads from and you can choose to see fewer ads about some topics.
 
 ![Facebook Ad Options In Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Click-On-Ads.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  The**Advertisers** section shows you the advertisers you’ve recently been getting ads from.
 
@@ -165,27 +107,20 @@ thumbnail: https://thmb.techidaily.com/8f5cadb41c029899508ca6efd6723f50f45c76c59
 
 ![Facebook Ad Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Ad-Settings.jpg)
 
- Do keep in mind that while these options will influence your ad preferences, it will not affect the total number of ads you see.
-
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+ Do keep in mind that while these options will influence your ad preferences, it will not affect the total number of ads you see.
 
 ## Let Facebook Know Your Ad Preferences
 
@@ -193,14 +128,11 @@ thumbnail: https://thmb.techidaily.com/8f5cadb41c029899508ca6efd6723f50f45c76c59
 
  That way, you improve your Facebook experience by seeing fewer ads that you're not interested in.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -209,12 +141,22 @@ thumbnail: https://thmb.techidaily.com/8f5cadb41c029899508ca6efd6723f50f45c76c59
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-chirp-with-charisma-producing-text-memes-now/"><u>[New] Chirp with Charisma Producing Text Memes Now</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-superior-online-audio-devices-ranked-for-2024/"><u>[New] Superior Online Audio Devices Ranked for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-image-isolation-pro-eliminate-backgrounds-in-affinity/"><u>[Updated] Image Isolation Pro Eliminate Backgrounds in Affinity</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-elevating-your-gameplay-on-youtube-with-these-essential-tags/"><u>[Updated] In 2024, Elevating Your Gameplay on YouTube with These Essential Tags</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-skype-soundtrack-hub-finding-the-right-tones-online/"><u>[Updated] In 2024, Skype Soundtrack Hub Finding the Right Tones Online</u></a></li>
+<li><a href="https://fox-info.techidaily.com/10-apps-to-elevate-your-picture-grids/"><u>10 Apps to Elevate Your Picture Grids</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-shoppers-quick-guide-to-choosing-top-notch-360cams/"><u>2024 Approved The Shopper’s Quick Guide to Choosing Top-Notch 360Cams</u></a></li>
+<li><a href="https://facebook.techidaily.com/comedic-content-facebooks-new-framework/"><u>Comedic Content: Facebook's New Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/comedic-posts-what-counts-as-satire-facebook/"><u>Comedic Posts: What Counts as Satire? - Facebook</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/launching-chatgpt-on-your-ubuntu-system-via-shellgpt-command-line-interface/"><u>Launching ChatGPT on Your Ubuntu System via ShellGPT Command Line Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-chat-apps-beyond-facebooks-messages/"><u>Mastering Chat Apps: Beyond Facebook's Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-digital-identity-change-your-facebook-pic/"><u>Mastery over Digital Identity: Change Your Facebook Pic</u></a></li>
+<li><a href="https://facebook.techidaily.com/safety-vs-entertainment-balancing-risks-with-quizzes/"><u>Safety Vs. Entertainment: Balancing Risks with Quizzes</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-secrets-forego-these-3-eye-opening-apps/"><u>Secure Your Secrets: Forego These 3 Eye-Opening Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-truth-behind-facebooks-fading-user-numbers/"><u>The Truth Behind Facebook's Fading User Numbers</u></a></li>
+</ul></div>
 

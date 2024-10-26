@@ -1,7 +1,7 @@
 ---
 title: Securely Engage with Friends on Facebook, Here’s How
-date: 2024-10-19T23:44:47.802Z
-updated: 2024-10-21T02:04:19.910Z
+date: 2024-10-21T17:50:48.288Z
+updated: 2024-10-26T19:24:36.900Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
@@ -61,6 +61,13 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * If people can't find you via Facebook search using your name, they may be able to search for you by using the email address or phone number you provided when you signed up. You can remove this option by selecting**Only me** , or limit this to friends or friends of friends.
 * To ensure your Facebook profile cannot be found via search engines, select**No** under the **Do you want search engines outside Facebook to link to your profile** section.
 * Don't want to be hassled by strangers via Facebook Messenger? You can decide whether chats are received or filtered to message requests by adjusting your**Potential connections** and**Other people** in the**How you get message requests** settings.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3. Profile and Tagging
 
@@ -78,32 +85,12 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
 
 * The[Public posts](https://www.facebook.com/settings?tab=followers) tab in Facebook settings allows you to decide who can follow you (including your posts, stories, and reels). This information can either be shared publicly or with your friends only.
 * Once you've made a public post, you can adjust the audience that can comment on your posts. However, it's worth noting that if you limit this to friends, their friends may still be able to comment.
 * Some information on Facebook is always public, like your cover photos, profile pictures, and featured photos. You can manage who can like or comment on these, including public, friends of friends, or friends only.
 * If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5. Blocking
 
@@ -116,15 +103,22 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * To block someone from your Facebook and Facebook Messenger, you can add them to your**Block messages** list. You'll need to ensure you block their profile on Facebook too.
 * Nuisance apps you don't want to receive notifications for? Using the**Block app invites** and**Block apps** options, you can stop invites from certain people to apps, or stop notifications from specific apps altogether.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Quick Tips
 
 ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
@@ -152,22 +146,21 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-whatsapps-sonic-status-boost/"><u>[Updated] 2024 Approved WhatsApp's Sonic Status Boost</u></a></li>
-<li><a href="https://windows11.techidaily.com/13-ways-to-open-the-windows-system-settings/"><u>13 Ways to Open the Windows System Settings</u></a></li>
-<li><a href="https://video-capture.techidaily.com/4-outstanding-conversion-methods-secure-your-music-files-from-bandcamp-in-various-audio-formats-at-no-cost/"><u>4 Outstanding Conversion Methods: Secure Your Music Files From Bandcamp in Various Audio Formats at No Cost!</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-new-venture-ray-bans-stories-and-their-cost-analysis/"><u>Facebook's New Venture: Ray-Bans Stories and Their Cost Analysis</u></a></li>
-<li><a href="https://discover-community.techidaily.com/free-online-converter-convert-m4b-and-mkv-files-movavi-guide/"><u>Free Online Converter: Convert M4B & MKV Files - Movavi Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/past-vs-present-a-reevaluation-of-the-impact-of-facebook-investigations/"><u>Past vs Present: A Reevaluation of The Impact of Facebook Investigations</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/predicting-film-production-costs-music-video-for-2024/"><u>Predicting Film Production Costs Music Video for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/protect-your-vr-identity-meta-vs-facebook-compared/"><u>Protect Your VR Identity: Meta Vs. Facebook Compared</u></a></li>
-<li><a href="https://facebook.techidaily.com/ranking-safe-digital-connections/"><u>Ranking Safe Digital Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/smarter-social-networking-on-facebook-unfollow-and-follow-strategies-explained/"><u>Smarter Social Networking on Facebook: Unfollow & Follow Strategies Explained</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-infinix-gt-10-pro-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Infinix GT 10 Pro Phone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-skype-microphone-issues-on-windows-11-a-comprehensive-guide/"><u>Troubleshooting Skype Microphone Issues on Windows 11: A Comprehensive Guide</u></a></li>
-<li><a href="https://games-able.techidaily.com/understanding-twitch-the-ultimate-guide-for-live-streams/"><u>Understanding Twitch: The Ultimate Guide for Live Streams</u></a></li>
-<li><a href="https://facebook.techidaily.com/unplugging-personal-insights-from-deactivation/"><u>Unplugging: Personal Insights From Deactivation</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-vk-key-facts-on-russias-virtual-network/"><u>Unveiling VK: Key Facts on Russia's Virtual Network</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/video-channels-face-off-the-monetization-tale-of-two-titles-for-2024/"><u>Video Channels Face-Off The Monetization Tale of Two Titles for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtualitys-next-step-defining-the-metaverse/"><u>Virtuality's Next Step: Defining the Metaverse</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-exclusive-apps-to-record-on-iphone-for-2024/"><u>[New] Exclusive Apps to Record on iPhone for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-uniting-individual-shots-into-a-compelling-image-story-for-2024/"><u>[New] Uniting Individual Shots Into a Compelling Image Story for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-navigating-recording-options-virtual-office-meetings-desktop-for-2024/"><u>[Updated] Navigating Recording Options Virtual Office Meetings (Desktop) for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2023-how-to-download-facebook-status-videos-in-2024/"><u>2023 | How to Download Facebook Status Videos, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-deep-dive-into-the-most-influential-podcasts-this-year/"><u>A Deep Dive Into the Most Influential Podcasts This Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-closed-curtains-facebooks-real-losses/"><u>Behind Closed Curtains: Facebook’s Real Losses</u></a></li>
+<li><a href="https://facebook.techidaily.com/changing-the-birth-monthyear-in-facebook-account/"><u>Changing the Birth Month/Year in Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/circumventing-two-factor-authentication-on-fb-wo-device/"><u>Circumventing Two-Factor Authentication on Fb W/O Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/claims-facebook-clears-advertising-standards/"><u>Claims: Facebook Clears Advertising Standards</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-new-social-persona-changing-name-on-facebook-platform/"><u>Crafting a New Social Persona: Changing Name on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-surveys-facebook-page-strategies/"><u>Crafting Surveys: Facebook Page Strategies</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/key-frames-per-second-in-superior-slow-motion-imaging/"><u>Key Frames per Second in Superior Slow Motion Imaging</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/reignite-printer-output-5-effective-steps-for-non-printing-canon-on-windows-11/"><u>Reignite Printer Output: 5 Effective Steps for Non-Printing Canon on Windows 11</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/step-by-step-guide-separating-sound-from-video-using-vlc/"><u>Step-by-Step Guide: Separating Sound From Video Using VLC</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/visual-storytelling-made-easy-free-vfx-websites-for-2024/"><u>Visual Storytelling Made Easy - Free VFX Websites for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723204309233-wireless-mouse-stops-working-randomly-fix-it-in-windows-11-and-windows-10-with-these-tips/"><u>Wireless Mouse Stops Working Randomly? Fix It in Windows 11 and Windows 10 With These Tips</u></a></li>
 </ul></div>
 

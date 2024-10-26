@@ -1,7 +1,7 @@
 ---
 title: Thriving in the World of Online Influence
-date: 2024-09-10T14:56:18.038Z
-updated: 2024-09-11T14:56:18.038Z
+date: 2024-10-22T18:36:11.840Z
+updated: 2024-10-26T21:05:34.652Z
 tags:
   - facebook
 categories:
@@ -19,27 +19,10 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
 
  If you're looking to become a social media influencer yourself, here are a few of the steps you should take.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 1\. Find Your Niche
 
@@ -55,35 +38,29 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
 
  If you still feel you can post knowledgeably about more than one niche, create entirely separate channels for the other niches. You can then add a link in your bio to your other channels so that interested users can follow the links and discover your other passions as well.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Focus on One or Two Forms of Media
 
 ![Instagram, Facebook, and Twitter on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/social-media-apps.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  There are a host of social media platforms available to you. Different social media niches may not always perform the same on every platform.
 
  Jokes, short commentaries, and witty observations about the world do well on Twitter. Visually-oriented topics like fashion and artwork capture a lot of interest on Instagram. YouTube videos and podcasts allow you to create skits, long-form commentaries, and reactions to what's going on in the world to attract viewership. TikTok can often be a combination of all of the above.
 
  Instead of trying to post content on every social media platform, choose one or two and build your following from there. It'll be easier to keep up with your audience when you only have to pay attention to one or two apps rather than four or five.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 3\. Quality Over Quantity, But Be Consistent
 
@@ -95,25 +72,12 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
 
  Instagram users should check out the best[ways to get noticed on Instagram](https://www.makeuseof.com/tag/9-tips-will-help-get-noticed-instagram/) .
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 4\. Network With Other Influencers
 
@@ -135,37 +99,9 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
 
  Treat your followers with respect, but be careful of crossing the threshold into developing[parasocial relationships](https://www.makeuseof.com/how-to-communicate-online-healthily/) .
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 6\. Advertise Your Channel
 
 ![Woman recording herself on a mounted smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/woman-recording-herself-on-a-mounted-smartphone.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Even the best social media channels are in a constant battle to put their channel in front of prospective followers. Some of the simplest ways you can advertise your channel include:
 
@@ -178,6 +114,19 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
 
 ![Vintage camera and binoculars](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/vintage-camera-and-binoculars.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit: Marco Verch/[Flickr](https://www.flickr.com/photos/30478819@N08/44222584482)
 
  Once the hard part of gaining a decent following is over, next comes the even more difficult part of maintaining your viewership. Nothing kills a channel faster than stagnant content.
@@ -189,20 +138,6 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
 * Brainstorm ideas for new activities related to your niche that you can participate in and talk about on your channel. For instance, many popular YouTubers have started doing reaction videos, and rack up tens of thousands of views simply filming their reaction to other videos.
 * Ask your followers for ideas on new additions to your channel. Find out what parts of your channel appeal to them the most, and expand on those themes.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 8\. Reach Out to Potential Sponsors
 
  When your profile is worth some serious ad revenue, it's time to talk to the sponsors who would actually want to use your account to promote their products. Don't wait around for the advertisers to come to you.
@@ -213,43 +148,16 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
 
  If you're able to carefully manage your relationship with your followers as well as the companies whose products you sponsor, you will be able to maintain a steady stream of income every month by selling ad space on your channel or by personally endorsing products. Remember, building up that kind of trust takes time.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 9\. Create Trackable Goals
 
 ![a person writing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/journalling.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  As with anything you want in life, creating goals is a fantastic way to help you reach them faster. If you simply start posting to Instagram or creating videos for YouTube without an end goal in mind, your account may not do too well.
 
@@ -263,14 +171,11 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
 
  If you embark on the journey of becoming a social media influencer, it won't happen quickly. You'll need to commit yourself to your channel for the long haul and work at your account for months before seeing progress.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -279,12 +184,18 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevated-engagement-awards-on-video-realms/"><u>[New] In 2024, Elevated Engagement Awards on Video Realms</u></a></li>
+<li><a href="https://facebook.techidaily.com/an-insiders-guide-to-decoding-fb-symbol-meanings/"><u>An Insider's Guide to Decoding FB Symbol Meanings</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/exclusive-guide-to-the-best-fileshare-apps-on-a-windows-laptop/"><u>Exclusive Guide to the Best Fileshare Apps on a Windows Laptop</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-fix-facebook-notifications-not-loading/"><u>How to Fix Facebook Notifications Not Loading</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-leading-brands-in-top-15-4k-recording/"><u>In 2024, Leading Brands in Top 15 4K Recording</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-vivo-y100a-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Vivo Y100A Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-dynamic-fb-shortcut-management-techniques/"><u>Introducing Dynamic FB Shortcut Management Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/reach-out-make-connection-discover-these-top-3-fb-social-spotting-methods/"><u>Reach Out, Make Connection: Discover These Top 3 Fb Social Spotting Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-relationships-insightful-look-at-facebook-history/"><u>Revisiting Relationships: Insightful Look at Facebook History</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transforming-ordinary-moments-into-viral-instagram-reels-for-2024/"><u>Transforming Ordinary Moments Into Viral Instagram Reels for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/voyage-to-greatness-youtubes-best-travel-vids-for-2024/"><u>Voyage to Greatness YouTube's Best Travel Vids for 2024</u></a></li>
+</ul></div>
 

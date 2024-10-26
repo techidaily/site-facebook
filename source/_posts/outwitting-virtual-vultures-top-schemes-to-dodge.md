@@ -1,7 +1,7 @@
 ---
 title: "Outwitting Virtual Vultures: Top Schemes to Dodge"
-date: 2024-09-10T14:53:41.653Z
-updated: 2024-09-11T14:53:41.653Z
+date: 2024-10-21T20:30:27.176Z
+updated: 2024-10-26T19:17:07.134Z
 tags:
   - facebook
 categories:
@@ -19,51 +19,14 @@ thumbnail: https://thmb.techidaily.com/f0ebe7bbeaa83391f6bb15edc8e752caf5cabced7
 
  Owing to widespread awareness, common internet scams like the infamous "Nigerian prince" fraud are now easily discerned by potential victims. Unfortunately, scammers have evolved and now employ more sophisticated tactics to defraud their victims. And social media plays a key part in that. Here's what you need to look out for, and how to spot online scams.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 1\. Instragam Celebrity Scam
 
 ![Instagram Log In](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/solen-feyissa-KWZa42a1kds-unsplash.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Although largely unnoticed, Instagram celebrity scams are one of the most financially costly examples of fraud on the internet. Unlike most scams that involve small amounts of money, this type of scam—typically orchestrated on, but not necessarily isolated to, Instagram—is designed to hit victims hard in one swoop.
 
@@ -90,23 +53,16 @@ There are some simple things you can do to avoid this kind of scam:
 * Always do thorough research of a celebrity's management team before committing to any form of payment.
 * Remember that most of these opportunities aren't opportunities at all: they're scams.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Telegram Cryptocurrency Scam
 
 ![Telegram app opened on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Telegram-Group-Vs-Channel-Cover.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  The Telegram cryptocurrency scam is a bogus cryptocurrency mining scheme carried out on Telegram groups. Like most scams executed on social media apps, the scammers leverage a huge number of participants to spoof legitimacy.
 
@@ -130,43 +86,29 @@ There are some simple things you can do to avoid this kind of scam:
 
  To avoid this kind of scam, only transact with reputable cryptocurrency businesses. Also, ignore messages asking you to pay a certain fee to secure a tool to mine cryptocurrency.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 3\. Facebook Dating Scams
 
 ![Facebook logo on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-logo-on-a-smartphone.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  In the past, dating scams were mainly carried out on dating apps and websites. Fortunately, most people have learned not to trust random strangers they meet on dating sites. With that frontier being less profitable, scammers have evolved their tactics. They've taken up Facebook as a viable platform to execute their scams.
 
@@ -192,25 +134,12 @@ Of course, that's all fake.
 
  To avoid this kind of scam, simply avoid making any financial transaction at the behest of someone you're dating online.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Evolving Nature of Online Scams
 
@@ -220,14 +149,11 @@ Of course, that's all fake.
 
  According to the US's[Federal Trade Commission](https://www.ftc.gov/news-events/press-releases/2021/02/new-ftc-data-show-massive-increase-romance-scams-304m-losses) , in 2020, scammers fleeced their victims of $304 million from romance scams alone. This represents an increase of 50 percent from the previous year. All together, billions of dollars are lost to scams each year.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -236,12 +162,24 @@ Of course, that's all fake.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-plotting-pioneering-partings/"><u>[New] 2024 Approved Plotting Pioneering Partings</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-customize-your-videos-appeal-youtube-thumbnail-tips-and-tricks/"><u>[Updated] In 2024, Customize Your Video's Appeal YouTube Thumbnail Tips & Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/2023s-pivotal-shift-from-forums-to-social-hubs/"><u>2023'S Pivotal Shift From Forums to Social Hubs</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/6-ways-to-fix-the-windows-update-error-0x800f080a/"><u>6 Ways to Fix the Windows Update Error 0X800f080a</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-this-years-most-notable-tech-disasters/"><u>Analyzing This Year's Most Notable Tech Disasters</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-infinix-hot-40-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Infinix Hot 40 to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-loses-ground-among-iphone-fans/"><u>App Tracking Loses Ground Among iPhone Fans</u></a></li>
+<li><a href="https://facebook.techidaily.com/banned-beyond-borders-facebook-in-these-countries/"><u>Banned Beyond Borders: Facebook in These Countries?</u></a></li>
+<li><a href="https://facebook.techidaily.com/carolyn-everson-fires-off-new-resignation-post/"><u>Carolyn Everson Fires Off: New Resignation Post</u></a></li>
+<li><a href="https://facebook.techidaily.com/copyright-clarity-for-digital-photo-posting/"><u>Copyright Clarity for Digital Photo Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-your-platform-for-success/"><u>Cultivating Your Platform for Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153364524-expand-accessibility-share-fb-posts-and-notes-on-leading-app-platforms-seamlessly/"><u>Expand Accessibility: Share FB Posts & Notes on Leading App Platforms Seamlessly</u></a></li>
+<li><a href="https://network-issues.techidaily.com/hidden-display-settings-return-in-windows-11/"><u>Hidden Display Settings Return in Windows 11</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-oppo-reno-8t-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Oppo Reno 8T Lock Screen Password</u></a></li>
+<li><a href="https://fox-links.techidaily.com/subtle-sound-shifts-in-garageband-productions/"><u>Subtle Sound Shifts in Garageband Productions</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/unstuck-your-touchscreen-on-windows-10-try-these-5-troubleshooting-tactics/"><u>Unstuck Your Touchscreen on Windows 10? Try These 5 Troubleshooting Tactics!</u></a></li>
+</ul></div>
 

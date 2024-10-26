@@ -1,7 +1,7 @@
 ---
 title: Social Networking Meets Software Innovation via Facebook and Rust
-date: 2024-10-16T19:15:17.570Z
-updated: 2024-10-21T02:03:13.556Z
+date: 2024-10-22T16:19:01.589Z
+updated: 2024-10-26T21:58:57.219Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -60,24 +60,24 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/stay-fight-on-facebooks-defiant-message-against-exiting/"><u>'Stay, Fight On': Facebook's Defiant Message Against Exiting</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-strategic-approach-to-crafting-youtube-content-headlines/"><u>[New] In 2024, Strategic Approach to Crafting YouTube Content Headlines</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-12-simple-tricks-to-make-your-youtube-videos-go-viral-for-2024/"><u>[Updated] 12 Simple Tricks to Make Your YouTube Videos Go Viral for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-expert-tips-for-stunning-photos-on-iphones/"><u>[Updated] 2024 Approved Expert Tips for Stunning Photos on iPhones</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-5-pro-tips-to-perfectly-tag-videos-and-maximize-views-for-2024/"><u>[Updated] 5 Pro Tips to Perfectly Tag Videos and Maximize Views for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-from-views-to-sales-the-science-of-successful-tiktok-marketing/"><u>2024 Approved From Views to Sales The Science of Successful TikTok Marketing</u></a></li>
-<li><a href="https://facebook.techidaily.com/clearing-facebook-notification-stores/"><u>Clearing Facebook Notification Stores</u></a></li>
-<li><a href="https://facebook.techidaily.com/expect-an-uptick-in-crypto-advertising-on-platforms-like-facebook-and-instagram/"><u>Expect an Uptick in Crypto Advertising on Platforms Like Facebook & Instagram</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/gamified-learning-educational-youtubers-to-subscribe/"><u>Gamified Learning Educational YouTubers to Subscribe</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-apple-iphone-14-pro-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock From your Apple iPhone 14 Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/next-generation-personalization-oculuss-new-characters/"><u>Next Generation Personalization - Oculus’s New Characters</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/table-video-content-starting-and-scaling-up-for-2024/"><u>Profitable Video Content Starting and Scaling Up for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/reach-for-spotify-anywhere-even-the-miniplayer/"><u>Reach for Spotify Anywhere, Even the Miniplayer</u></a></li>
-<li><a href="https://facebook.techidaily.com/retrieving-discarded-conversations-from-facebooks-abyss/"><u>Retrieving Discarded Conversations From Facebook's Abyss</u></a></li>
-<li><a href="https://facebook.techidaily.com/survey-public-skepticism-towards-big-tech-companies-rises/"><u>Survey: Public Skepticism Towards Big Tech Companies Rises</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-fine-line-between-laughter-and-rude-gestures/"><u>The Fine Line Between Laughter and Rude Gestures</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Google Pixel 7a? | Dr.fone</u></a></li>
-<li><a href="https://fox-pages.techidaily.com/windows-1011onedrive/"><u>Windows 10/11における自動的なOneDrive同期の効果的手順</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-key-to-unlocking-meanings-behind-online-social-media-symbols/"><u>Your Key to Unlocking Meanings Behind Online Social Media Symbols</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-understanding-the-foundation-of-motion-visualization/"><u>[New] 2024 Approved Understanding the Foundation of Motion Visualization</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-tomtoms-advanced-adventure-cameras-review-2023-edition/"><u>[New] In 2024, TomTom’s Advanced Adventure Cameras Review - 2023 Edition</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-unleash-your-imagination-best-drawers-for-ipados/"><u>[New] Unleash Your Imagination Best Drawers for iPadOS</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-green-grounds-a-selection-of-free-downloadable-videography-sets/"><u>[Updated] 2024 Approved Green Grounds A Selection of Free, Downloadable Videography Sets</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-crafting-charismatic-videos-with-diy-camera-setups-for-2024/"><u>[Updated] Crafting Charismatic Videos with DIY Camera Setups for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/comprehensive-guide-repairing-errors-in-directx-9-graphics-device-setup/"><u>Comprehensive Guide: Repairing Errors in DirectX 9 Graphics Device Setup</u></a></li>
+<li><a href="https://facebook.techidaily.com/december-sees-instagram-thread-ending/"><u>December Sees Instagram Thread Ending</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-online-personas-facebook-pages-vs-unames/"><u>Deciphering Online Personas: FaceBook Pages vs UNAMES</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-secret-lore-of-fb-friending/"><u>Deciphering the Secret Lore of FB Friending</u></a></li>
+<li><a href="https://facebook.techidaily.com/delete-your-facebook-notification-queue-efficiently/"><u>Delete Your Facebook Notification Queue Efficiently</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-diaries-deciphered-are-phones-making-marketing-decisions/"><u>Digital Diaries Deciphered: Are Phones Making Marketing Decisions?</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-giant-sues-over-governmental-encroachment-of-user-privacy/"><u>Digital Giant Sues Over Governmental Encroachment of User Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-mergers-exploring-the-ties-between-fb-and-insta/"><u>Digital Mergers: Exploring the Ties Between FB and Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-and-utilizing-facebooks-protection-framework/"><u>Discovering & Utilizing Facebook's Protection Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-methods-switching-among-various-facebook-users/"><u>Efficient Methods: Switching Among Various Facebook Users</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-glacial-glory-pinnacle-sports-achievements/"><u>In 2024, Glacial Glory Pinnacle Sports Achievements</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-samsung-galaxy-a14-5g-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Samsung Galaxy A14 5G Phone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/resolving-sim-not-provisioned-mmi-issues-a-step-by-step-guide/"><u>Resolving 'SIM Not Provisioned MMI' Issues: A Step-by-Step Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/techniques-for-optimizing-gopro-camera-battery-life-for-2024/"><u>Techniques for Optimizing GoPro Camera Battery Life for 2024</u></a></li>
 </ul></div>
 

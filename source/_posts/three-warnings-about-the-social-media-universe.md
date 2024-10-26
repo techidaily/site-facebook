@@ -1,7 +1,7 @@
 ---
 title: Three Warnings About the Social Media Universe
-date: 2024-10-14T17:35:26.091Z
-updated: 2024-10-21T00:02:22.293Z
+date: 2024-10-22T22:07:20.018Z
+updated: 2024-10-26T16:37:21.901Z
 tags:
   - facebook
 categories:
@@ -45,28 +45,15 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  Here are some reasons why a Meta-led metaverse is something we should be worried about.
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. A Privacy Nightmare
 
 ![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Facebook's poor privacy practices](http://www.makeuseof.com/tag/facebook-security-privacy-nightmare/) have always been a subject of concern. One of the most high-profile examples was the Cambridge Analytica scandal of 2018.
 
@@ -80,16 +67,16 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Another Digital Addiction for Gen Z
 
 ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
 
@@ -104,15 +91,22 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
@@ -147,21 +141,19 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-swift-windows-document-reviewing-techniques/"><u>[New] Swift Windows Document Reviewing Techniques</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/hite-label-microphones-at-a-wallet-wise-wage/"><u>[New] White-Label Microphones at a Wallet-Wise Wage</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-a-complete-rundown-on-excellent-screen-recording-of-facetime-calls-for-2024/"><u>[Updated] A Complete Rundown on Excellent Screen-Recording of FaceTime Calls for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-from-zero-to-hero-in-youtubing-equipment-essentials-for-2024/"><u>[Updated] From Zero to Hero in YouTubing Equipment Essentials for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-overcome-sound-absence-on-tweeted-film-rolls-for-2024/"><u>[Updated] Overcome Sound Absence on Tweeted Film Rolls for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Nokia 105 Classic | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-realme-narzo-n53-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-the-value-of-online-dislikes/"><u>Assessing the Value of Online Dislikes</u></a></li>
-<li><a href="https://facebook.techidaily.com/block-outsiders-from-social-network-interactions/"><u>Block Outsiders From Social Network Interactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-silent-user-interactions-on-facebook-messenger/"><u>Deciphering Silent User Interactions on Facebook Messenger</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/four-strategies-to-retrieve-your-accidentally-deleted-google-documents/"><u>Four Strategies to Retrieve Your Accidentally Deleted Google Documents</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-silence-popular-apps-suddenly-inactive/"><u>Online Silence: Popular Apps Suddenly Inactive</u></a></li>
-<li><a href="https://facebook.techidaily.com/peering-back-through-the-lens-of-time-on-fb/"><u>Peering Back Through the Lens of Time on FB</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/step-by-step-guide-video-and-folder-compression-in-macos-finder/"><u>Step-by-Step Guide: Video & Folder Compression in macOS Finder</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-sources-for-securing-freelance-projects/"><u>Top 5 Sources for Securing Freelance Projects</u></a></li>
-<li><a href="https://facebook.techidaily.com/verify-fbs-safety-email-(securityfbcom)-authenticity/"><u>Verify FB's Safety Email: <security@fb.com> Authenticity?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-synchronize-your-calendars-for-smooth-video-calls/"><u>[Updated] 2024 Approved Synchronize Your Calendars for Smooth Video Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/17-motivating-reasons-to-take-a-social-media-vacation-now/"><u>17 Motivating Reasons to Take a Social Media Vacation Now</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-eye-appeal-the-top-3-ways-to-increase-instagram-visibility/"><u>2024 Approved Eye Appeal The Top 3 Ways to Increase Instagram Visibility</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-micro-musings-video-characters-and-sounds/"><u>2024 Approved Micro Musings Video Characters & Sounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/augment-reality-in-daily-conversations-via-messenger/"><u>Augment Reality in Daily Conversations via Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-facebook-image-alt-text/"><u>Best Practices for Facebook Image Alt-Text</u></a></li>
+<li><a href="https://facebook.techidaily.com/checking-historical-facebook-connections/"><u>Checking Historical Facebook Connections</u></a></li>
+<li><a href="https://network-issues.techidaily.com/empty-vram-no-graphic-support/"><u>Empty VRAM, No Graphic Support</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/excellent-quality-hd-video-preservers/"><u>Excellent Quality HD Video Preservers</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145917232-fortify-your-online-communications-facebooks-newly-launched-encrypted-chat-features-enhance-privacy/"><u>Fortify Your Online Communications: Facebook's Newly Launched Encrypted Chat Features Enhance Privacy.</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-augment-visuals-incorporating-black-box-and-letterboxing-in-social-media/"><u>In 2024, Augment Visuals Incorporating Black Box & Letterboxing in Social Media</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-choice-top-mp4-players-unveiled/"><u>In 2024, Ultimate Choice Top MP4 Players Unveiled</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/wasteland-2-directors-cut-evaluation-engaging-strategy-and-tactics-in-a-renowned-roleplaying-game/"><u>Wasteland 2 Director's Cut Evaluation: Engaging Strategy and Tactics in a Renowned Roleplaying Game</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153500304-zuckerbergs-litecoin-louie-innovative-pet-nomenclature/"><u>Zuckerberg's 'Litecoin Louie': Innovative Pet Nomenclature</u></a></li>
 </ul></div>
 

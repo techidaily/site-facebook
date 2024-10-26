@@ -1,7 +1,7 @@
 ---
 title: "The Fall of Forums: Top 6 Social Platform Factors"
-date: 2024-10-14T18:37:24.992Z
-updated: 2024-10-20T23:01:25.214Z
+date: 2024-10-24T20:21:17.171Z
+updated: 2024-10-26T22:12:50.007Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
  While you may be happy with the familiarity that comes from forums, a lot of people expect much more innovation than these platforms typically get. Even if social media platforms are sometimes slow to implement changes that their user base wants, you're probably less likely to stick around for changes to happen on a forum that already falls short of many features that social media offers.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Social Media Is Designed to be Attention-Grabbing
@@ -42,15 +42,22 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 ![A class of students paying attention to a lecture.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/students-attention.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Social media, by design, knows how to grab your attention and then hold it. You likely find yourself scrolling for a while on Twitter, Facebook, or some other social media before realizing you've lost track of time. While you could have the same experience on a forum, social media platforms are more adept at maintaining users' attention. This is because they run on an[attention economy model](https://www.makeuseof.com/tag/what-is-attention-economy/) , as your sustained usage makes these platforms money.
 
  The fast-moving nature, mixed media types (text, image, and video), and design principle of scrolling through a "timeline" encourage you to "catch up" are all examples of social media trying to keep you on the platform for longer. On a forum, you have many subsections—each with their own threads. They tend to be a bit more narrow in focus and long-form and predominately text-based, which is easier to pull yourself out of because it takes more sustained focus to navigate.
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Forums Seem Outdated
 
@@ -59,16 +66,10 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
  This is because young internet users will learn from people around them that are older about social media, and the less they see forums, the less chance they'll think to sign up for one. As time goes on, forums will likely become more obscure and more outdated—leading to fewer signups.
 
 <!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Forums Tend to Be Dedicated Around One Subject
@@ -76,13 +77,6 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
  This isn't a hard-and-fast rule, of course, but forums typically are dedicated to one subject—even if the actual boards have sections for many topics. Examples include mothers for MumsNet, gamers for IGN boards, and so on.
 
  Forums commonly have a subsection where you can talk about everyday life stuff, films, TV shows, games, anything that isn't related to the primary subject it was created for. However, because of this dedication to a single subject, it can lead to you thinking that they're very niche. This may not be favorable compared to Twitter, Facebook, or Instagram, all of which cover pretty much anything—and connect you to people based on a comprehensive algorithm or your manual searches.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Apps Are More User-Friendly
 
@@ -119,20 +113,19 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-best-unboxing-content-in-youtube-the-2024-edition/"><u>[New] Best Unboxing Content in YouTube - The 2024 Edition</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-understanding-the-impact-of-circular-videography/"><u>2024 Approved Understanding the Impact of Circular Videography</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-comprehensive-guide-to-finding-innovative-facebook-groups/"><u>A Comprehensive Guide to Finding Innovative Facebook Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-practices-reporting-and-managing-underage-account-usage/"><u>Best Practices: Reporting and Managing Underage Account Usage</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-sarcasm-and-jokes-in-fbc-messages/"><u>Breaking Down Sarcasm & Jokes in FBC Messages</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/breaking-the-mold-reinventing-yourself-with-a-new-username-in-windows-11/"><u>Breaking the Mold: Reinventing Yourself with a New UserName in Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-an-esteemed-facebook-presence-a-guide/"><u>Crafting an Esteemed Facebook Presence: A Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-listening-our-top-podcast-picks-for-22/"><u>Essential Listening: Our Top Podcast Picks for '22</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-samsung-galaxy-a05s-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Samsung Galaxy A05s</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Vivo G2 | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-acid-pro-alternatives-the-ultimate-review-series/"><u>In 2024, ACID Pro Alternatives The Ultimate Review Series</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/maximizing-playtime-together-sharing-games-with-pals-on-xbox-one/"><u>Maximizing Playtime Together: Sharing Games with Pals on Xbox One</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-new-controvernial-approach-to-advertising/"><u>Social Media's New Controvernial Approach to Advertising?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-poco-c51-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Poco C51 Device Top 5 Picks to Remove Android Locks</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-auto-gpt-unveiling-its-distinct-features-from-chatgpt/"><u>Understanding Auto-GPT: Unveiling Its Distinct Features From ChatGPT</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-discover-the-magic-behind-effective-youtube-short-videos-for-2024/"><u>[New] Discover the Magic Behind Effective YouTube Short Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-connectivity-adding-url-content/"><u>[Updated] Instagram Connectivity Adding URL Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-digital-obscurity-a-study-of-vague-content-sharing/"><u>Delving Into Digital Obscurity - A Study of Vague Content Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-how-grouping-strengthens-digital-relationships/"><u>Discover How Grouping Strengthens Digital Relationships</u></a></li>
+<li><a href="https://fox-info.techidaily.com/dive-deep-into-hdr-creation-the-ultimate-photoshop-playbook-for-2024/"><u>Dive Deep Into HDR Creation The Ultimate Photoshop Playbook for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-into-metas-verified-reputation-system/"><u>Diving Into Meta's Verified Reputation System</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-exclusion-of-extraneous-exchanges-in-fb-groups/"><u>Efficient Exclusion of Extraneous Exchanges in Fb Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/electric-future-total-renewable-infrastructure-at-fb/"><u>Electric Future: Total Renewable Infrastructure at FB</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-edge-40-pro-bootloader-easily-by-drfone-android/"><u>How to Unlock Motorola Edge 40 Pro Bootloader Easily</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Apple iPhone 8? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-itel-a60-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Itel A60 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-toolkit-for-dominating-social-media-management-smm/"><u>In 2024, The Ultimate Toolkit for Dominating Social Media Management (SMM)</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/patching-the-full-screen-problem-in-obs-for-2024/"><u>Patching the Full-Screen Problem in OBS for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/windows-11-install-latest-rtl8723b-chipset-driver/"><u>Windows 11: Install Latest RTL8723B Chipset Driver</u></a></li>
 </ul></div>
 

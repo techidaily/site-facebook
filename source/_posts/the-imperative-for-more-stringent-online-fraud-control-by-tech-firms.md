@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2024-10-13T18:25:03.833Z
-updated: 2024-10-21T01:22:34.221Z
+date: 2024-10-21T21:06:26.369Z
+updated: 2024-10-26T18:16:44.324Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -78,17 +78,20 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-tweet-treasure-trove-discovering-the-days-hot-videos/"><u>[New] 2024 Approved Tweet Treasure Trove Discovering the Day's Hot Videos</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-most-compelling-5-ios-podcast-solutions/"><u>[Updated] Most Compelling 5 iOS Podcast Solutions</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-revealing-gone-reddit-content-a-time-savers-guide/"><u>2024 Approved Revealing Gone-Reddit Content A Time Saver's Guide</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/awakening-from-darkness-a-step-by-step-approach-to-resolving-android-black-screens/"><u>Awakening From Darkness: A Step-by-Step Approach to Resolving Android Black Screens</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-interactive-online-communities-on-facebook/"><u>Building Interactive Online Communities on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/does-blog-anonymity-persist/"><u>Does Blog Anonymity Persist?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-vivo-y36i-frp-by-drfone-android/"><u>Full Guide to Bypass Vivo Y36i FRP</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-understanding-and-utilizing-igtv-for-enhanced-engagement/"><u>In 2024, Understanding and Utilizing IGTV for Enhanced Engagement</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ring-profit-on-beauty-channels/"><u>Mastering Profit on Beauty Channels</u></a></li>
-<li><a href="https://facebook.techidaily.com/ownership-dynamics-in-online-image-hosting/"><u>Ownership Dynamics in Online Image Hosting</u></a></li>
-<li><a href="https://program-issues.techidaily.com/speeding-up-fallout/"><u>Speeding Up Fallout 지정된 긴 로드 시간: 일관성 있는 수단</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-metas-social-supremacy-is-a-nightmare/"><u>Why Meta's Social Supremacy Is a Nightmare</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-10-indispensable-instagram-video-editing-apps-for-marketers/"><u>[Updated] 10 Indispensable Instagram Video Editing Apps for Marketers</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-transcribing-spoken-words-in-minutes-using-auto-transcribe-and-office-suite-tools/"><u>[Updated] In 2024, Transcribing Spoken Words in Minutes Using Auto-Transcribe and Office Suite Tools</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-capture-every-click-essential-screen-recorders-for-modern-browsers/"><u>2024 Approved Capture Every Click Essential Screen Recorders for Modern Browsers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-how-to-shoot-vertical-panorama-photos-with-your-mobile-phone/"><u>2024 Approved How to Shoot Vertical Panorama Photos with Your Mobile Phone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-mastering-the-art-of-live-cricket-livestreams/"><u>2024 Approved Mastering the Art of Live Cricket Livestreams</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-benefits-of-sleep-mode-in-messenger-kids/"><u>Deciphering the Benefits of Sleep Mode in Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-fortune-unites-with-who-in-health-crisis-funding/"><u>Digital Fortune Unites with WHO in Health Crisis Funding</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-realities-await-3-concerns-of-facebooks-metaverse/"><u>Digital Realities Await - 3 Concerns of Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-shunning-facial-identification-compromise-facebook-user-protection/"><u>Does Shunning Facial Identification Compromise Facebook User Protection?</u></a></li>
+<li><a href="https://facebook.techidaily.com/double-tap-deception-verifying-profiles-authenticity/"><u>Double-Tap Deception: Verifying Profiles' Authenticity</u></a></li>
+<li><a href="https://facebook.techidaily.com/earn-prestige-point-paid-metas-badge/"><u>Earn Prestige Point: Paid Metas Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-integration-of-new-users-in-fb-chat/"><u>Effortless Integration of New Users in FB Chat</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-lava-blaze-2-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-peculiar-pratfalls-memes-tailored-for-the-perfect-moment/"><u>In 2024, Peculiar Pratfalls Memes Tailored for the Perfect Moment</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/quick-fixes-restoring-internet-access-to-your-microsoft-surface-computing-device/"><u>Quick Fixes: Restoring Internet Access to Your Microsoft Surface Computing Device</u></a></li>
 </ul></div>
 

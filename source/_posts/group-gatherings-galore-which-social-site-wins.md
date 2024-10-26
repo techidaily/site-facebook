@@ -1,7 +1,7 @@
 ---
 title: "Group Gatherings Galore: Which Social Site Wins?"
-date: 2024-10-17T00:58:11.745Z
-updated: 2024-10-20T23:25:39.601Z
+date: 2024-10-20T21:50:36.888Z
+updated: 2024-10-26T16:53:05.876Z
 tags:
   - facebook
 categories:
@@ -35,16 +35,16 @@ thumbnail: https://thmb.techidaily.com/2b667f6d425e137d74634d5b5e43d01ba3b3015e3
  Based on this, it is clear that groups on Facebook are going to be much more active than on LinkedIn due to the sheer difference in the number of active users across the two platforms.
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## LinkedIn Groups vs. Facebook Groups: User Interface
@@ -61,6 +61,13 @@ thumbnail: https://thmb.techidaily.com/2b667f6d425e137d74634d5b5e43d01ba3b3015e3
 
 ![The Facebook Groups page displaying a feed of posts on a SEO group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/facebook-groups-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## LinkedIn vs. Facebook Groups: Quality of Content
 
  Quality of content is a subjective topic. However, there are clear examples of bad content that almost everybody judges to be so, namely self-promoting posts or low-effort posts asking for help or advice about a very basic thing that has already been answered before in the group.
@@ -73,27 +80,20 @@ thumbnail: https://thmb.techidaily.com/2b667f6d425e137d74634d5b5e43d01ba3b3015e3
 
 ![A feed of posts on the On Startus LinkedIn Groups page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/linkedin-groups-content.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Whereas on Facebook Groups, even despite the number of users, the content tends to be based on creating a discussion on a specific topic.
 
 ![A feed of content on a Digital Nomad and Entreupener Facebook Group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/facebook-groups-content.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  It's worth mentioning again that low-effort content usually appears if a group is unmoderated—and this applies to either platform. So while it does seem as though Facebook Groups tend to have the better quality of content on average, this does largely depend on what type of group you're in, how many members it has, and how well-moderated the group is.
 
  There are[different types of Facebook Groups](https://www.makeuseof.com/tag/facebook-closed-secret-groups/) . Closed or secret groups can often have better content simply because they limit new members from joining. Moderators of these groups tend to be a bit more active and caring about the quality of discussion in the group.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Why Is Facebook Groups the Better Platform?
 
@@ -106,10 +106,10 @@ thumbnail: https://thmb.techidaily.com/2b667f6d425e137d74634d5b5e43d01ba3b3015e3
  However, that doesn't mean this will always be the case. LinkedIn is a great place to cultivate a professional network. If you find that there are some LinkedIn Groups that have users but fail due to a lack of moderation or direction, you can always create your own LinkedIn Group and build a community from the ground up.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Find Your Community on Facebook Groups
@@ -131,14 +131,20 @@ thumbnail: https://thmb.techidaily.com/2b667f6d425e137d74634d5b5e43d01ba3b3015e3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/updated-commanding-youtube-realm-through-strategic-creator-studio-utilization/"><u>[Updated] Commanding YouTube Realm Through Strategic Creator Studio Utilization</u></a></li>
-<li><a href="https://facebook.techidaily.com/acquiring-personal-media-from-friends-social-networks-safely/"><u>Acquiring Personal Media From Friends' Social Networks Safely</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engaging-with-brit-banter-and-jargon/"><u>Engaging with Brit Banter and Jargon</u></a></li>
-<li><a href="https://facebook.techidaily.com/halt-unsolicited-friend-recommendations-on-fb/"><u>Halt Unsolicited Friend Recommendations on FB</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-to-pair-a-subwoofer-to-a-samsung-soundbar/"><u>How to Pair a Subwoofer to a Samsung Soundbar</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/hp-officejet-pro-8715-printer-drivers-free-downloads-for-windows-11-10-and-8/"><u>HP Officejet Pro 8715 Printer Drivers: Free Downloads for Windows 11, 10 & 8</u></a></li>
-<li><a href="https://facebook.techidaily.com/telegrams-unexpected-boom-following-fb-shutdown-hours/"><u>Telegram's Unexpected Boom Following FB Shutdown Hours</u></a></li>
-<li><a href="https://blog-min.techidaily.com/umwandlung-von-mkv-dateien-ohne-kosten-hochwertige-und-schnelle-verschlankung-mit-h265/"><u>Umwandlung Von MKV-Dateien Ohne Kosten: Hochwertige Und Schnelle Verschlankung Mit H.265</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-enhanced-privacy-settings-on-facebooks-redesigned-interface/"><u>Unlocking Enhanced Privacy Settings on Facebook’s Redesigned Interface</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-achieve-excellence-in-zoom-videos-using-key-conversion-techniques/"><u>[New] Achieve Excellence in Zoom Videos Using Key Conversion Techniques</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-speedy-snapshot-and-voice-guided-session-creator-for-2024/"><u>[New] Speedy Snapshot & Voice-Guided Session Creator for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-gap-between-metaverse-and-vr-understanding-6-key-variations/"><u>Deciphering The Gap Between Metaverse & VR: Understanding 6 Key Variations</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-fb-success-top-8-advantages-for-corporate-profiles-over-personal/"><u>Decoding FB Success: Top 8 Advantages for Corporate Profiles over Personal</u></a></li>
+<li><a href="https://facebook.techidaily.com/decrease-personalized-promotions-on-social-platforms/"><u>Decrease Personalized Promotions on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreet-data-harvesting-securely-downloading-personal-fb-vids/"><u>Discreet Data Harvesting: Securely Downloading Personal FB Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-to-implement-2fa-on-facebook-platform/"><u>Easy Steps to Implement 2FA on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-privacy-game-facebooks-secure-strategies-explained/"><u>Elevate Your Privacy Game: Facebook's Secure Strategies Explained</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Vivo S17 Pro? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-nubia-red-magic-9-proplus-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Nubia Red Magic 9 Pro+ using Video Repair Utility on Windows? </u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-become-a-gif-artist-basic-steps/"><u>In 2024, Become a GIF Artist Basic Steps</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-vivo-y77t-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Vivo Y77t to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/stellar-file-eraser-5-mac-standard-en-schedule-erasure-for-erasing-files-and-folders/"><u>Stellar File Eraser 5 Mac Standard en Schedule Erasure for Erasing Files and Folders</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-9-chatgpt-integration-tools-enhance-your-site-today/"><u>Top 9 ChatGPT Integration Tools: Enhance Your Site Today</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/understanding-dac-essential-knowledge-and-its-importance-in-audio-technology/"><u>Understanding DAC: Essential Knowledge & Its Importance in Audio Technology</u></a></li>
 </ul></div>
 

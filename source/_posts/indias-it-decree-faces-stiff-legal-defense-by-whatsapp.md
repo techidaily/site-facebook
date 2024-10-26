@@ -1,7 +1,7 @@
 ---
 title: India's IT Decree Faces Stiff Legal Defense by WhatsApp
-date: 2024-10-16T18:28:11.675Z
-updated: 2024-10-20T21:13:13.766Z
+date: 2024-10-21T16:47:44.322Z
+updated: 2024-10-26T20:47:55.456Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
  This basically means that WhatsApp should provide details on the origins of a message, i.e., the sender if requested by the government. WhatsApp claims in its lawsuit that this rule is unconstitutional.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Indian Government Wants to Regulate Social Media Content
@@ -46,10 +46,10 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![Close-up of the WhatsApp logo on a phone being held up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/India-Not-Backing-Down-WhatsApp-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  A WhatsApp spokesperson issued the following statement to[The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
@@ -69,10 +69,10 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![WhatsApp](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fix-whatsapp-notifications-windows-10-featured.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  WhatsApp's move against the Indian government comes at a time when it has itself been[subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned[WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
@@ -80,10 +80,10 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
  Related:[Best WhatsApp Alternatives That Don’t Share Your Data With Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## India Is One of WhatsApp's Key Markets
@@ -107,24 +107,24 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-art-of-adding-gifs-to-instagram-posts-4-easy-steps/"><u>[Updated] In 2024, The Art of Adding GIFs to Instagram Posts (4 Easy Steps)</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-link-zoom-calls-to-iphoneandroid-events-seamlessly/"><u>[Updated] Link Zoom Calls to iPhone/Android Events Seamlessly</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-maximize-your-valorant-potential-try-this-costless-game-changer-today/"><u>[Updated] Maximize Your Valorant Potential - Try This Costless Game Changer Today</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-unlocking-your-youtube-success-story-a-comprehensive-guide-to-creative-studio/"><u>[Updated] Unlocking Your Youtube Success Story A Comprehensive Guide to Creative Studio</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-surging-no-to-apples-tracking-practices/"><u>A Surging No to Apple's Tracking Practices</u></a></li>
-<li><a href="https://facebook.techidaily.com/detailed-guide-modifying-fb-picture-sharing/"><u>Detailed Guide: Modifying FB Picture Sharing</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/easy-steps-to-hassle-free-high-dynamic-range-imaging/"><u>Easy Steps to Hassle-Free High Dynamic Range Imaging</u></a></li>
-<li><a href="https://facebook.techidaily.com/easy-ways-to-detect-unauthorized-pc-access/"><u>Easy Ways to Detect Unauthorized PC Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-safety-account-verification-is-(securityfbcom)-reliable/"><u>Facebook Safety Account Verification: Is <security@fb.com> Reliable?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-honor-80-pro-straight-screen-edition-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Honor 80 Pro Straight Screen Edition Phone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-lava-blaze-curve-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Lava Blaze Curve 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-meta-ai-a-step-forward-or-back-for-social-networks/"><u>Is Meta AI a Step Forward or Back for Social Networks?</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-google-gemini-a-step-by-step-guide/"><u>Mastering Google Gemini: A Step-by-Step Guide</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/quickcapture-chromes-screen-recording-feature/"><u>QuickCapture Chrome's Screen Recording Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguarding-kids-digital-footprint-update-on-messenger-kids/"><u>Safeguarding Kids' Digital Footprint: Update on Messenger Kids</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-best-of-podcasting-in-22-reviews-and-reflections/"><u>The Best of Podcasting in '22 - Reviews and Reflections</u></a></li>
-<li><a href="https://blog-min.techidaily.com/the-secrets-behind-4k-video-resizing-for-better-clarity-on-older-footage/"><u>The Secrets Behind 4K Video Resizing for Better Clarity on Older Footage</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-facebook-smart-hub-buying-guide/"><u>The Ultimate Facebook Smart Hub Buying Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/unshielded-from-sanctions-facebook-fosters-hate-campaigns/"><u>Unshielded From Sanctions, Facebook Fosters Hate Campaigns</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-efficient-routes-to-google-pixel-soundscapes/"><u>[New] 2024 Approved Efficient Routes to Google Pixel Soundscapes</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-clash-for-dominance-leading-royale-games/"><u>[New] In 2024, Clash for Dominance Leading Royale Games</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mememasters-suite-download/"><u>[New] MemeMasters Suite Download</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-quick-click-quality-4-simple-steps-to-take-a-chromebook-screenshot/"><u>[New] Quick Click Quality 4 Simple Steps to Take a Chromebook Screenshot</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-premium-quality-transformer-for-video-enthusiasts/"><u>[Updated] Premium Quality Transformer for Video Enthusiasts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-learn-how-to-rewind-video-ordering-on-android/"><u>2024 Approved Learn How to Rewind Video Ordering on Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-excellent-tools-for-your-content-calendar-management/"><u>8 Excellent Tools for Your Content Calendar Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-tips-that-make-your-life-easier-safer-on-marketplace/"><u>9 Tips That Make Your Life Easier, Safer on Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-facebooks-name-switch-from-news-to-just-feed/"><u>A Closer Look at Facebook's Name Switch: From News to Just Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-plan-to-transform-your-online-biography/"><u>A Step-by-Step Plan to Transform Your Online Biography</u></a></li>
+<li><a href="https://facebook.techidaily.com/acknowledging-whole-groups-with-a-single-facebook-update/"><u>Acknowledging Whole Groups with a Single Facebook Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/adding-depth-to-social-media-posting-3d-images-on-facebook/"><u>Adding Depth to Social Media: Posting 3D Images on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/captivating-audiences-pages-and-group-polling-mastery/"><u>Captivating Audiences: Pages & Group Polling Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensively-exploring-metas-latest-privacy-regulations/"><u>Comprehensively Exploring Meta’s Latest Privacy Regulations</u></a></li>
+<li><a href="https://facebook.techidaily.com/control-who-sees-your-on-this-day-reminisces/"><u>Control Who Sees Your On This Day Reminisces</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-about-realme-narzo-60-pro-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Realme Narzo 60 Pro 5G FRP Bypass</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Lava Yuva 2? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/revolutionizing-creative-industries-with-chatgpt/"><u>Revolutionizing Creative Industries with ChatGPT</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-guide-transforming-mp4-audio-files-into-mp3-format-with-windows-media-player/"><u>Step-by-Step Guide: Transforming MP4 Audio Files Into MP3 Format with Windows Media Player</u></a></li>
 </ul></div>
 

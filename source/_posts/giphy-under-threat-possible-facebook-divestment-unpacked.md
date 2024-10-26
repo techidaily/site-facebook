@@ -1,7 +1,7 @@
 ---
 title: Giphy Under Threat? Possible Facebook Divestment Unpacked
-date: 2024-10-17T16:27:48.698Z
-updated: 2024-10-21T01:39:21.402Z
+date: 2024-10-24T16:06:17.188Z
+updated: 2024-10-26T20:34:27.001Z
 tags:
   - facebook
 categories:
@@ -41,10 +41,10 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Meta's Appeal to Keep Giphy
@@ -52,10 +52,10 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
@@ -71,10 +71,10 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
@@ -100,24 +100,18 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-decoding-how-to-effectively-swap-photo-genders-online-a-comprehensive-approach/"><u>[New] Decoding How to Effectively Swap Photo Genders Online A Comprehensive Approach</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-how-to-disable-instagrams-igtv/"><u>[New] In 2024, How to Disable Instagram's IGTV</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-discovering-vimeo-home-for-high-quality-films/"><u>[Updated] In 2024, Discovering Vimeo Home for High-Quality Films</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-lenovos-4-top-recording-methods-made-simple/"><u>[Updated] Lenovo's 4 Top Recording Methods Made Simple</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-quick-tips-screen-recording-made-simple-for-mac-users/"><u>[Updated] Quick Tips Screen Recording Made Simple for Mac Users</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/a-roadmap-for-optimizing-and-tracking-your-fb-in-stream-ad-performance-for-2024/"><u>A Roadmap for Optimizing and Tracking Your FB In-Stream Ad Performance for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/december-brings-the-end-of-instas-thoughtful-threads/"><u>December Brings the End of Insta's Thoughtful Threads</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-privacy-tips-shun-these-threatening-apps/"><u>Essential Privacy Tips: Shun These Threatening Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-engagement-is-the-upsurge-over/"><u>Facebook's Engagement: Is the Upsurge Over?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-infinix-note-30-vip-lock-screen-password-by-drfone-android/"><u>How to Reset your Infinix Note 30 VIP Lock Screen Password</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-oppo-a1x-5g-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Oppo A1x 5G PC | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-apple-iphone-13-pro-drfone-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-your-fb-page-pristine-banning-inappropriate-users/"><u>Keeping Your FB Page Pristine: Banning Inappropriate Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-more-footprints-purge-facebook-history-efficiently/"><u>No More Footprints: Purge Facebook History Efficiently</u></a></li>
-<li><a href="https://facebook.techidaily.com/seamless-method-to-update-fb-birth-details/"><u>Seamless Method to Update FB Birth Details</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategizing-discreet-social-media-exposure/"><u>Strategizing Discreet Social Media Exposure</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-networks-new-chapter-in-love-and-friendship-features/"><u>The Social Network's New Chapter in Love and Friendship Features</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/top-rated-mkv-to-dvd-conversion-software-for-pc/"><u>Top Rated MKV to DVD Conversion Software for PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/zucks-farming-ventures-crypto-inspired-goat-name-revealed/"><u>Zuck's Farming Ventures: Crypto-Inspired Goat Name Revealed.</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-the-ultimate-guide-to-discord-live-broadcasts/"><u>[New] 2024 Approved The Ultimate Guide to Discord Live Broadcasts</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-native-os-capture-utility-chrome-edition/"><u>[New] In 2024, Native OS Capture Utility Chrome Edition</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-step-into-the-world-of-expressive-snapchat-lenses/"><u>[New] Step Into the World of Expressive Snapchat Lenses</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-showcasing-design-brilliance-best-10-text-setups-in-ae/"><u>2024 Approved Showcasing Design Brilliance Best 10 Text Setups in AE</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-the-best-apps-to-skyrocket-your-site-visitors-our-picks-revealed/"><u>Discover the Best Apps to Skyrocket Your Site Visitors, Our Picks Revealed</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastering-the-giants-of-social-platforms-a-guide-to-facebook-twitter-instagram-and-youtube/"><u>Mastering the Giants of Social Platforms: A Guide to Facebook, Twitter, Instagram & Youtube</u></a></li>
+<li><a href="https://facebook.techidaily.com/mindful-metrics-assessing-your-online-influence/"><u>Mindful Metrics: Assessing Your Online Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/patterns-in-internet-account-compromises/"><u>Patterns in Internet Account Compromises</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/photo-memory-locker-at-no-cost-plus-elite-charged-cloud-spheres-for-2024/"><u>Photo Memory Locker at No Cost, Plus Elite Charged Cloud Spheres for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-definitive-guide-to-secure-social-networking-on-fb/"><u>The Definitive Guide to Secure Social Networking on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-end-of-an-era-instas-chats-discontinued/"><u>The End of an Era: Insta’s Chats Discontinued</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Oppo A2? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2k4kamoonshot/"><u>ハイビジョンの違い解明！2Kと4K動画についamoonshot！次世代コンテンツへ</u></a></li>
 </ul></div>
 

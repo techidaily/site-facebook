@@ -1,7 +1,7 @@
 ---
 title: Tips to Ensure Facebook Only Seen by Friends
-date: 2024-10-13T18:42:52.867Z
-updated: 2024-10-20T16:35:15.845Z
+date: 2024-10-23T21:15:17.234Z
+updated: 2024-10-26T16:27:23.898Z
 tags:
   - facebook
 categories:
@@ -39,13 +39,6 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Lock Your Facebook Profile Down
 
  Facebook's lock feature is a safety feature that allows users, specifically women, in specific regions to lock their profiles from outsiders. The goal is to limit access to your account and give you more control over your experience. Accounts with the lock feature enabled have a**lock icon** in the profile. Here's what it prevents non-friends from doing:
@@ -70,10 +63,10 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Change Your Facebook Profile Discovery Settings
@@ -91,17 +84,10 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Change Your Facebook Post Settings
@@ -116,6 +102,20 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 4. Choose the**Friends** option in the**drop-down menu** . You can also choose**Specific friends** or exclude some people by selecting the**Friends except** option. Click**Close** when you're done.
 
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Keep a Low Profile on Facebook
 
@@ -138,18 +138,22 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-secret-tips-for-stunning-sketches-and-scans/"><u>[New] 2024 Approved Secret Tips for Stunning Sketches & Scans</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/dd-a-professional-touch-youtube-video-image-crafting-for-2024/"><u>[New] Add a Professional Touch YouTube Video Image Crafting for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-free-online-image-perfection-at-your-fingertips/"><u>[New] Free Online Image Perfection at Your Fingertips</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-unparalleled-free-console-reproduction-software/"><u>2024 Approved Unparalleled Free Console Reproduction Software</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/complete-fixes-to-solve-apple-iphone-7-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>Complete Fixes To Solve Apple iPhone 7 Randomly Asking for Apple ID Password</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-launches-a-music-revenue-sharing-program-how-does-it-work/"><u>Facebook Launches a Music Revenue-Sharing Program: How Does It Work?</u></a></li>
-<li><a href="https://facebook.techidaily.com/google-and-linkedins-covert-tracking-for-uninterrupted-service/"><u>Google and LinkedIn's Covert Tracking for Uninterrupted Service</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/how-user-generated-feedback-influences-video-ranks/"><u>How User-Generated Feedback Influences Video Ranks</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/phoenix-renewal-the-pdf-repair-solution/"><u>Phoenix Renewal: The PDF Repair Solution</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-concerns-when-will-fb-messaging-go-e2ee/"><u>Privacy Concerns: When Will FB Messaging Go E2EE?</u></a></li>
-<li><a href="https://facebook.techidaily.com/room-exploration-essentials-for-the-messaging-novice/"><u>Room Exploration Essentials for the Messaging Novice</u></a></li>
-<li><a href="https://games-able.techidaily.com/toggle-times-unite-players-set-new-zone-for-xbox/"><u>Toggle Times, Unite Players: Set New Zone for Xbox</u></a></li>
-<li><a href="https://facebook.techidaily.com/vk-unveiled-grasping-russias-digital-landmark/"><u>VK Unveiled: Grasping Russia's Digital Landmark</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-personalize-the-save-spot-of-mac-images/"><u>[Updated] 2024 Approved Personalize the Save Spot of Mac Images</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-your-gaming-channel-on-youtube/"><u>[Updated] In 2024, Crafting Your Gaming Channel on YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-video-format-mastery-best-practices-for-instagram-for-2024/"><u>[Updated] Video Format Mastery Best Practices for Instagram for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-online-identity-with-facebook-page-update/"><u>Enhancing Online Identity with Facebook Page Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-5-key-ways-to-leverage-facebook-in-your-career/"><u>Exploring 5 Key Ways to Leverage Facebook in Your Career</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-now-powered-entirely-by-renewable-energy/"><u>Facebook Is Now Powered Entirely by Renewable Energy</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-find-your-hidden-messages-on-facebook-messenger/"><u>How to Find Your Hidden Messages on Facebook Messenger</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-realme-c53-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from Realme C53</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-on-iphone-11-pro-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code On iPhone 11 Pro in the Best Ways</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-fitbit-charge-4-a-perfect-blend-of-design-and-performance/"><u>In-Depth Analysis of Fitbit Charge 4: A Perfect Blend of Design & Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-oculus-quest-more-secure-on-meta-or-fb-platforms/"><u>Is Oculus Quest More Secure on Meta or FB Platforms?</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-vs-virtual-reality-exploring-6-diverging-paradigms/"><u>Metaverse Vs. Virtual Reality: Exploring 6 Diverging Paradigms</u></a></li>
+<li><a href="https://facebook.techidaily.com/staying-safe-from-social-engineering-snares/"><u>Staying Safe From Social Engineering Snares</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fight-for-freedom-trumps-legal-challenge-to-tech-firms/"><u>The Fight for Freedom: Trump's Legal Challenge to Tech Firms</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-selection-of-text-enhancers-for-adobe-ae-for-2024/"><u>The Ultimate Selection of Text Enhancers for Adobe AE for 2024</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/1728478140851-windows-server/"><u>Windows Server 系統復原與備份操作調查 - 逐步解析</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Textual Excellence in Messages: Beyond Basic Fonts"
-date: 2024-10-13T21:01:45.909Z
-updated: 2024-10-20T19:17:21.367Z
+date: 2024-10-25T17:48:03.153Z
+updated: 2024-10-26T20:35:43.845Z
 tags:
   - facebook
 categories:
@@ -38,31 +38,18 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
 ![Bold text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/bold-text-demo-messenger.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  To make a text bold, type an asterisk (\*) before and after the text. Bold text is most often used for strong emphasis on important phrases and keywords.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Make Italic Text in Messenger
 
 ![Italicize text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/italicize-text-demo-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
 
@@ -73,13 +60,6 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Use Monospace Text in Messenger
 
@@ -92,15 +72,22 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Send Blocks of Code in Messenger
 
 ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
 
@@ -113,6 +100,13 @@ To send text in a block of code:
 5. Type three more backticks and send your text.
 
  This will send your text with code formatting. This is just one of the many[things you can do with Facebook Messenger](https://www.makeuseof.com/things-you-can-do-facebook-messenger-features/) .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Customize Your Facebook Messages With Text Formatting
 
@@ -135,21 +129,16 @@ To send text in a block of code:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-optimized-obs-options-for-low-end-systems/"><u>[New] 2024 Approved Optimized OBS Options for Low-End Systems</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-17-best-lights-and-lighting-equipment-for-youtube/"><u>[Updated] 17 Best Lights and Lighting Equipment for YouTube</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-navigating-legal-pathways-for-gaining-a-million-youtube-views/"><u>[Updated] Navigating Legal Pathways for Gaining a Million YouTube Views</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-watch-deleted-youtube-secrets-to-accessing-lost-content/"><u>[Updated] Watch Deleted YouTube Secrets to Accessing Lost Content</u></a></li>
-<li><a href="https://win-dash.techidaily.com/comprehvew-the-definitive-guide-to-obtaining-and-updating-d-link-drivers-on-your-windows-system/"><u>Comprehvew: The Definitive Guide to Obtaining and Updating D-Link Drivers on Your Windows System</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-discreet-content-filtering-by-fb/"><u>Deciphering the Discreet Content Filtering by Fb</u></a></li>
-<li><a href="https://facebook.techidaily.com/disconnect-wisely-six-benefits-of-ditching-facebook/"><u>Disconnect Wisely - Six Benefits of Ditching Facebook</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-samsung-galaxy-s23-tactical-edition-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Samsung Galaxy S23 Tactical Edition Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-10-techniques-for-youtube-to-mpeg-conversion/"><u>In 2024, Top 10 Techniques for YouTube-to-MPEG Conversion</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-unplugged-and-back-online/"><u>Instagram Unplugged and Back Online</u></a></li>
-<li><a href="https://games-able.techidaily.com/mastering-chatgpt-the-ultimate-text-based-rpg-guide/"><u>Mastering ChatGPT: The Ultimate Text-Based RPG Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigate-fb-more-smoothly-with-shortcut-management/"><u>Navigate FB More Smoothly With Shortcut Management</u></a></li>
-<li><a href="https://facebook.techidaily.com/simplified-approach-to-delete-digital-dialogue-on-fb/"><u>Simplified Approach to Delete Digital Dialogue on Fb</u></a></li>
-<li><a href="https://facebook.techidaily.com/stay-safe-in-a-digital-world-reasons-not-to-accept-all-friend-requests/"><u>Stay Safe in a Digital World: Reasons Not to Accept All Friend Requests</u></a></li>
-<li><a href="https://facebook.techidaily.com/techniques-for-improving-loaded-facebook-alerts/"><u>Techniques for Improving Loaded Facebook Alerts</u></a></li>
-<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-zooming-into-clarity-a-blueprint-for-crisp-screenshots/"><u>[New] 2024 Approved Zooming Into Clarity A Blueprint for Crisp Screenshots</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-altering-snapchat-audio-a-dual-approach-explained-for-2024/"><u>[Updated] Altering Snapchat Audio A Dual Approach Explained for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/discover-the-future-of-gaming-monitors-as-acer-launches-three-oled-panels-including-ultra-fast-27-inch-predator-x2n-u-f3/"><u>Discover the Future of Gaming Monitors as Acer Launches Three OLED Panels, Including Ultra-Fast 27-Inch Predator X2n U F3</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-honor-magic-5-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Honor Magic 5</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-new-virtual-reality-potential-on-messenger/"><u>Facebook Unveils New Virtual Reality Potential on Messenger</u></a></li>
+<li><a href="https://win-guides.techidaily.com/guide-to-downloading-ndr-streams-tips-and-tricks-for-macos-and-windows-users/"><u>Guide to Downloading NDR Streams: Tips and Tricks for macOS & Windows Users</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-copy-data-from-samsung-to-pixel-8-and-pixel-8-pro-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Copy Data from Samsung to Pixel 8 and Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-likes-with-strategic-use-of-hashtags-in-facebook-posts/"><u>Maximizing Likes with Strategic Use of Hashtags in Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-reassessment-of-trumps-status/"><u>Platform Reassessment of Trumps' Status</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-steps-how-to-fix-amazon-prime-video-streaming-issues/"><u>Troubleshooting Steps: How to Fix Amazon Prime Video Streaming Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-why-disable-isnt-an-option-for-facebook-suggests/"><u>Understanding Why Disable Isn’t an Option for Facebook Suggests</u></a></li>
 </ul></div>
 

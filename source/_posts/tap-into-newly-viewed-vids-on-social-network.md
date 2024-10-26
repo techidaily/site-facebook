@@ -1,7 +1,7 @@
 ---
 title: Tap Into Newly Viewed Vids on Social Network
-date: 2024-10-16T23:17:28.174Z
-updated: 2024-10-20T22:07:50.817Z
+date: 2024-10-25T21:54:20.364Z
+updated: 2024-10-26T16:29:05.369Z
 tags:
   - facebook
 categories:
@@ -59,10 +59,10 @@ That's it. Here you will find all the recently watched videos.
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Recently Watched Facebook Videos on Android and iOS
@@ -71,22 +71,15 @@ That's it. Here you will find all the recently watched videos.
 
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -100,13 +93,6 @@ Close
 
  You'll now see all the videos you recently watched on your Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Filter Facebook Watched Videos by Date on Android and iOS
 
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
@@ -115,12 +101,26 @@ Close
 
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
 1. Open the Activity log window on your Android or iOS device.
 2. Slide the available activities to the left and choose the Videos watched option.
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
 
@@ -141,21 +141,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-fix-for-silent-audio-on-obs/"><u>[New] Fix for Silent Audio on OBS</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-conquer-time-lapse-with-your-canon-camera/"><u>[New] In 2024, Conquer Time-Lapse with Your Canon Camera</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-stepwise-approach-to-unlinking-and-removing-youtube-content/"><u>[Updated] 2024 Approved A Stepwise Approach to Unlinking and Removing YouTube Content</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-pixeled-play-logbook/"><u>[Updated] In 2024, Pixeled Play Logbook</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-rhythm-in-reels-the-essentials-of-iphone-video-making/"><u>[Updated] Rhythm in Reels The Essentials of iPhone Video Making</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-secret-sauce-for-stellar-telegram-campaigns-for-2024/"><u>[Updated] The Secret Sauce for Stellar Telegram Campaigns for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-seamless-video-editing-turning-avi-into-easily-shareable-gifs-with-filmora/"><u>2024 Approved Seamless Video Editing Turning AVI Into Easily Shareable GIFs with Filmora</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-methods-to-simplify-and-purge-your-feed/"><u>5 Methods to Simplify and Purge Your Feed</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-growth-plateau-analysis-needed/"><u>Facebook's Growth Plateau – Analysis Needed</u></a></li>
-<li><a href="https://win-able.techidaily.com/far-cry-6-pc-instability-fixed-no-more-game-crashes/"><u>Far Cry 6 PC Instability Fixed: No More Game Crashes</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-every-shared-photo-permanent-archive/"><u>Is Every Shared Photo Permanent Archive?</u></a></li>
-<li><a href="https://facebook.techidaily.com/premium-metas-gain-verified-identity-badge/"><u>Premium Metas: Gain Verified Identity Badge</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/step-by-step-tutorial-for-downloading-and-installing-samsung-nvme-960-evo-drive-on-windows-computers/"><u>Step-by-Step Tutorial for Downloading & Installing Samsung NVMe 960 EVO Drive on Windows Computers</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-privacy-playbook-a-list-of-sharing-taboos-on-the-web/"><u>The Privacy Playbook: A List of Sharing Taboos on the Web</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-world-of-non-facebook-direct-messaging/"><u>The World of Non-Facebook Direct Messaging</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-magic-creating-and-sharing-3d-pictures-on-fb/"><u>Unveiling the Magic: Creating and Sharing 3D Pictures on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-the-art-of-instagram-video-sharing-for-2024/"><u>[New] Mastering the Art of Instagram Video Sharing for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/apples-autonomous-vehicle-unveiled-latest-insights-on-cost-launch-timeline-and-specifications/"><u>Apple's Autonomous Vehicle Unveiled: Latest Insights on Cost, Launch Timeline & Specifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-whos-in-your-fb-blacklist/"><u>Deciphering Who’s in Your FB Blacklist</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebook-emojis-a-comprehensive-guide/"><u>Decoding Facebook Emojis: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-the-deepest-dive-2022s-best-rated-podcasts/"><u>Delving Into the Deepest Dive: 2022'S Best-Rated Podcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-platforms-and-their-rating-systems/"><u>Digital Platforms and Their Rating Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-conversation-with-augmented-interactions-on-messenger/"><u>Elevate Conversation with Augmented Interactions on Messenger</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/free-conversion-of-dts-audio-files-online-tools-and-services/"><u>Free Conversion of DTS Audio Files: Online Tools and Services</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/no-more-loopholes-valves-new-refund-rules/"><u>No More Loopholes: Valve's New Refund Rules</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/social-media-ingenuity-how-to-develop-captivating-facebook-slideshows-for-2024/"><u>Social Media Ingenuity How to Develop Captivating Facebook SlideShows for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-the-ultimate-checklist-for-auditioning-high-caliber-soundscape-architects/"><u>Updated In 2024, The Ultimate Checklist for Auditioning High-Caliber Soundscape Architects</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Undervalued Tech Developments - Top 4 Silent Game Changers
-date: 2024-10-14T19:15:59.041Z
-updated: 2024-10-20T16:49:31.008Z
+date: 2024-10-22T21:37:43.354Z
+updated: 2024-10-26T21:17:30.688Z
 tags:
   - facebook
 categories:
@@ -40,15 +40,22 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The $2.9 Million Tweet
 
 ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
@@ -60,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
  Related:[Jack Dorsey Sells the First-Ever Tweet](https://www.makeuseof.com/jack-dorsey-sold-first-tweet/)
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to[professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Welcome to the Metaverse
 
@@ -76,22 +90,15 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Apple and Facebook's Privacy War
 
 ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
@@ -102,13 +109,6 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
  Related:[How iOS 14.5 Will Hurt Facebook](https://www.makeuseof.com/how-the-ios-14-5-update-is-going-to-really-hurt-facebook/)
 
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What Tech News Will We See in 2022?
 
@@ -131,22 +131,16 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://program-issues.techidaily.com/fixed-wow-screen-flickering-issue/"><u>[FIXED] WOW Screen Flickering Issue</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-how-to-climb-the-social-ladder-a-guide-to-higher-facebook-page-ranks/"><u>[Updated] 2024 Approved How to Climb the Social Ladder A Guide to Higher Facebook Page Ranks</u></a></li>
-<li><a href="https://facebook.techidaily.com/7-key-revelations-from-the-facebook-papers/"><u>7 Key Revelations From The Facebook Papers</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-act-strategically-managing-your-facebook-friend-network/"><u>Balancing Act: Strategically Managing Your Facebook Friend Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/dynamic-user-defined-avatars-hit-oculus-market/"><u>Dynamic, User-Defined Avatars Hit Oculus Market</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/1719324521716-elevating-your-windows-screenshot-game-with-these-fixes/"><u>Elevating Your Windows Screenshot Game with These Fixes.</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/footwear/"><u>Footwear</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-john-doe-to-jane-smith-mastering-the-facebook-renaming-journey/"><u>From John Doe to Jane Smith: Mastering the Facebook Renaming Journey</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-overcome-launch-errors-in-modern-warfare-2-expert-advice-and-fixes/"><u>How to Overcome Launch Errors in Modern Warfare 2: Expert Advice and Fixes</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-stop-ghostwire-tokyo-from-frequently-crashing-on-your-computer-issue-solved/"><u>How to Stop Ghostwire: Tokyo From Frequently Crashing on Your Computer (Issue Solved)</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-vpns-revolutionized-online-security/"><u>How VPNs Revolutionized Online Security</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-samsung-galaxy-z-fold-5-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Samsung Galaxy Z Fold 5 Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo X Flip | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-review-of-urban-armor-macbook-pro-case-striking-the-balance-between-protection-and-practicality/"><u>In-Depth Review of Urban Armor MacBook Pro Case: Striking the Balance Between Protection and Practicality</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-and-fb-data-protection-vr-headset-user-guide/"><u>Meta and FB Data Protection: VR Headset User Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/sunlit-surfaces-fb-operations-bathed-in-solar-energy/"><u>Sunlit Surfaces: FB Operations Bathed in Solar Energy</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-reschedules-introduction-of-revised-privacy-terms/"><u>WhatsApp Reschedules Introduction of Revised Privacy Terms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-download-playback-streaming-youtube-videos-on-ios-securely-and-smoothly/"><u>[Updated] 2024 Approved Download Playback Streaming Youtube Videos on iOS Securely and Smoothly</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-to-enhanced-fb-security/"><u>A Step-by-Step Approach to Enhanced FB Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-you-apart-from-friends-on-fb-truths-unveiled/"><u>Are You Apart From Friends on FB? Truths Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-a-course-through-meta-user-management-portal/"><u>Charting a Course Through Meta User Management Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-conversation-clarity-formatting-highlights/"><u>Crafting Conversation Clarity: Formatting Highlights</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elevating-your-role-play-advanced-closer-views-techniques-for-2024/"><u>Elevating Your Role-Play Advanced Closer Views Techniques for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-latest-amd-radeon-professional-w5700-drivers-for-windows-versions-update-now/"><u>Get Your Latest AMD Radeon Professional W5700 Drivers for Windows Versions - Update Now!</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-nubia-red-magic-8s-proplus-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Nubia Red Magic 8S Pro+ Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152494885-newsfeed-no-more-complicated-facebooks-revolutionary-upgrade/"><u>Newsfeed No More Complicated – Facebook's Revolutionary Upgrade!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-vivo-s18e-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Vivo S18e Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/unraveling-and-remedying-chromes-profile-anomalies/"><u>Unraveling and Remedying Chrome's Profile Anomalies</u></a></li>
 </ul></div>
 

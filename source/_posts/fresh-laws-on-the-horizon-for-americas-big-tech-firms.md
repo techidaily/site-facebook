@@ -1,7 +1,7 @@
 ---
 title: Fresh Laws on the Horizon for America's Big Tech Firms
-date: 2024-10-14T21:36:09.270Z
-updated: 2024-10-20T20:09:03.118Z
+date: 2024-10-22T16:35:17.779Z
+updated: 2024-10-26T17:06:16.987Z
 tags:
   - facebook
 categories:
@@ -43,10 +43,16 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
@@ -61,13 +67,6 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -81,10 +80,10 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. The Ending Platform Monopolies Act
@@ -97,13 +96,6 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
 In essence: leave the selling to the sellers.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -114,9 +106,23 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -151,19 +157,19 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/est-5-video-editing-platforms-that-dont-feature-in-youtoo-for-2024/"><u>[New] Best 5 Video Editing Platforms That Don't Feature in YouToo for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-boost-views-and-engagement-top-rated-online-keyword-generators/"><u>[New] Boost Views and Engagement Top-Rated Online Keyword Generators</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/beware-top-9-phony-chatgpt-virus-tools-that-could-compromise-your-privacy/"><u>Beware: Top 9 Phony ChatGPT Virus Tools That Could Compromise Your Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/big-brother-business-profit-from-peering/"><u>Big Brother Business: Profit From Peering</u></a></li>
-<li><a href="https://facebook.techidaily.com/breeze-and-boost-rapid-android-app-surges/"><u>Breeze and Boost: Rapid Android App Surges</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/complete-overview-bublcam-360-camera-explored-for-2024/"><u>Complete Overview Bublcam 360 Camera Explored for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ras-secrets-to-captivating-youtube-trailers-for-2024/"><u>Filmora's Secrets to Captivating YouTube Trailers for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/guide-terminate-unresponsive-apps-in-windows-11-using-keyboard-shortcuts/"><u>Guide: Terminate Unresponsive Apps in Windows 11 Using Keyboard Shortcuts</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/learn-how-to-lock-stolen-your-apple-iphone-se-2020-properly-drfone-by-drfone-ios/"><u>Learn How To Lock Stolen Your Apple iPhone SE (2020) Properly | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/recovering-a-frozen-facebook-profile-step-by-step/"><u>Recovering a Frozen Facebook Profile: Step by Step</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resolving-idt-high-definition-audio-codec-driver-issues-on-windows-10/"><u>Resolving IDT High Definition Audio Codec Driver Issues on Windows 10</u></a></li>
-<li><a href="https://facebook.techidaily.com/revealing-newest-videos-on-social-media-hub/"><u>Revealing Newest Videos on Social Media Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-facebooks-operations-a-guide-through-the-transparency-center/"><u>Unraveling Facebook's Operations: A Guide Through the Transparency Center</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1726028426626-youtube/"><u>YouTubeへの一枚画像投稿方法：詳細ガイド</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-lg-360-vr-headset-review/"><u>[New] LG 360 VR Headset Review</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-revolutionize-your-humor-learn-through-kinemaster-for-2024/"><u>[Updated] Revolutionize Your Humor Learn Through KineMaster for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-swift-visualizer-windows-high-speed-image-viewer/"><u>[Updated] Swift Visualizer - Windows High-Speed Image Viewer</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-video-editing-tools-for-windows-11-users-top-picks-explained/"><u>Best Video Editing Tools for Windows 11 Users – Top Picks Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-algorithms-that-drive-fb-content-suggests/"><u>Deciphering the Algorithms That Drive FB Content Suggests</u></a></li>
+<li><a href="https://facebook.techidaily.com/decode-the-meta-gateway-to-instagram-and-facebooks-centrality/"><u>Decode the Meta Gateway to Instagram & Facebook's Centrality</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-online-indecision-an-insight-into-vague-blogging/"><u>Decoding Online Indecision: An Insight Into Vague Blogging</u></a></li>
+<li><a href="https://facebook.techidaily.com/deletion-of-online-forum-interactions-via-facebook/"><u>Deletion of Online Forum Interactions via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-your-past-with-facebooks-memory-repository/"><u>Delving Into Your Past with Facebook's Memory Repository</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-brand-top-5-revenue-ideas-for-ig-and-fb/"><u>Elevate Your Brand: Top 5 Revenue Ideas for IG & FB</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-newest-acer-monitor-graphics-driver-free-download/"><u>Get the Newest Acer Monitor Graphics Driver - Free Download</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/tuning-into-fitness-the-power-of-music-on-your-garmin-vivoactive-3-wearable/"><u>Tuning Into Fitness: The Power of Music on Your Garmin Vivoactive 3 Wearable</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-trim-and-refine-a-step-by-step-guide-to-cropping-videos-in-avidemux/"><u>Updated Trim and Refine A Step-by-Step Guide to Cropping Videos in Avidemux</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-shorts-monetization-how-to-make-money-on-youtube-shorts-in-2024/"><u>YouTube Shorts Monetization How to Make Money on YouTube Shorts, In 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unearthing Prior Public Commentaries on FB
-date: 2024-09-10T14:54:50.385Z
-updated: 2024-09-11T14:54:50.385Z
+date: 2024-10-20T16:14:45.754Z
+updated: 2024-10-26T19:54:05.468Z
 tags:
   - facebook
 categories:
@@ -21,27 +21,10 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
  So, let's look at the built-in methods that you can use to find old posts on Facebook.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to Find Old Posts on Facebook
 
@@ -55,43 +38,22 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
 ![Search Results for My Post Rumi on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Results-for-My-Post-Rumi-on-Facebook.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  However, this is just a basic search with many irrelevant posts included. To refine it more, you have to tinker with some filters.
 
  First, you might want the search results to show only the posts published by you, and to do that, go to**Posts** under**Filters** . Then click on**Posts From** and select**You** in the dropdown menu. Now, all the posts it shows have been posted by you.
 
 ![Selecting the You filter to refine Facebook search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Selecting-the-You-filter-to-refine-Facebook-search.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  If you still can't find the post you are looking for, you can further refine the search results by year. Again, go to**Posts** under**Filters** , and click on**Date Posted** . Here, you can choose the year of that post, and it will show results from that particular year only.
 
 ![Facebook posts search result by year](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-posts-search-result-by-year.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Apart from**Posts From** and**Date Posted** , you can filter results by**Recent Posts** ,**Posts You've Seen** , and**Tagged Location** . If you're looking for a recently published post, you can select**Recent Posts** to narrow down the search results. If the post was published by someone else, you could try selecting**Posts You've Seen** . And lastly, you can refine the search results based on the location by choosing**Tagged Location** .
 
@@ -119,29 +81,23 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
 ![Post Filters on Your Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/post-filters-on-your-facebook-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  To access the post filters, go to the profile page where you want to find a post and click on**Filters** next to**Posts** . On your timeline, you can filter the posts based on the year, the post author,[Facebook privacy settings](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) for the post, and tagged posts. This way, you can narrow things down and easily find what you are looking for.
 
  On someone else's timeline, though, you only get to filter the posts by year, making this method not as useful for searching others' posts.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 4\. Using the Activity Log on Your Timeline
 
@@ -149,53 +105,25 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
 ![Accessing the Activity Log In Your Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/accessing-the-activity-log-in-your-facebook-timeline-1.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Once on the Activity Log page, you'll find many options to pinpoint the lost post. On its home page, you can view things like**Videos You've Searched for** ,**Videos You've Watched** , and more. These posts can be pretty challenging to find through search, so using the Activity Log in such cases is better.
 
 ![Different options to find old posts through Facebook Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/different-options-to-find-old-posts-through-facebook-activity-log.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  As you can see, a sidebar menu on the left lets you filter the log with**Your Activity Across Facebook** ,**Personal Information** ,**Connections** , and more. Each of these options has a bunch of sub-menus to refine the Activity Log further, but your posts are mostly under**Your Activity Across Facebook** . You can even search through your Activity Log if you still can't find the post you need.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Easily Search for Old Facebook Posts
 
@@ -207,14 +135,11 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
  As discussed above, writing captions or descriptions for posts is always a good idea. This helps you find posts easily in the future.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -223,12 +148,19 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-best-of-the-best-8-cameras-for-top-streaming-experience/"><u>[New] Best of the Best 8 Cameras for Top Streaming Experience</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-expressive-artistry-on-snapchat-simplified-lenses-methods/"><u>[New] In 2024, Expressive Artistry on Snapchat Simplified Lenses Methods</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-11-free-youtube-playlist-downloaders-onlinepcandroidios/"><u>[Updated] In 2024, 11 FREE YouTube Playlist Downloaders [Online/PC/Android/iOS]</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-zenith-pinnacle-design-review-for-2024/"><u>[Updated] Zenith Pinnacle Design Review for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-facebooks-buzz-to-silence-land/"><u>Banishing Facebook's Buzz to Silence Land</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-digital-memories-linger-forever/"><u>Do Digital Memories Linger Forever?</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153081491-facebook-founder-names-goat-as-crypto-pet/"><u>Facebook Founder Names Goat as 'Crypto' Pet</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-access-the-meta-accounts-center-for-facebook-and-instagram/"><u>How to Access the Meta Accounts Center for Facebook and Instagram</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-honor-100-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-vivo-x-flip-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Vivo X Flip Phone that is Locked?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-x9a-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Honor X9a Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/navigating-the-acquisition-of-stock-video-backgrounds/"><u>Navigating the Acquisition of Stock Video Backgrounds</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Pinpointing Unfriended Individuals on Facebook
-date: 2024-10-19T16:08:49.539Z
-updated: 2024-10-20T21:25:32.723Z
+date: 2024-10-19T17:48:47.321Z
+updated: 2024-10-26T18:31:54.259Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,16 @@ Close
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Your Blocked List on the Web
@@ -56,10 +62,16 @@ Close
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
@@ -72,10 +84,10 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can People Tell if You've Blocked Them on Facebook?
@@ -87,10 +99,10 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
@@ -112,17 +124,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-proven-remedies-to-enhance-your-instagram-videography/"><u>[Updated] In 2024, Proven Remedies to Enhance Your Instagram Videography</u></a></li>
-<li><a href="https://facebook.techidaily.com/barely-spotted-breakthroughs-in-technology-heres-what-you-didnt-see/"><u>Barely Spotted Breakthroughs in Technology - Here's What You Didn't See</u></a></li>
-<li><a href="https://facebook.techidaily.com/dive-into-the-world-of-virtual-shopping-on-fb-fridays/"><u>Dive Into the World of Virtual Shopping on FB Fridays</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-vivo-y100-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Vivo Y100 Phone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-realme-12-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Realme 12 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/iphone-user-base-resists-app-tracking/"><u>IPhone User Base Resists App Tracking</u></a></li>
-<li><a href="https://facebook.techidaily.com/lock-your-likes-making-photo-sharing-on-facebook-private/"><u>Lock Your Likes: Making Photo Sharing on Facebook Private</u></a></li>
-<li><a href="https://driver-error.techidaily.com/prevent-recurring-amd-driver-failures/"><u>Prevent Recurring AMD Driver Failures</u></a></li>
-<li><a href="https://facebook.techidaily.com/searching-for-archived-facebook-communication/"><u>Searching for Archived Facebook Communication</u></a></li>
-<li><a href="https://win11.techidaily.com/turn-off-windows-mobility-settings-quick-guide-win-11/"><u>Turn Off Windows Mobility Settings Quick Guide (Win 11)</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unleashing-the-iphones-full-potential-with-10-composition-principles-for-2024/"><u>Unleashing the iPhone's Full Potential with 10 Composition Principles for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/zip-to-subs-creating-srt-from-compressed-texts/"><u>Zip to Subs Creating .SRT From Compressed Texts</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-av1-vs-vp9-a-detailed-comparison/"><u>[New] AV1 Vs. VP9 A Detailed Comparison</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-snapchat-soundtrack-sourcebook-choosing-from-the-best-websites/"><u>[New] Snapchat Soundtrack Sourcebook Choosing From the Best Websites</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-invaluable-slide-show-tools-for-business-executives/"><u>[Updated] 2024 Approved Invaluable Slide Show Tools for Business Executives</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-discovering-how-to-engage-in-discord-calls-easily-for-2024/"><u>[Updated] Discovering How to Engage in Discord Calls Easily for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1-professionelle-dvd-software-von-winxdvd-dvd-ripper-videoqualitatsverbesserer-und-konverter-fur-ios/"><u>1. Professionelle DVD-Software Von WinXDVD: DVD-Ripper, Videoqualitätsverbesserer Und Konverter Für iOS</u></a></li>
+<li><a href="https://program-issues.techidaily.com/beat-dying-lights-lag-problem-tips-and-tricks-for-smoother-play/"><u>Beat Dying Light's Lag Problem - Tips and Tricks for Smoother Play</u></a></li>
+<li><a href="https://extra-information.techidaily.com/essential-gif-tools-for-x876-owners/"><u>Essential GIF Tools for X/8/7/6 Owners</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-for-designing-events-on-facebook/"><u>Essential Steps for Designing Events on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-impact-on-professional-relationships-and-dynamics/"><u>Facebook's Impact on Professional Relationships and Dynamics</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-harvard-to-facebook-sheryls-journey/"><u>From Harvard to Facebook: Sheryl's Journey</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-x-with-imei-code-by-drfone-ios/"><u>How to Unlock Apple iPhone X with IMEI Code?</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-and-polish-your-facebook-page-rebranding-guide/"><u>Personalize & Polish: Your Facebook Page Rebranding Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-approach-to-managing-fb-connected-tools/"><u>Strategic Approach to Managing Fb Connected Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-misunderstood-art-of-quantifying-digital-community-size/"><u>The Misunderstood Art of Quantifying Digital Community Size</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/tiktok-content-mastery-learn-to-alter-digit-scenes-effectively-for-2024/"><u>TikTok Content Mastery Learn to Alter Digit Scenes Effectively for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-your-potential-essential-business-meta-tools/"><u>Unleash Your Potential: Essential Business META Tools</u></a></li>
 </ul></div>
 

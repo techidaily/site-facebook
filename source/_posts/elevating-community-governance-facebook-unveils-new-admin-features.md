@@ -1,7 +1,7 @@
 ---
 title: "Elevating Community Governance: Facebook Unveils New Admin Features"
-date: 2024-10-18T23:54:03.649Z
-updated: 2024-10-20T16:55:51.539Z
+date: 2024-10-22T19:54:41.932Z
+updated: 2024-10-26T16:51:12.001Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -48,10 +48,16 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -61,10 +67,16 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -88,22 +100,24 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-reducing-motion-illusion-in-vr-environments/"><u>[Updated] 2024 Approved Reducing Motion Illusion in VR Environments</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-editors-elite-gadgets-best-machines-for-screen-magic/"><u>2024 Approved Editor’s Elite Gadgets Best Machines for Screen Magic</u></a></li>
-<li><a href="https://facebook.techidaily.com/boost-your-job-prospects-with-these-6-facebook-tactics/"><u>Boost Your Job Prospects with These 6 Facebook Tactics</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/celestial-craftsmanship-perfecting-night-portraits-step-by-step-for-2024/"><u>Celestial Craftsmanship Perfecting Night Portraits Step-by-Step for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/diy-fixes-for-persistent-horizontal-stripes-on-computer-screens/"><u>DIY Fixes for Persistent Horizontal Stripes on Computer Screens</u></a></li>
-<li><a href="https://video-capture.techidaily.com/download-full-hd-videos-from-facebook-in-stunning-1080p-quality-a-comprehensive-tutorial/"><u>Download Full HD Videos From Facebook in Stunning 1080P Quality – A Comprehensive Tutorial</u></a></li>
-<li><a href="https://facebook.techidaily.com/enabling-blacked-out-interface-for-facebook-use/"><u>Enabling Blacked-Out Interface for Facebook Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-commanding-circle/"><u>Facebook's Commanding Circle</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-create-a-poll-on-facebook-in-pages-groups-and-stories/"><u>How to Create a Poll on Facebook (in Pages, Groups, and Stories)</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-from-iphone-14-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out From iPhone 14 How to Bypass?</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-conversation-privacy-on-fb-upheld/"><u>Is Conversation Privacy on FB Upheld?</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-matrix-of-multiple-social-media-connections-on-xbox/"><u>Mastering the Matrix of Multiple Social Media Connections on Xbox</u></a></li>
-<li><a href="https://facebook.techidaily.com/shielded-social-circle-fb-privacy-guide/"><u>Shielded Social Circle: FB Privacy Guide</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-ppro-fs-viewing/"><u>The Ultimate Guide to PPro FS Viewing</u></a></li>
-<li><a href="https://win-able.techidaily.com/top-6-solutions-to-overcome-low-fps-challenges-in-escape-from-tarkov/"><u>Top 6 Solutions to Overcome Low-FPS Challenges in Escape From Tarkov</u></a></li>
-<li><a href="https://facebook.techidaily.com/transform-your-social-media-presence-with-effective-backgrounds/"><u>Transform Your Social Media Presence with Effective Backgrounds</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/transforming-reality-with-ai-unleashing-a-new-era/"><u>Transforming Reality with AI: Unleashing a New Era</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-cinematic-sequence-best-video-cameras-for-extended-slow-motion/"><u>[New] Cinematic Sequence Best Video Cameras for Extended Slow Motion</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-stealthy-speakers-sanctuary-discovering-quiet-voice-apps-androidios/"><u>[New] In 2024, Stealthy Speakers' Sanctuary Discovering Quiet Voice Apps (Android/iOS)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/18-ways-to-record-internet-radio-comprehensive-tutorial-for-2024/"><u>18 Ways To Record Internet Radio- Comprehensive Tutorial for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-messenger-encryption-in-fb/"><u>Assessing Messenger Encryption in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-7-apps-for-streamlining-content-release-on-social-platforms/"><u>Best 7 Apps for Streamlining Content Release on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/bracing-for-impact-expecting-tough-news-on-fb/"><u>Bracing for Impact: Expecting Tough News on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-the-barrier-of-a-frozen-account/"><u>Breaking the Barrier of a Frozen Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-foundation-of-trust-with-facebooks-open-network-portal/"><u>Building a Foundation of Trust with Facebook's Open Network Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/capturing-hearts-and-eyes-top-6-profile-pic-ideas/"><u>Capturing Hearts and Eyes: Top 6 Profile Pic Ideas</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-a-community-of-positivity-online/"><u>Cultivating a Community of Positivity Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-the-cord-a-step-by-step-guide-to-leaving-facebook-for-good/"><u>Cut the Cord: A Step-by-Step Guide to Leaving Facebook for Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-mantras-key-personal-details-to-keep-offline/"><u>Cybersecurity Mantras: Key Personal Details to Keep Offline</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/gaming-melodies-legal-downloadable-links/"><u>Gaming Melodies Legal, Downloadable Links</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-optimizing-youtube-presentations-with-precise-times/"><u>In 2024, Optimizing YouTube Presentations with Precise Times</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pierce-through-darkness-essential-techniques-to-brighten-iphone-vids/"><u>In 2024, Pierce Through Darkness Essential Techniques to Brighten iPhone Vids</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-the-fatal-error-in-ghostrunner-game-on-windows-11-systems/"><u>Resolving the Fatal Error in GhostRunner Game on Windows 11 Systems</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/step-by-step-guide-to-securely-migrate-your-gpt-volume-from-hard-drive-to-solid-state-in-windows-11/"><u>Step-by-Step Guide to Securely Migrate Your GPT Volume From Hard Drive to Solid State in WIndows 11</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/windows-11-display-resolved-missing-full-screen/"><u>Windows 11 Display - Resolved Missing Full Screen</u></a></li>
 </ul></div>
 

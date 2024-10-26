@@ -1,7 +1,7 @@
 ---
 title: How to Change Which Facebook Friends Can See You Online
-date: 2024-10-15T00:11:12.310Z
-updated: 2024-10-20T23:19:02.160Z
+date: 2024-10-22T18:59:25.781Z
+updated: 2024-10-26T18:19:32.846Z
 tags:
   - facebook
 categories:
@@ -51,10 +51,10 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
  But what if you don't want certain people to see you online or you don't want your online status reflected at all? Here's how to adjust your Active Status settings so that only certain people can see you online on Facebook...
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Change Who Can See You Online on Facebook (Web)
@@ -67,13 +67,6 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 2. In the dropdown menu, select**Active Status: ON** .  
 ![facebook chat settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-chat-settings-updated.jpg)
 3. This will bring up a popup where you can select your options. You can toggle Active Status to**OFF** , allow**Active Status ON for some** , or turn**Active Status OFF for some** . If you want to change the Facebook friends who can or cannot see you online by selecting the**Edit** button next to the relevant option.  
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![facebook active status settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-active-status-settings-updated.jpg)
 4. Select whichever setting you prefer. If you select**Edit** , a popup will appear allowing you to search for contacts you want to add to the Active Status ON or Active Status OFF list. Then choose**Save** to implement the settings.  
@@ -92,7 +85,27 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -106,13 +119,6 @@ Close
  Switching off your Active Status also prevents you from seeing when other people are online. In our test, switching off Active Status on the mobile app did not carry over to the desktop browser version of Facebook.
 
  You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
@@ -135,16 +141,16 @@ This is different from a full Facebook block.
 4. Choose the option for**Block messages and calls** .  
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
  Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Control Who Sees You Online on Facebook
 
@@ -167,17 +173,18 @@ This is different from a full Facebook block.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-concealed-video-streaming-background-youtube-watch/"><u>[New] 2024 Approved Concealed Video Streaming Background YouTube Watch</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-the-seamless-shift-an-introduction-to-crossfades/"><u>[New] The Seamless Shift An Introduction to Crossfades</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitter-integration-for-tiktok-video-content/"><u>[Updated] 2024 Approved Twitter Integration for TikTok Video Content</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-cutting-edge-techniques-in-gif-animation/"><u>[Updated] In 2024, Cutting Edge Techniques in GIF Animation</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoiding-group-leave-friction-the-facebook-way/"><u>Avoiding Group Leave Friction: The Facebook Way</u></a></li>
-<li><a href="https://facebook.techidaily.com/claiming-a-portion-of-the-mega-settlement-from-facebook/"><u>Claiming a Portion of the Mega-Settlement From Facebook</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-immediate-visual-effects-with-instagrams-chroma-keying-feature/"><u>In 2024, Immediate Visual Effects with Instagram’s Chroma Keying Feature</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-apple-watch-or-iphone-11-pro-max-from-icloud-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Apple Watch Or iPhone 11 Pro Max from iCloud</u></a></li>
-<li><a href="https://facebook.techidaily.com/mending-broken-connection-with-friendster-facebook/"><u>Mending Broken Connection with Friendster (Facebook)</u></a></li>
-<li><a href="https://facebook.techidaily.com/streaming-on-ig-live-with-no-media-required/"><u>Streaming On IG Live With No Media Required</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-hidden-risks-in-accepting-everyones-friendship-overtures/"><u>The Hidden Risks in Accepting Everyone's Friendship Overtures</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-huawei-p60-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Huawei P60 to Gmail | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-10-best-youtube-conversion-tools-for-webm-format-for-2024/"><u>[New] 10 Best YouTube Conversion Tools for WebM Format for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-blueprint-strategies-for-authentic-life-enrichment-videos/"><u>[New] 2024 Approved Blueprint Strategies for Authentic Life Enrichment Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-bonds-uncover-hidden-stories-in-chats/"><u>Fostering Bonds: Uncover Hidden Stories in Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-a-story-on-facebook/"><u>How to Delete a Story on Facebook</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-itel-p40plus-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Itel P40+ Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-quadcopter-power-5-premium-engine-choices/"><u>In 2024, Mastering Quadcopter Power 5 Premium Engine Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-teenagers-facebook-settings-for-privacy-control/"><u>Navigating Teenager's Facebook Settings for Privacy Control</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/peeking-into-mondlys-instructional-design/"><u>Peeking Into Mondly’s Instructional Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/rumored-ban-for-transparent-commerce-on-facebook/"><u>Rumored Ban for Transparent Commerce on Facebook</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/seamless-visuals-on-screen-zooming-into-clarity/"><u>Seamless Visuals on Screen Zooming Into Clarity</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-art-of-crafting-impactful-documentary-stories/"><u>The Art of Crafting Impactful Documentary Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-crossroads-personal-security-concerns-with-using-facebook-as-an-account-access-point/"><u>The Crossroads: Personal Security Concerns with Using Facebook as an Account Access Point</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-as-a-gateway-for-instagrams-2fa-messages/"><u>WhatsApp as a Gateway for Instagram's 2FA Messages</u></a></li>
 </ul></div>
 

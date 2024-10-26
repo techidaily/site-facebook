@@ -1,7 +1,7 @@
 ---
 title: Top 12 Promoters of Covid-19 Untruths
-date: 2024-09-10T14:53:19.182Z
-updated: 2024-09-11T14:53:19.182Z
+date: 2024-10-24T19:31:13.041Z
+updated: 2024-10-26T18:09:41.853Z
 tags:
   - facebook
 categories:
@@ -19,27 +19,10 @@ thumbnail: https://thmb.techidaily.com/3fbb28fdd30ab5cd77a4baca2551c9d92b27e1821
 
 But what if, in reality, there are only 12 prime suspects?
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## CCDH Claims COVID-19 Hoaxes and Lies on Social Media Are Mostly Thanks to Only a Dozen People
 
@@ -62,19 +45,12 @@ But what if, in reality, there are only 12 prime suspects?
 
  Even though the Disinformation Dozen has reportedly violated the Facebook, Instagram, and Twitter terms of service agreements on numerous occasions, only three of the 12 influencers have been removed from just one platform.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Are Social Media Platforms Doing Enough to Fight Misinformation?
 
@@ -88,14 +64,11 @@ But what if, in reality, there are only 12 prime suspects?
 
  Unfortunately, even as Facebook, Instagram, and Twitter make moves to fight against misinformation, this doesn't seem to be a battle that any of the platforms is actually winning. Something more aggressive needs to be done, and soon.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,12 +77,20 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-narrative-pace-in-vlogging-through-jump-cuts/"><u>[New] 2024 Approved Boosting Narrative Pace in Vlogging Through Jump Cuts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-international-ranks-youtube-stars-with-the-most-loyal-viewers/"><u>[New] In 2024, International Ranks YouTube Stars With the Most Loyal Viewers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-artisans-crafting-marvel-fantasy-landscapes/"><u>[Updated] In 2024, Artisans Crafting Marvel Fantasy Landscapes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-pinnacle-of-visual-expression-best-mac-drawing-tools/"><u>2024 Approved The Pinnacle of Visual Expression - Best Mac Drawing Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-compelling-reasons-to-stay-active-on-facebook/"><u>6 Compelling Reasons to Stay Active on Facebook</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-vivo-y100a-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-shift-toward-data-privacy-on-iphones/"><u>A Shift Toward Data Privacy on iPhones</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-coal-renewable-energy-fuels-all-of-fb/"><u>Beyond Coal: Renewable Energy Fuels All of FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-desk-unveiling-metamates-of-facebook/"><u>Beyond the Desk: Unveiling Metamates of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-new-structure-for-facebook-interfaces/"><u>Breaking: New Structure for Facebook Interfaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/cross-platform-connections-instagram-and-facebook-merge/"><u>Cross-Platform Connections: Instagram & Facebook Merge</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Tecno Phantom V Flip? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-master-list-highest-rated-4k-blu-ray-player-models/"><u>In 2024, Master List Highest Rated 4K Blu-Ray Player Models</u></a></li>
+</ul></div>
 

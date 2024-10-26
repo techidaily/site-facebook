@@ -1,7 +1,7 @@
 ---
 title: "Revisiting LLife: Can It Recapture Its Original Splendor in Metaverse Times?"
-date: 2024-10-17T19:06:46.976Z
-updated: 2024-10-21T00:52:33.154Z
+date: 2024-10-20T17:03:43.056Z
+updated: 2024-10-26T19:17:35.494Z
 tags:
   - facebook
 categories:
@@ -35,16 +35,10 @@ thumbnail: https://thmb.techidaily.com/d2f76001c4f2646491c0fc840a81d8218602e4920
  To that end, Philip Rosedale, who founded Second Life in 2003 and left in 2010, is returning to serve as a Strategic Advisor. His return will bring with it an investment of both cash and patents into Linden Lab, which owns Second Life. He will also allocate a task force of seven people from his VR software company, High Fidelity, to Second Life.
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can Second Life Change to Meet Modern Standards?
@@ -52,10 +46,10 @@ thumbnail: https://thmb.techidaily.com/d2f76001c4f2646491c0fc840a81d8218602e4920
 ![A man plugging a circuit board into an open computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/upgrade.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Second Life began in 2003 as a nondescript island with some trees on it. Then, players—known as residents—showed up, bought land, cleared the trees, and started building a whole new virtual world. Second Life is a virtual world that its residents built from the ground up, literally.
@@ -73,10 +67,10 @@ thumbnail: https://thmb.techidaily.com/d2f76001c4f2646491c0fc840a81d8218602e4920
  In an interview with[Spectrum](https://spectrum.ieee.org/metaverse-second-life) , Rosedale implied he will focus on adding 3D audio technology from High Fidelity into Second Life. This makes sense since the industry hasn't yet fully developed the VR technology that moves avatars around physically. Once they have, residents will be able to have real-time audio conversations just as they would in the physical world.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Second Life Must Upgrade and Differentiate
@@ -102,18 +96,18 @@ thumbnail: https://thmb.techidaily.com/d2f76001c4f2646491c0fc840a81d8218602e4920
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-precision-shade-modifier/"><u>[New] In 2024, Precision Shade Modifier</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-audio-integration-your-youtube-playlist/"><u>2024 Approved Audio Integration Your YouTube Playlist</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-zte-axon-40-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on ZTE Axon 40 Lite | Dr.fone</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/1728504781768-hdd/"><u>悪玉部門が存在するHDDをコピーする最適な手法</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-tp-link-re2n-ac750-wi-fi-repeater-assessment/"><u>Affordable TP-Link RE2n AC750 Wi-Fi Repeater Assessment</u></a></li>
-<li><a href="https://facebook.techidaily.com/blurring-lines-will-facebook-steer-towards-physical-marketplaces/"><u>Blurring Lines: Will Facebook Steer Towards Physical Marketplaces?</u></a></li>
-<li><a href="https://games-able.techidaily.com/gpd-win-4-vs-traditional-computing-devices/"><u>GPD Win 4 vs Traditional Computing Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/lifeline-cut-understanding-fb-ban-reasons/"><u>Lifeline Cut: Understanding Fb Ban Reasons</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebook-post-death-memories-and-termination/"><u>Navigating Facebook Post-Death: Memories and Termination</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/redefine-your-digital-world-with-latest-windows-10-gaming-and-apps/"><u>Redefine Your Digital World with Latest Windows 10 Gaming & Apps</u></a></li>
-<li><a href="https://article-helps.techidaily.com/seamless-srt-to-sub-transition-techniques/"><u>Seamless SRT to SUB Transition Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/stripping-personal-pages-of-religiouspolitical-content/"><u>Stripping Personal Pages of Religious/Political Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-sites-catering-to-seniors-social-life/"><u>Top 5 Sites Catering to Seniors' Social Life</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-compelling-iphone-photo-and-video-applications-87x/"><u>[New] Compelling iPhone Photo & Video Applications (8/7/X)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ptimal-film-and-camera-choices-for-youtube-vloggers-for-2024/"><u>[New] Optimal Film & Camera Choices for YouTube Vloggers for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/choosing-the-clearer-display-ultrawide-vs-uhd-4k-explored-for-2024/"><u>Choosing the Clearer Display UltraWide vs UHD 4K Explored for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-introduces-weekend-live-shop-experience/"><u>Facebook Introduces Weekend Live Shop Experience</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-change-gps-location-on-tecno-camon-30-pro-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Tecno Camon 30 Pro 5G Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-advances-in-photography-with-lut-technology/"><u>In 2024, Advances in Photography with LUT Technology</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/kostenlose-migration-von-windows-10-32-auf-64-bit-schritt-fur-schritt-mit-datenschutz/"><u>Kostenlose Migration Von Windows 10 32 Auf 64 Bit - Schritt Für Schritt Mit Datenschutz</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-the-trade-of-troves-meta-vs-inappropriate-images/"><u>Tackling the Trade of Troves: Meta Vs. Inappropriate Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dos-and-donts-of-followingunfollowing-on-facebook/"><u>The Do's and Don'ts of Following/Unfollowing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-metaverse-unraveled-a-cosmic-collision/"><u>The Metaverse Unraveled: A Cosmic Collision</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-guide-fixing-fifa-20-pc-game-crashes-step-by-step/"><u>Ultimate Guide: Fixing FIFA 20 PC Game Crashes - Step by Step</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/youtube-tv-vs-hulu-live-streaming-services-a-comprehensive-guide-to-making-the-right-pick/"><u>YouTube TV Vs. Hulu Live Streaming Services - A Comprehensive Guide to Making the Right Pick</u></a></li>
 </ul></div>
 

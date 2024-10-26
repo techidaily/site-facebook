@@ -1,7 +1,7 @@
 ---
 title: Facebook's Data Strategy in Jeopardy with the iOS 14.5 Shift
-date: 2024-10-16T20:25:18.399Z
-updated: 2024-10-20T16:36:01.637Z
+date: 2024-10-25T18:46:14.276Z
+updated: 2024-10-26T18:00:19.669Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Does Facebook Make Money?
@@ -64,28 +64,15 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Many Users Allow App Tracking?
 
@@ -95,16 +82,16 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
 
@@ -115,6 +102,13 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
  While this seems like a disaster for Facebook at first glance, it remains to be seen how badly it will affect the company.
 
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Facebook's Likely Response
 
@@ -141,18 +135,20 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-zoom-mastery-maximizing-your-podcast-recording-quality-for-2024/"><u>[New] Zoom Mastery Maximizing Your Podcast Recording Quality for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/apples-focus-on-innovation-over-metaverse-entry/"><u>Apple's Focus on Innovation Over Metaverse Entry</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nuous-streams-perfect-loops-of-youtube-videos-for-tvs/"><u>Continuous Streams Perfect Loops of YouTube Videos for TVs</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/employing-inbuilt-screen-recording-tools-on-mate-p-models-p20-p10/"><u>Employing Inbuilt Screen Recording Tools on Mate, P Models (P20, P10)</u></a></li>
-<li><a href="https://facebook.techidaily.com/ending-a-network-the-how-to-of-fb-group-removal/"><u>Ending a Network: The How-To of Fb Group Removal</u></a></li>
-<li><a href="https://facebook.techidaily.com/harmonious-horizon-envisioning-the-fusion-of-music-and-networking/"><u>Harmonious Horizon: Envisioning the Fusion of Music & Networking</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Samsung Galaxy M14 4G | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-audiextractoreview-free-audio-tools-new-horizon/"><u>In 2024, AudiExtractoReview Free Audio Tool's New Horizon</u></a></li>
-<li><a href="https://facebook.techidaily.com/incidence-rate-of-cyber-attacks-on-networks/"><u>Incidence Rate of Cyber Attacks on Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/interlinked-identities-examining-fb-insta-relationship/"><u>Interlinked Identities: Examining FB-Insta Relationship</u></a></li>
-<li><a href="https://facebook.techidaily.com/join-the-elite-us-members-gain-metas-seal-of-approval/"><u>Join the Elite: U.S. Members Gain Meta's Seal of Approval</u></a></li>
-<li><a href="https://driver-install.techidaily.com/maximize-graphics-potential-with-new-amd-rx-570-release/"><u>Maximize Graphics Potential with New AMD RX 570 Release</u></a></li>
-<li><a href="https://howto.techidaily.com/solved-warning-camera-failed-on-vivo-y27-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-beam-it-up-a-step-by-step-approach-to-youtube-video-luminance/"><u>[New] 2024 Approved Beam It Up A Step-By-Step Approach to YouTube Video Luminance</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-best-online-stock-market-channels-reviewed/"><u>[New] 2024 Approved Best Online Stock Market Channels Reviewed</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-download-and-launch-an-easy-path-with-vrecord/"><u>[New] 2024 Approved Download and Launch An Easy Path with VRecord</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-perfecting-your-nocturnal-portrait-techniques/"><u>[New] In 2024, Perfecting Your Nocturnal Portrait Techniques</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-monetary-map-mr-beasts-financials-uncovered/"><u>[Updated] 2024 Approved The Monetary Map Mr. Beast’s Financials Uncovered</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pioneering-the-art-of-storytelling-top-youtubers-of-year-2023/"><u>2024 Approved Pioneering the Art of Storytelling - Top YouTubers of Year 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerating-friend-finding-in-messaging-platforms/"><u>Accelerating Friend-Finding in Messaging Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/admin-steps-for-enhanced-facebook-control/"><u>Admin Steps for Enhanced Facebook Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-quality-images-and-videos-in-fb-app/"><u>Boosting Quality Images & Videos in FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/calls-for-stricter-ad-policing-by-tech-giants/"><u>Calls for Stricter Ad Policing by Tech Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-building-through-7-key-social-media-aspects/"><u>Community Building Through 7 Key Social Media Aspects</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlled-connectivity-managing-your-fb-interactions/"><u>Controlled Connectivity: Managing Your FB Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719146552580-decoding-and-rectifying-common-social-network-issues-your-guide-to-fixing-them/"><u>Decoding & Rectifying Common Social Network Issues: Your Guide to Fixing Them</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/screen-spectaculum-hitting-720p-with-twitter-vids/"><u>Screen Spectaculum Hitting 720P with Twitter Vids</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-ranked-virtual-reality-headphones-a-comprehensive-guide/"><u>Top-Ranked Virtual Reality Headphones : A Comprehensive Guide</u></a></li>
 </ul></div>
 

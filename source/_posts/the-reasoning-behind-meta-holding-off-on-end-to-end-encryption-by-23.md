@@ -1,7 +1,7 @@
 ---
 title: The Reasoning Behind Meta Holding Off on End-to-End Encryption by '23
-date: 2024-10-13T21:58:29.503Z
-updated: 2024-10-20T16:13:53.748Z
+date: 2024-10-21T20:47:51.281Z
+updated: 2024-10-26T22:06:32.970Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
@@ -54,16 +54,10 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
@@ -89,21 +83,22 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-cinematic-brilliance-mastering-video-lighting-techniques/"><u>[New] In 2024, Cinematic Brilliance Mastering Video Lighting Techniques</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-the-art-of-influence-elevating-messaging-on-telegram-for-2024/"><u>[New] The Art of Influence Elevating Messaging on Telegram for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-compelling-stories-for-smm-through-ripl/"><u>Crafting Compelling Stories for SMM Through Ripl</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-your-personal-influence-story/"><u>Crafting Your Personal Influence Story</u></a></li>
-<li><a href="https://facebook.techidaily.com/detecting-intruder-in-your-digital-life/"><u>Detecting Intruder in Your Digital Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-detox-the-powerful-outcomes-of-social-disconnection/"><u>Digital Detox: The Powerful Outcomes of Social Disconnection</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-realme-gt-neo-5-se-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Realme GT Neo 5 SE Devices</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/imagetangle-the-premier-montage-engineer/"><u>ImageTangle The Premier Montage Engineer</u></a></li>
-<li><a href="https://facebook.techidaily.com/inspecting-past-connections-with-facebook/"><u>Inspecting Past Connections with Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/reconnect-on-fb-post-block-friendship-guide/"><u>Reconnect on FB: Post-Block Friendship Guide</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolving-persistent-fuser-breakdowns-on-personal-computers-tips-and-tricks/"><u>Resolving Persistent Fuser Breakdowns on Personal Computers – Tips and Tricks</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/securing-smooth-airdrop-transfers-across-various-apple-devices-for-2024/"><u>Securing Smooth AirDrop Transfers Across Various Apple Devices for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/setting-up-zoom-like-a-pro-for-2024/"><u>Setting Up Zoom Like a Pro for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/streamlined-video-submission-mmc-to-vimeo-journey-explained/"><u>Streamlined Video Submission MMC to Vimeo Journey Explained</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-5-from-vivo-s18-pro-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Vivo S18 Pro to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-amazon-takes-on-administrators-of-thousands-of-fb-groups/"><u>Why Amazon Takes on Administrators of Thousands of FB Groups</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-compelling-stories-the-art-of-instagram-video-editing/"><u>[Updated] In 2024, Crafting Compelling Stories The Art of Instagram Video Editing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-visual-identity-made-easy/"><u>[Updated] YouTube Visual Identity Made Easy</u></a></li>
+<li><a href="https://facebook.techidaily.com/11-common-facebook-problems-and-errors-and-how-to-fix-them/"><u>11 Common Facebook Problems and Errors (and How to Fix Them)</u></a></li>
+<li><a href="https://facebook.techidaily.com/12-proven-methods-to-skyrocket-engagement-in-social-networking/"><u>12 Proven Methods to Skyrocket Engagement in Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-deep-dive-into-metas-enhanced-user-privacy-measures/"><u>A Deep Dive Into Meta’s Enhanced User Privacy Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-hd-media-mastery-in-fb-mobile/"><u>A Step-by-Step Approach: HD Media Mastery in Fb Mobile</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-lava-yuva-2-pro-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Lava Yuva 2 Pro Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-screen-a-year-without-a-new-oculus-quest/"><u>Beyond the Screen: A Year Without a New Oculus Quest</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-bridges-discover-shared-experienences-via-polls/"><u>Building Bridges: Discover Shared Experienences via Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-shadowbans-and-their-evasion-techniques/"><u>Comprehensive Guide to Shadowbans & Their Evasion Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-lives-on-even-in-fbs-demise/"><u>Data Lives On, Even in FB's Demise</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/kinemasters-secret-to-meme-making-mastery-for-2024/"><u>KineMaster's Secret to Meme-Making Mastery for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-nokia-c12-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-best-budget-friendly-phone-exploring-the-features-of-samsung-galaxy-s10e/"><u>The Best Budget-Friendly Phone? Exploring the Features of Samsung Galaxy S10e</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unleashing-potential-with-the-q500-drone/"><u>Unleashing Potential with the Q500 Drone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unlocking-performance-a-guide-to-toms-computer-components-and-systems/"><u>Unlocking Performance: A Guide to Tom's Computer Components and Systems</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-best-20-free-adobe-premiere-intro-templates/"><u>Updated Best 20 Free Adobe Premiere Intro Templates</u></a></li>
 </ul></div>
 

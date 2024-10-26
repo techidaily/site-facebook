@@ -1,7 +1,7 @@
 ---
 title: "Fast-Track Guide: Modifying Your Age & Birthdate in FB Settings"
-date: 2024-09-10T14:54:04.183Z
-updated: 2024-09-11T14:54:04.183Z
+date: 2024-10-20T19:54:29.250Z
+updated: 2024-10-26T21:45:36.770Z
 tags:
   - facebook
 categories:
@@ -21,27 +21,10 @@ thumbnail: https://thmb.techidaily.com/549ca928829525c9c386345bc34f0e1c4ffcbb461
 
  If you've ever received greetings from your Facebook friends on a date that wasn't your birthday, this article is for you. We'll show you how to change your Facebook birthday to avoid those wishes coming on the wrong date.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## What You Need to Know Before Changing Your Birthday on Facebook
 
@@ -59,37 +42,16 @@ Follow the steps below to edit your birthday on the Facebook app.
 
 ![facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-profile-page.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Edit basic info on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Edit-basic-info-on-facebook-app.jpg)
 
-
-
-
+![edit basic info on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-basic-info-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-![edit basic info on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-basic-info-on-facebook.jpg)
 
 ![edit facebook birthdate](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-facebook-birthdate.jpg)
 
@@ -102,19 +64,12 @@ Close
 5. Make your desired corrections.
 6. Check the confirmation box, scroll down, and tap**Save** .
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How to Change Your Facebook Birthday on the Web
 
@@ -124,23 +79,16 @@ Here's how:
 
 ![facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-homepage.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 * Click on**About** in the menu below your name and profile photo.
 
 ![facebook-profile-page-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-profile-page-1.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select**Basic and Contact Info** in the menu on the left.
 
@@ -150,29 +98,23 @@ Here's how:
 
 ![change facebook birthday](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday.JPG)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 * Make your desired corrections, tick the age confirmation box, and click**Save** .
 
 ![change facebook birthday 2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday-2.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Request a Birthday Change to Facebook
 
@@ -182,20 +124,6 @@ Here's how:
 
 ![contact facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/contact-facebook.JPG)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 * Input your desired changes.
 * Select a reason for the change in the dropdown menu and click send.
 
@@ -203,34 +131,17 @@ Here's how:
 
  Facebook will then correct the error in your birthdate as soon as your request is processed.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Get Your Birthday Wishes on the Right Day
 
  Follow the steps we've outlined above to edit your birthday on Facebook. That way, you no longer have to worry about getting birthday wishes on a day that isn't your birthday.
 
  One other importance of having accurate information, like birthdays, on your Facebook account is that they sometimes require government-issued IDs that show your actual birthday when retrieving an account. So if the birthdate on your ID and on the social media platform doesn't match up, you might lose your account permanently.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -239,12 +150,22 @@ Here's how:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-accelerating-or-slowing-down-youtube-videos-playback/"><u>[New] 2024 Approved Accelerating or Slowing Down YouTube Videos Playback</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-free-youtube-spotlight-with-two-key-approaches-for-2024/"><u>[New] Free YouTube Spotlight with Two Key Approaches for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitta-to-trackable-audio-transitions/"><u>[Updated] In 2024, Twitta to Trackable Audio Transitions</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-precision-techniques-in-spinning-and-fusing-android-videography/"><u>[Updated] Precision Techniques in Spinning & Fusing Android Videography</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-act-distributing-content-wisely-amongst-fb-groups/"><u>Balancing Act: Distributing Content Wisely Amongst Fb Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-newsfeed-10-valid-reasons-to-leave-facebook-behind/"><u>Beyond the Newsfeed: 10 Valid Reasons to Leave Facebook Behind</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-the-loop-stop-automated-posts-in-networks/"><u>Break the Loop: Stop Automated Posts in Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-instagrams-influence/"><u>Breaking Free From Instagram's Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-through-facebooks-lockout-barrier/"><u>Breaking Through Facebook's Lockout Barrier</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultural-catalysts-social-medias-four-transformative-influences/"><u>Cultural Catalysts: Social Media's Four Transformative Influences</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-discovering-the-potential-apple-devices-on-your-youtube-channel/"><u>In 2024, Discovering the Potential Apple Devices on Your YouTube Channel</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/on-air-in-minutes-easy-steps-to-start-a-live-stream/"><u>On Air in Minutes Easy Steps to Start a Live Stream</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/revive-the-classics-with-modern-tech-ayaneos-retail-ready-amd-am01-mini-pc-is-here/"><u>Revive the Classics with Modern Tech! Ayaneo's Retail-Ready, AMD AM01 Mini PC Is Here!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-google-pixel-4a-5g-top-ranked-budget-android-device/"><u>The Ultimate Guide to Google Pixel 4a 5G – Top-Ranked Budget Android Device</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+</ul></div>
 

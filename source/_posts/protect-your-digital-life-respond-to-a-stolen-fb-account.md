@@ -1,7 +1,7 @@
 ---
 title: "Protect Your Digital Life: Respond to a Stolen FB Account"
-date: 2024-09-10T14:53:01.862Z
-updated: 2024-09-11T14:53:01.862Z
+date: 2024-10-24T17:37:43.908Z
+updated: 2024-10-26T19:54:52.166Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,10 @@ thumbnail: https://thmb.techidaily.com/fed19fb5539928ceb1f098e4df501aac24d80c5bb
 
  Facebook hackers could lock you out of your account and hassle your friends and family. Secure your Facebook account now and get it back before it's too late. We'll show you how.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## How to Tell Whether Your Facebook Account Was Hacked
 
@@ -56,6 +53,13 @@ Other signs that your account may have been hacked include:
 
  If you spot any suspicious activity in your logins or have seen one or more of these other signs, you'll find what you need to do below.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What to Do If Your Facebook Account Was Hacked
 
  If you have confirmed that your account has been compromised, here are the steps you should follow.
@@ -68,19 +72,12 @@ Other signs that your account may have been hacked include:
 
 ![Facebook Account Center Change Password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-account-center-change-password.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  After a successful password change, you'll see a**Log out of other devices?** screen pop up. Log out all suspicious sessions and click**Log out** .
 
@@ -90,39 +87,11 @@ Do this only if you're sure you can log back in.
 
  If you still think your account has been compromised, proceed to Step 3.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 1b. Reset Your Facebook Password
 
  If the hacker did change your password, and you need to[recover your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) , act quickly. Try to regain access, use the**Forgot your password?** link underneath the Facebook login.
 
 ![Facebook Login Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-login-page.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  This will let you retrieve your password in several ways. First, you'll have to**Find Your Account** . You can either enter the email address you used to register with Facebook or any other secondary email address you added, as well as your phone number.
 
@@ -142,41 +111,27 @@ Do this only if you're sure you can log back in.
 
  If you believe that the Facebook hacker who has access to your account has been abusing it, proceed to step 2.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Report the Facebook Hack
 
  If your account was not only hacked, but is sending out ads and spam to your friends, you must report it as compromised to Facebook using[Facebook.com/hacked/](http://www.facebook.com/hacked/) .
 
 ![Facebook Hacked Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-hacked-report.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  You can also use this in case you have lost access to your account by means of a phishing attack. Facebook will help you recover access to your account.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 3\. Remove Suspicious Applications
 
@@ -188,53 +143,18 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Apps and Websites Review](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-apps-and-websites-review.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  We also recommend removing all**Expired** apps and websites.
 
  Alternatively, click the**View and Edit** button and change the app's permissions, which include options like app visibility, access to your personal information, and actions it can take.
 
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 4\. Do Damage Control
 
@@ -242,19 +162,12 @@ Do this only if you're sure you can log back in.
 
  This is a precautionary step in case the hacker has used your account to reach out to people. If you presently can't access your account, contact your Facebook friends through other social networks, by email, or have a mutual friend inform them via Facebook.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Improving Facebook's Privacy and Security Settings
 
@@ -270,14 +183,11 @@ Do this only if you're sure you can log back in.
 
  Getting hacked is a painful experience. However, it's also a learning opportunity. After setting a strong password, enabling two-factor authentication, and updating all your information, your account will be protected from getting hacked again. Now take these lessons forward and apply them to your other online accounts.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -286,12 +196,26 @@ Do this only if you're sure you can log back in.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-mastering-desktop-and-mobile-capturing-team-video-conferences/"><u>[New] In 2024, Mastering Desktop & Mobile Capturing Team Video Conferences</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/58030512-updated-high-quality-youtube-images-download-without-any-cost/"><u>[Updated] High-Quality YouTube Images Download Without Any Cost!</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-unleashing-the-power-of-tales-complimentary-apps-galore/"><u>2024 Approved Unleashing the Power of Tales Complimentary Apps Galore</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-oneplus-nord-n30-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-revolutionary-methods-for-locating-fresh-social-groups/"><u>4 Revolutionary Methods for Locating Fresh Social Groups</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/aac-webm-mp4/"><u>移動網隨時無限 AAC版本 - WEBM 到 MP4 自由搬家工具</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-deep-dive-into-sheryls-influence-on-facebook-culture/"><u>A Deep Dive Into Sheryl's Influence on Facebook Culture</u></a></li>
+<li><a href="https://facebook.techidaily.com/adapting-to-change-the-6-continuous-uses-of-facebook/"><u>Adapting to Change: The 6 Continuous Uses of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-budget-friendly-tools-your-social-network-guide/"><u>Best Budget-Friendly Tools: Your Social Network Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-socializing-why-you-shouldnt-neglect-facebook/"><u>Beyond Socializing: Why You Shouldn't Neglect Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-facebooks-platform-clarity-with-its-open-center/"><u>Comprehensive Guide to Facebook's Platform Clarity with Its Open Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/connective-spaces-reimagined-a-metaverse-overview/"><u>Connective Spaces Reimagined: A Metaverse Overview</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-ethics-in-limitations-justifiable-ban-on-trump-but-not-everlasting/"><u>Cyber Ethics in Limitations: Justifiable Ban on Trump, But Not Everlasting</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-threats-to-social-sites/"><u>Cybersecurity Threats to Social Sites</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-engaging-excellence-best-story-filter-compilation/"><u>In 2024, Engaging Excellence Best Story Filter Compilation</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-vivo-y100a-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Vivo Y100A Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/seamless-scratching-for-chrome-devices/"><u>Seamless Scratching for Chrome Devices</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/studiofxs-bright-kit-reviewed-for-durability-and-efficiency/"><u>StudioFX's Bright Kit Reviewed for Durability & Efficiency</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-resolving-the-semaphore-timeout-period-error-code-0x80070079/"><u>Troubleshooting: Resolving the 'Semaphore Timeout Period' Error Code 0X80070079</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Reflect Before You Leave a Trail with Facebook History
-date: 2024-10-19T17:26:20.929Z
-updated: 2024-10-20T22:07:15.383Z
+date: 2024-10-22T17:54:54.352Z
+updated: 2024-10-26T16:00:20.903Z
 tags:
   - facebook
 categories:
@@ -34,10 +34,10 @@ thumbnail: https://thmb.techidaily.com/2e369c90b98435218baf4d297cfbe94e377c61af5
  In January 2024, Meta introduced a Link History feature in the Facebook mobile app. This allows you to view a list of all the websites you've visited from the social network. However, enabling Link History comes at the cost of your privacy.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Facebook's Link History Feature Works
@@ -51,10 +51,16 @@ thumbnail: https://thmb.techidaily.com/2e369c90b98435218baf4d297cfbe94e377c61af5
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Check if You've Opted In to Facebook's Link History
@@ -69,6 +75,13 @@ thumbnail: https://thmb.techidaily.com/2e369c90b98435218baf4d297cfbe94e377c61af5
 
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
@@ -76,13 +89,6 @@ thumbnail: https://thmb.techidaily.com/2e369c90b98435218baf4d297cfbe94e377c61af5
 Close
 
  If you see a screen prompting you to**Allow link history** , you haven't opted in yet. However, if you see a list of links you've visited before, you have already opted into use Facebook's Link History feature.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Disable Link History on Facebook
 
@@ -97,14 +103,14 @@ Close
 
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
-![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
 
@@ -129,22 +135,14 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-frame-rate-selection-made-simple-pros-and-cons-of-30fps-and-60hz/"><u>[New] In 2024, Frame Rate Selection Made Simple Pros and Cons of 30Fps and 60Hz</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-from-novice-to-leader-top-30-facebook-tactics-unlocked-for-2024/"><u>[Updated] From Novice to Leader Top 30 Facebook Tactics Unlocked for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-pro-sniping-on-a-budget-try-these-affordable-pc-tools-for-2024/"><u>[Updated] Pro Sniping on a Budget? Try These Affordable PC Tools for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/engaging-and-effective-top-5-multilingual-learning-apps/"><u>Engaging & Effective: Top 5 Multilingual Learning Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-enterprise-excellence-select-5-powerful-platforms/"><u>Exploring Enterprise Excellence: Select 5 Powerful Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-recognize-and-stop-facebook-fraudsters/"><u>How to Recognize and Stop Facebook Fraudsters</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/how-to-record-overwatch-for-2024/"><u>How to Record Overwatch for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/intel-reveals-microsofts-demand-compulsory-copilot-keys-in-every-ai-enabled-computer/"><u>Intel Reveals Microsoft's Demand: Compulsory Copilot Keys in Every AI-Enabled Computer</u></a></li>
-<li><a href="https://facebook.techidaily.com/journey-of-growth-unveiling-the-new-term-metamate/"><u>Journey of Growth: Unveiling the New Term, 'Metamate'</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-of-mourning-disconnecting-your-fb-commerce-profile/"><u>Mastery of Mourning: Disconnecting Your FB Commerce Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-center-highlighting-facebooks-commitment-to-policy-clarity/"><u>New Center Highlighting Facebook's Commitment to Policy Clarity</u></a></li>
-<li><a href="https://fox-http.techidaily.com/safe-methods-to-fast-forward-in-spotify-files/"><u>Safe Methods to Fast-Forward in Spotify Files</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/setze-deine-personliche-musik-als-anrufbeantworter-ton-auf-ihrem-iphone-xs-xs-max-oder-xr/"><u>Setze Deine Persönliche Musik Als Anrufbeantworter-Ton Auf Ihrem iPhone XS, XS Max Oder XR</u></a></li>
-<li><a href="https://facebook.techidaily.com/simplify-your-social-scene-by-removing-politics/"><u>Simplify Your Social Scene by Removing Politics</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-oppo-reno-9a-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Oppo Reno 9A IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-metas-updated-approach-to-user-privacy/"><u>Unraveling Meta's Updated Approach to User Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-marketing-stands-tall-with-a-facebook-company-page-8-core-advantages/"><u>Why Marketing Stands Tall with a Facebook Company Page - 8 Core Advantages</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-photoshop-lightroom-alternative-insights/"><u>[New] In 2024, Photoshop Lightroom Alternative Insights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-tape-looper-mastery-app/"><u>[Updated] Tape Looper Mastery App</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/celebrating-a-decade-and-half-of-free-lessons/"><u>Celebrating a Decade & Half of Free Lessons</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-scrutiny-german-action-to-halt-facebooks-whatsapp-information-sweep/"><u>Data Scrutiny: German Action to Halt Facebook's WhatsApp Information Sweep</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/descubre-la-solucion-mas-eficiente-para-cambiar-formatos-de-imagen-conversion-heic-a-png-sin-problemas/"><u>Descubre La Solución Más Eficiente Para Cambiar Formatos De Imagen: Conversión HEIC a PNG Sin Problemas</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-domains-shift-from-facebook-to-the-next-chapter-meta/"><u>Digital Domains Shift: From Facebook to the Next Chapter, Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-eyes-for-economic-advantage/"><u>Digital Eyes for Economic Advantage</u></a></li>
+<li><a href="https://facebook.techidaily.com/direct-transmission-of-instagram-reels-to-facebook-friends/"><u>Direct Transmission of Instagram Reels to Facebook Friends</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-onikumas-non-functional-headset-mic-a-comprehensive-guide/"><u>How to Fix Onikuma's Non-Functional Headset Mic: A Comprehensive Guide</u></a></li>
 </ul></div>
 

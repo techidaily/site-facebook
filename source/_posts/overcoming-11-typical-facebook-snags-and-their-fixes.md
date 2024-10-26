@@ -1,7 +1,7 @@
 ---
 title: Overcoming 11 Typical Facebook Snags and Their Fixes
-date: 2024-10-15T19:10:09.278Z
-updated: 2024-10-20T23:35:12.354Z
+date: 2024-10-23T18:32:03.101Z
+updated: 2024-10-26T16:28:50.257Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/66485902527c2f60d68ff1756c39d95b2b9ff2d6a
 
 ![Facebook Profile and Tagging settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-profile-and-tagging-2023.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### If Facebook Tagging Isn't Working
 
  If it seems like Facebook tagging isn't working, meaning that typing @ followed by someone's name doesn't function, the reason is likely that your friend disabled this option on their account. Try tagging someone else and see if that works. If you still have problems, refer to sections #10 and #11 below for tips on troubleshooting deeper Facebook errors.
@@ -55,13 +62,6 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Unfollow 2021](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-2021.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Now, you won't have to suffer from that person's posts anymore. You'll still be friends, so you can visit their timeline when you want to check out what they're up to. And if you change your mind, just click the**Follow** button to start seeing their posts in your feed again.
 
  For a short-term solution, you can also click the three-dot**Menu** button on any post, then choose**Snooze \[Name\] for 30 days** . This will hide their posts for a month, so you can take a break from that person.
@@ -69,13 +69,6 @@ We all know someone who posts all the time on Facebook:
  Unfollowing someone doesn't send them a notification, so don't worry about them knowing. If you ever want to see everyone you've unfollowed in one place, click your profile photo at the top-right of Facebook and choose**Settings & privacy > Feed** .
 
  From the resulting menu, pick**Reconnect** and you'll see everyone you've unfollowed. Click the**Plus** button to follow any of them again.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Keep Important Friends First
 
@@ -88,16 +81,10 @@ We all know someone who posts all the time on Facebook:
 ![Facebook Manage Favorites](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Manage-Favorites.png)
 
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Opt Out of Targeted Ads on Facebook
@@ -139,10 +126,16 @@ We all know someone who posts all the time on Facebook:
 ![Facebook Restricted List Friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Restricted-List-Friends.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Block Annoying Auto-Playing Videos
@@ -152,6 +145,20 @@ We all know someone who posts all the time on Facebook:
  To turn off auto-play for videos on Facebook, click your profile picture again and choose**Settings & privacy > Settings** . Click the**Videos** tab on the left, then set the**Auto-Play Videos** option to**Off** .
 
 ![Facebook Disable Video Autoplay](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Disable-Video-Autoplay.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. Block Annoying App Invites
 
@@ -164,10 +171,10 @@ We all know someone who posts all the time on Facebook:
 ![Facebook Blocking Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-blocking-menu.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. Change the Facebook Interface to Your Liking
@@ -180,13 +187,6 @@ We all know someone who posts all the time on Facebook:
 
 ![Social Fixer Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Social-Fixer-Menu.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Social Fixer offers too many options to cover here, but the highlights include:
 
 * Automatically enable**Most Recent** view in your News Feed (**General** tab).
@@ -198,33 +198,27 @@ We all know someone who posts all the time on Facebook:
 
  Dig into the Social Fixer options and you'll find many more ways to change the most annoying parts of Facebook.
 
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Solutions for Common Facebook Errors
 
  To wrap up, let's go over some tips for common Facebook errors you might run into.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. You Forgot Your Facebook Password
 
  Forgetting your Facebook login information is one of the most common issues people run into. We've written a full guide on[recovering your Facebook account if you can't log in](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) . And[if you think your Facebook account was hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) , you need to act quickly.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. You Can't Connect to Facebook
 
@@ -267,24 +261,18 @@ We all know someone who posts all the time on Facebook:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-essential-list-premium-free-video-player-apps-pc-and-mobile/"><u>[New] 2024 Approved Essential List Premium Free Video Player Apps (PC & Mobile)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/kyrocket-visibility-mastering-google-analytics-for-youtubers-for-2024/"><u>[New] Skyrocket Visibility Mastering Google Analytics for YouTubers for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-how-to-bring-your-ideas-to-life-in-win-movie-maker/"><u>[Updated] How to Bring Your Ideas to Life in Win Movie Maker</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-the-wealth-of-mr-beast/"><u>[Updated] In 2024, The Wealth of Mr. Beast</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-100-instagram-captions-to-show-yourself-to-the-world-filmora/"><u>2024 Approved 100 Instagram Captions to Show Yourself to the World - Filmora</u></a></li>
-<li><a href="https://facebook.techidaily.com/compreenas-unlocking-your-facebook-blocked-friends-names/"><u>Compreenas: Unlocking Your Facebook Blocked Friends’ Names</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-doppelgangers-uncovered-spotting-the-9-profile-impostors/"><u>Digital Doppelgängers Uncovered: Spotting the 9 Profile Impostors</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-changes-in-facebooks-content-organization/"><u>Exploring Changes in Facebook's Content Organization</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-poco-x6-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Poco X6 Pro? | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-2023s-leading-social-media-film-downloads-no-8/"><u>In 2024, 2023'S Leading Social Media Film Downloads - No. 8</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-lava-yuva-2-pro-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Lava Yuva 2 Pro Phones</u></a></li>
-<li><a href="https://facebook.techidaily.com/messenger-markup-magic-standout-text-styles/"><u>Messenger Markup Magic: Standout Text Styles</u></a></li>
-<li><a href="https://facebook.techidaily.com/metaverse-truths-and-misconceptions-a-reality-check/"><u>Metaverse Truths & Misconceptions – A Reality Check</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-age-of-digital-advertising-on-instagram-facebook/"><u>New Age of Digital Advertising on Instagram, Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-your-purchase-power-from-online-predators-at-facebook-marketplace/"><u>Protecting Your Purchase Power From Online Predators at Facebook Marketplace</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/transform-into-a-social-media-star-by-mimicking-yourself-on-tiktok-for-2024/"><u>Transform Into a Social Media Star by Mimicking Yourself on TikTok for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-metas-decision-delay-in-default-end-to-end-encryption/"><u>Understanding Meta’s Decision: Delay in Default End-to-End Encryption</u></a></li>
-<li><a href="https://facebook.techidaily.com/uniting-your-social-media-and-chat-life-on-whatsapp/"><u>Uniting Your Social Media and Chat Life on WhatsApp</u></a></li>
-<li><a href="https://games-able.techidaily.com/why-gamefi-cant-attract-the-core-gamers/"><u>Why GameFi Can't Attract the Core Gamers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-adding-joy-to-snaps-the-guide-to-cartoon-filters/"><u>[New] 2024 Approved Adding Joy to Snaps The Guide to Cartoon Filters</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-essential-mac-microphone-tools-selecting-leading-recorders-for-2024/"><u>[Updated] Essential Mac Microphone Tools Selecting Leading Recorders for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-motives-to-break-free-from-the-social-media-giant/"><u>6 Motives to Break Free From the Social Media Giant</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/swfmov-movavi/"><u>線上無架限，SWF釋放MOV：利用 Movavi 解碼器進行高效、便捷轉換</u></a></li>
+<li><a href="https://facebook.techidaily.com/become-a-digital-content-wizard-with-these-proven-techniques-for-facebook-video-creation/"><u>Become a Digital Content Wizard with These Proven Techniques for Facebook Video Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-surface-scandals-evaluating-facebook-papers-objectively/"><u>Beyond Surface Scandals: Evaluating Facebook Papers Objectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/brisk-business-lite-android-productivity-picks/"><u>Brisk Business: Lite Android Productivity Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/curating-personalized-reflections-on-facebook/"><u>Curating Personalized Reflections on Facebook</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-new-update-how-to-install-canoscan-lide-220-drivers-for-optimal-performance/"><u>Get the New Update: How to Install CanoScan LiDE 220 Drivers for Optimal Performance</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/how-to-optimize-ifolder-synchronization-with-advanced-filter-settings/"><u>How To Optimize iFolder Synchronization with Advanced Filter Settings</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-oppo-reno-10-proplus-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Oppo Reno 10 Pro+ 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-realme-narzo-60-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Realme Narzo 60 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://driver-download.techidaily.com/upgrade-your-router-free-killer-gigabit-ethernet-controller-e2500-driver-download/"><u>Upgrade Your Router - Free Killer Gigabit Ethernet Controller (E2500) Driver Download</u></a></li>
 </ul></div>
 

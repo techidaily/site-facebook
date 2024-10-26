@@ -1,7 +1,7 @@
 ---
 title: Handling Late Friends' Online Presence with Sensitivity and Care
-date: 2024-10-19T02:03:41.864Z
-updated: 2024-10-20T23:36:56.068Z
+date: 2024-10-24T17:08:19.481Z
+updated: 2024-10-26T16:16:21.474Z
 tags:
   - facebook
 categories:
@@ -45,22 +45,15 @@ To get a Facebook account memorialized, follow these steps:
 
  If your case is genuine, Facebook allows you to hold a fundraiser and let people worldwide help you manage money for the deceased person. Use[valuable tips to make your fundraising campaign a success](https://www.makeuseof.com/tag/crowdfunding-campaign-tips/) .
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Get a Facebook Account Removed After the Person Dies
 
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
@@ -76,10 +69,10 @@ To get a Facebook account memorialized, follow these steps:
 2. In the**Full Name** section, enter your official credentials.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3. Add your email address currently in use under the**Your** **Contact Email** section. Facebook might contact you and acquire more details if needed.
@@ -89,6 +82,13 @@ To get a Facebook account memorialized, follow these steps:
 1. Enter the email address that was used to create that account in the**Account's Email Address** section.  
 ![Give deceased persons accounts email address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Give-complete-details-in-the-form.jpg)
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
 4. Choose an image or PDF depending on the document you were issued. Make sure they are authentic and come with a state seal for assurance.
@@ -100,10 +100,10 @@ To get a Facebook account memorialized, follow these steps:
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
@@ -129,24 +129,20 @@ To get a Facebook account memorialized, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-green-grounds-a-selection-of-free-downloadable-videography-sets/"><u>[New] Green Grounds A Selection of Free, Downloadable Videography Sets</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-circling-the-globe-in-one-shot-versus-layered-visuals/"><u>[Updated] Circling the Globe in One Shot Versus Layered Visuals</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-cutting-edge-gaming-setup-unpacking-samsungs-ue590-panel/"><u>[Updated] In 2024, Cutting Edge Gaming Setup Unpacking Samsung's UE590 Panel</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-guide-to-large-scale-tiktok-content-acquisition/"><u>2024 Approved The Ultimate Guide to Large-Scale TikTok Content Acquisition</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723205219557-aoc-screen-issues-on-windows-10-heres-your-step-by-step-solution/"><u>AOC Screen Issues on Windows 10? Here's Your Step-by-Step Solution</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticate-and-engage-meta-us-awaits-you/"><u>Authenticate and Engage – Meta US Awaits You</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-tecno-pop-7-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Tecno Pop 7 Pro Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://win-net.techidaily.com/customizing-flipbook-with-your-corporate-insignia-in-the-application-interface/"><u>Customizing FlipBook with Your Corporate Insignia in the Application Interface</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/decoding-instagrams-verification-system/"><u>Decoding Instagram's Verification System</u></a></li>
-<li><a href="https://facebook.techidaily.com/engage-ethically-taking-control-of-online-interactions-using-facebooks-innovative-tools/"><u>Engage Ethically: Taking Control of Online Interactions Using Facebook’s Innovative Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-your-weekend-with-fbs-live-purchasing-hours/"><u>Enhance Your Weekend with FB's Live Purchasing Hours</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-vision-for-virtual-reality-the-call-for-10k-developers/"><u>Facebook's Vision for Virtual Reality: The Call for 10K Developers</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/how-to-remove-filmora-watermark-withwithout-paying-in-2024/"><u>How to Remove Filmora Watermark With/Without Paying, In 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Vivo Y78t | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/joe-biden-uses-social-media-to-speed-up-vax-distribution/"><u>Joe Biden Uses Social Media to Speed Up Vax Distribution</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-conversations-lighthearted-without-crossing-lines/"><u>Keeping Conversations Lighthearted without Crossing Lines</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-login-safety-implementing-fbs-authenticator-method/"><u>Mastering Login Safety: Implementing FB's Authenticator Method</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-multi-language-marketing-on-fb/"><u>The Ultimate Guide to Multi-Language Marketing on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-myths-of-social-media-impersonation/"><u>Unraveling the Myths of Social Media Impersonation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-navigating-the-best-mobile-asmr-worldwide/"><u>[New] Navigating the Best Mobile ASMR Worldwide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-navigating-through-modern-cameras-complex-shooting-modes/"><u>[New] Navigating Through Modern Camera's Complex Shooting Modes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-a-comprehensive-list-selecting-best-free-srt-translators-for-2024/"><u>[Updated] A Comprehensive List Selecting Best FREE SRT Translators for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-from-novice-to-pro-creating-snapchat-boomers/"><u>[Updated] From Novice to Pro Creating Snapchat Boomers</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-my-selection-in-fbs-custom-ads/"><u>Decoding My Selection in FB's Custom Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-sheryls-role-in-facebooks-evolution/"><u>Decoding Sheryl's Role in Facebook's Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-chamber-of-messages-essential-beginner-tricks/"><u>Decoding the Chamber of Messages: Essential Beginner Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-complexity-of-facebooks-operational-rules/"><u>Decoding the Complexity of Facebook's Operational Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/detaching-instagrams-footprint-from-fb-network/"><u>Detaching Instagram's Footprint From FB Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discretion-dictate-evade-this-privacy-poachers-group/"><u>Digital Discretion Dictate: Evade This Privacy Poacher's Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/donald-trumps-legal-standoff-with-g-f-t-over-free-speech/"><u>Donald Trump's Legal Standoff with G-F-T Over Free Speech</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-infinix-zero-30-5g-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Infinix Zero 30 5G?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-realme-gt-5-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Realme GT 5 Phone? Unlock It Now</u></a></li>
+<li><a href="https://program-issues.techidaily.com/stop-gameplay-hiccups-now-expert-tips-for-boosting-fps-on-recent-titles/"><u>Stop Gameplay Hiccups Now! Expert Tips for Boosting FPS on Recent Titles</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-battle-between-chatgpt-and-huggingchat-which-conversational-ai-takes-the-lead/"><u>The Battle Between ChatGPT and HuggingChat: Which Conversational AI Takes the Lead?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2024-10-19T23:37:36.769Z
-updated: 2024-10-20T19:48:46.972Z
+date: 2024-10-19T21:03:29.569Z
+updated: 2024-10-26T20:26:15.150Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -66,14 +66,18 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-top-10-tools-to-shield-photographic-work/"><u>[Updated] 2024 Approved Top 10 Tools to Shield Photographic Work</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/convertir-archivo-mkv-a-formato-flv-de-vuelo-sin-coste-con-movavi/"><u>Convertir Archivo MKV a Formato FLV De Vuelo Sin Coste Con Movavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/effortless-spot-sharing-on-facebook-chatrooms/"><u>Effortless Spot Sharing on Facebook Chatrooms</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-resilience-unveiling-its-longevity-strategy/"><u>Facebook's Resilience: Unveiling Its Longevity Strategy</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/les-commandements-du-lundi-a-dimanche/"><u>Les Commandements Du Lundi À Dimanche</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/mastering-modern-electronics-a-guide-by-toms-hardware-experts/"><u>Mastering Modern Electronics: A Guide by Tom's Hardware Experts</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/quick-guide-resolving-mp4-format-compatibility-with-quicktime-player/"><u>Quick Guide: Resolving MP4 Format Compatibility with QuickTime Player</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguard-yourself-essential-online-disclosures-to-avoid/"><u>Safeguard Yourself: Essential Online Disclosures to Avoid</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-conceal-like-counts-on-sites/"><u>Secure Your Digital Footprint: Conceal Like Counts on Sites</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-resolve-instagram-video-glitches-today/"><u>[New] 2024 Approved Resolve Instagram Video Glitches Today</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-all-you-need-to-know-about-mobizens-screen-capture/"><u>[New] All You Need to Know About Mobizen's Screen Capture</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-to-excellent-cricket-broadcasting/"><u>[New] The Ultimate Guide to Excellent Cricket Broadcasting</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-clear-out-instructions-for-disabling-an-old-linkedin-profile/"><u>2024 Approved The Clear-Out Instructions for Disabling an Old LinkedIn Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-secure-email-engagement-mastery-of-2fa-on-popular-mail-services-like-google-and-microsoft/"><u>Achieve Secure Email Engagement: Mastery of 2FA on Popular Mail Services Like Google and Microsoft</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-secret-dialogues-on-facebook-well-guarded/"><u>Are Secret Dialogues on Facebook Well-Guarded?</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-excessive-fb-reel-watching/"><u>Breaking Free From Excessive FB Reel Watching</u></a></li>
+<li><a href="https://facebook.techidaily.com/browsing-back-through-personal-fb-history/"><u>Browsing Back Through Personal FB History</u></a></li>
+<li><a href="https://facebook.techidaily.com/curb-unexpected-people-proposals-on-facebook/"><u>Curb Unexpected People Proposals on Facebook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/cutting-edge-introduction-editors-for-all-your-tech/"><u>Cutting-Edge Introduction Editors for All Your Tech</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-building-a-competitive-advantage-through-in-depth-industry-analysis/"><u>In 2024, Building a Competitive Advantage Through In-Depth Industry Analysis</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/powering-your-sites-personalization-features-with-modern-tech/"><u>Powering Your Site's Personalization Features With Modern Tech</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/reset-itunes-backup-password-of-apple-iphone-8-prevention-and-solution-drfone-by-drfone-ios/"><u>Reset iTunes Backup Password Of Apple iPhone 8 Prevention & Solution | Dr.fone</u></a></li>
 </ul></div>
 

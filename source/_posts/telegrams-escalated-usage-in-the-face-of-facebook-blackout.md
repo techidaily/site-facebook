@@ -1,7 +1,7 @@
 ---
 title: Telegram's Escalated Usage in the Face of Facebook Blackout
-date: 2024-10-19T01:37:03.513Z
-updated: 2024-10-20T18:17:25.632Z
+date: 2024-10-23T20:20:53.107Z
+updated: 2024-10-26T17:24:50.434Z
 tags:
   - facebook
 categories:
@@ -37,22 +37,15 @@ thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e8
 But why did Telegram benefit so much more than any of its rivals?
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Did People Choose Telegram When WhatsApp Went Down?
 
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
 
@@ -61,10 +54,10 @@ But why did Telegram benefit so much more than any of its rivals?
  All of these features have helped it become the de facto number two behind WhatsApp in many people's minds, so installing it during a time of crisis was a no-brainer.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Important Is This for Telegram?
@@ -79,6 +72,13 @@ But why did Telegram benefit so much more than any of its rivals?
 
  It is arguably the first time that any WhatsApp competitor has been able to make that claim, and it suddenly makes the Facebook-owned app's hegemony look a lot less secure.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## It Wasn't All Perfect for Telegram
 
  While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In[a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
@@ -92,10 +92,10 @@ But why did Telegram benefit so much more than any of its rivals?
  Breaking WhatsApp's dominance is already a herculean task. If Telegram's app is not functioning when people need it, the progress it has been enjoying recently could be irrevocably damaged.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can Telegram Continue Its Momentous Rise?
@@ -119,19 +119,22 @@ But why did Telegram benefit so much more than any of its rivals?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-perfect-your-presence-masterful-morphvox-techniques/"><u>[Updated] 2024 Approved Perfect Your Presence Masterful MorphVOX Techniques</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/convert-your-m4v-files-to-dvd-format-for-playback/"><u>Convert Your M4V Files to DVD Format for Playback</u></a></li>
-<li><a href="https://facebook.techidaily.com/cryptocurrency-and-sheep-zuckerbergs-surprising-pet-name/"><u>Cryptocurrency and Sheep? Zuckerberg’s Surprising Pet Name.</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-install-lenovo-ideapad-100-drivers-for-windows-10-a-step-by-step-guide/"><u>Download and Install Lenovo IdeaPad 100 Drivers for Windows 10: A Step-by-Step Guide</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-se-2020-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone SE (2020) Without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Nokia XR21 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-honor-x50iplus-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Honor X50i+ to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/minecraft-unleashed-extracting-world-data-post-unsubscription/"><u>Minecraft Unleashed: Extracting World Data Post-Unsubscription</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-for-extracting-entire-facebook-records/"><u>Step-by-Step for Extracting Entire Facebook Records</u></a></li>
-<li><a href="https://facebook.techidaily.com/swiftly-spread-conversation-wings-add-friends-on-facebook-messenger/"><u>Swiftly Spread Conversation Wings: Add Friends on Facebook Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailoring-your-social-scene-top-tips-for-a-personalized-fb-experience/"><u>Tailoring Your Social Scene: Top Tips for a Personalized FB Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-tempest-approaching-facebooks-troubling-forecast/"><u>The Tempest Approaching: Facebook's Troubling Forecast</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-most-advanced-and-fastest-cable-modems-on-the-market/"><u>Unveiling the Most Advanced and Fastest Cable Modems on the Market</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-cutting-edge-audio-tools-for-iphone-and-ipad-enthusiasts-for-2024/"><u>Updated Cutting-Edge Audio Tools for iPhone and iPad Enthusiasts for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-the-ultimate-list-of-powerful-pc-screencasters/"><u>[New] 2024 Approved The Ultimate List of Powerful PC Screencasters</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-tips-and-tricks-for-creating-engaging-collab-videos-on-youtube/"><u>[New] 2024 Approved Tips and Tricks for Creating Engaging Collab Videos on YouTube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-videos-that-speak-volumes-for-marketing-success/"><u>[New] In 2024, Videos That Speak Volumes for Marketing Success</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-maximizing-earnings-on-instagram-strategies-for-sponsorship-attraction/"><u>[New] Maximizing Earnings on Instagram Strategies for Sponsorship Attraction</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-premier-picture-driven-journey-maker/"><u>[New] Premier Picture-Driven Journey Maker</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-sustainable-practices-greening-urban-landscapes/"><u>[Updated] 2024 Approved Sustainable Practices Greening Urban Landscapes</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-kiddie-koala-race-relays/"><u>[Updated] Kiddie Koala Race Relays</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-implications-of-us-tech-antitrust-law/"><u>Deciphering the Implications of U.S. Tech Antitrust Law</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metaverse-beyond-just-social-media-giants/"><u>Decoding Metaverse: Beyond Just Social Media Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-mystery-of-concealed-facebook-profiles/"><u>Decoding the Mystery of Concealed Facebook Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-blocked-accounts-on-facebook/"><u>Discovering Blocked Accounts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-facebook-supporters/"><u>Discovering Facebook Supporters</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-hashtags-work-on-facebook-what-you-need-to-know/"><u>Do Hashtags Work on Facebook? What You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/e-identity-exposure-investigating-digital-dupes/"><u>E-Identity Exposure: Investigating Digital Dupes</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-profile-us-meta-verification-begins/"><u>Elevate Your Profile – U.S. Meta Verification Begins</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/masterful-mac-livestream-tech-best-of-the-best-ranked-1-to-5-for-2024/"><u>Masterful Mac Livestream Tech Best of the Best, Ranked 1 to 5 for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/streamlining-business-with-azure-speech-services/"><u>Streamlining Business with Azure Speech Services</u></a></li>
 </ul></div>
 

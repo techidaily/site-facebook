@@ -1,7 +1,7 @@
 ---
 title: "Virtual Vistas: Seeing Facebook & Instagram Fuse"
-date: 2024-09-10T14:56:45.473Z
-updated: 2024-09-11T14:56:45.473Z
+date: 2024-10-23T19:26:44.235Z
+updated: 2024-10-26T20:07:54.449Z
 tags:
   - facebook
 categories:
@@ -17,27 +17,10 @@ thumbnail: https://thmb.techidaily.com/14ec62870ba2076f7e8c9687f751c49a66df2b130
 
  Despite concerns that users have over the data-sharing between Instagram and Facebook, parent company Meta has announced that it's testing Accounts Center features that allow users to swap between profiles more easily and receive notifications from both apps.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Meta Tests New Cross-Platform Account Center Features
 
@@ -57,19 +40,12 @@ Meta notes:
 
  If you want to[make your Instagram more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , or have concerns about Facebook data leaks, this may not be the feature for you.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Accounts Center May Expand to More Apps
 
@@ -79,32 +55,22 @@ Meta notes:
 
  In August 2022, Meta introduced Meta Accounts, a change to account structure for Oculus profiles and Meta Horizons.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Meta Continues to Bring its Apps Closer
 
  The new Accounts Center feature test won't be the last we see of centralized Meta account access. If all goes according to plan, your profiles across Meta accounts may become a lot more connected than in the past.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,12 +79,19 @@ Meta notes:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/nnovations-to-enhance-your-short-video-experience/"><u>[New] Innovations to Enhance Your Short Video Experience</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-transform-your-macbook-writable-screen-with-these-wallpapers/"><u>[Updated] In 2024, Transform Your MacBook' Writable Screen with These Wallpapers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-unlocking-the-potential-of-facetime-voice-logging/"><u>2024 Approved Unlocking the Potential of FaceTime Voice Logging</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/discover-the-power-of-panasonics-hx-a1-actioncam/"><u>Discover the Power of Panasonic's HX-A1 ActionCam</u></a></li>
+<li><a href="https://facebook.techidaily.com/empowering-growth-essential-meta-strategies-for-success/"><u>Empowering Growth: Essential Meta Strategies for Success</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/evaluating-core-vs-enhanced-gpt-interaction-tools/"><u>Evaluating Core Vs. Enhanced GPT Interaction Tools</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-samsung-galaxy-a14-4g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Samsung Galaxy A14 4G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-the-invisible-lines-in-online-social-networks/"><u>Interpreting the Invisible Lines in Online Social Networks</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/meme-mania-social-medias-most-hilarious-video-threads/"><u>Meme Mania Social Media's Most Hilarious Video Threads</u></a></li>
+<li><a href="https://facebook.techidaily.com/methods-to-secure-a-share-from-facebooks-lawsuit-settlement/"><u>Methods to Secure a Share From Facebook's Lawsuit Settlement</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-fb-photos-the-power-of-alt-text/"><u>Unlocking FB Photos: The Power of Alt-Text</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-postpones-update-on-new-privacy-rules/"><u>WhatsApp Postpones Update on New Privacy Rules</u></a></li>
+</ul></div>
 

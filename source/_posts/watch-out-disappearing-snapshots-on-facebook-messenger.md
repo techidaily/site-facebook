@@ -1,7 +1,7 @@
 ---
 title: "Watch Out: Disappearing Snapshots on Facebook Messenger"
-date: 2024-10-13T19:25:18.162Z
-updated: 2024-10-20T17:56:25.036Z
+date: 2024-10-25T16:44:59.249Z
+updated: 2024-10-26T21:57:55.636Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5
 
  Meta expects default encryption on Messenger to be[globally implemented by 2023](https://www.makeuseof.com/meta-delays-end-to-end-encryption-until-2023/) , when Instagram and Messenger are also likely to merge.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Activate Screenshot Notifications on Messenger
 
  Because Messenger's end-to-end encryption isn't turned on by default, you have to enable Secret Conversations with each Messenger contact. Both parties must have the latest version of the app. If one party doesn't, they'll have to update the app before this feature can work on their end.
@@ -53,39 +60,32 @@ thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5
 ![Starting a new conversation on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery-4-2.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Starting a secret conversation in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery5-2.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Messenger secret conversations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery6-2.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
  Once you do the above, if your chat partner takes a screenshot of your secret conversation before the message disappears, Messenger will immediately let you know.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Other Updates to Messenger
@@ -109,22 +109,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-examining-the-tech-in-djis-phantom-3-prototype/"><u>[New] Examining the Tech in DJI's Phantom 3 Prototype</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-optimizing-igtv-videos-editing-strategies-for-2024/"><u>[Updated] Optimizing IGTV Videos Editing Strategies for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/boost-your-xbox-series-xs-visuals-via-external-monitor-use/"><u>Boost Your Xbox Series X|S Visuals via External Monitor Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-responsibility-curbing-covid-19-unverified-claims/"><u>Digital Responsibility: Curbing COVID-19 Unverified Claims</u></a></li>
-<li><a href="https://win-blog.techidaily.com/diy-refresh-tips-and-tricks-to-resolve-pixelated-graphics-in-call-of-duty-warzone-on-desktop/"><u>DIY Refresh: Tips and Tricks to Resolve Pixelated Graphics in Call of Duty: Warzone on Desktop</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/t-tips-for-dealing-with-youtube-copyright-notifications-for-2024/"><u>Expert Tips for Dealing With YouTube Copyright Notifications for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/have-you-tried-communicating-with-chatgpt-yet/"><u>Have You Tried Communicating with ChatGPT Yet?</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-build-a-memorable-facebook-timeline/"><u>How to Build a Memorable Facebook Timeline</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-engage-with-facebook-security-for-increased-privacy/"><u>How to Engage with Facebook Security for Increased Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/like-count-anonymity-the-new-standard-for-fbig-users/"><u>Like Count Anonymity: The New Standard for FB/IG Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-direct-messaging-services-exclusively/"><u>Navigating Direct Messaging Services Exclusively</u></a></li>
-<li><a href="https://facebook.techidaily.com/parental-guide-to-updating-kids-information-in-messengers/"><u>Parental Guide to Updating Kid's Information in Messengers</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-xiaomi-civi-3-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Xiaomi Civi 3 and Browser | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/reactivating-a-disabled-windows-11-media-app/"><u>Reactivating a Disabled Windows 11 Media App</u></a></li>
-<li><a href="https://facebook.techidaily.com/seeking-truth-in-hate-for-global-network-engagement-tools/"><u>Seeking Truth in Hate for Global Network Engagement Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-potential-essential-mobile-settings-in-fb-app/"><u>Unlock Potential: Essential Mobile Settings in FB App</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/upgrade-clips-adding-effects-to-videos-pcmobile-for-2024/"><u>Upgrade Clips Adding Effects to Videos (PC/Mobile) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dormancy-why-instagram-promotes-online-intervals/"><u>'Digital Dormancy': Why Instagram Promotes Online Intervals</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-ip-landscape-of-instagram-music-for-2024/"><u>[New] The IP Landscape of Instagram Music for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exploring-income-average-creator-revenue-from-adverts-on-youtube/"><u>[Updated] Exploring Income Average Creator Revenue From Adverts on YouTube?</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-social-media-influencers-secret-creating-captivating-facebook-biographies/"><u>[Updated] In 2024, Social Media Influencers' Secret Creating Captivating Facebook Biographies</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-from-capture-to-share-a-quick-guide-to-instagram-video-uploads-on-desktop/"><u>2024 Approved From Capture to Share A Quick Guide to Instagram Video Uploads on Desktop</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/boost-your-apple-watchs-battery-performance-with-these-8-key-setting-tweaks/"><u>Boost Your Apple Watch's Battery Performance with These 8 Key Setting Tweaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-mechanism-behind-my-fb-promos/"><u>Decoding the Mechanism Behind My FB Promos</u></a></li>
+<li><a href="https://facebook.techidaily.com/directive-strategies-to-rule-your-facebook-group/"><u>Directive Strategies to Rule Your Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-immersive-ar-messages-from-fb-messenger/"><u>Discover Immersive AR Messages From FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-recent-favorites-fbs-new-videos/"><u>Discover Recent Favorites: FB's New Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/download-the-xvid-video-encoder-free-compatible-with-mac-quicktime-and-vlc/"><u>Download the Xvid Video Encoder Free: Compatible with Mac, QuickTime & VLC</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-for-black-background-on-facebook/"><u>Easy Steps for Black Background on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-engagement-a-compreayer-of-facebooks-new-moderation-features-for-groups/"><u>Elevate Your Engagement: A Compreayer of Facebook’s New Moderation Features for Groups</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lava-yuva-3-pro-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Lava Yuva 3 Pro Phone without Any Data Loss</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-ipad-video-tutorials-for-easy-time-lapses/"><u>In 2024, IPad Video Tutorials for Easy Time-Lapses</u></a></li>
+<li><a href="https://driver-error.techidaily.com/optimize-win10-high-disk-utilization-fix/"><u>Optimize Win10: High Disk Utilization Fix</u></a></li>
 </ul></div>
 

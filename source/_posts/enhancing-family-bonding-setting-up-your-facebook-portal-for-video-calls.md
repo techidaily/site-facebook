@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Family Bonding: Setting Up Your Facebook Portal for Video Calls"
-date: 2024-09-10T14:55:36.231Z
-updated: 2024-09-11T14:55:36.231Z
+date: 2024-10-24T20:31:44.393Z
+updated: 2024-10-26T19:33:25.130Z
 tags:
   - facebook
 categories:
@@ -21,45 +21,14 @@ thumbnail: https://thmb.techidaily.com/fa651493e7721486825be5cb6becb6ac17b9f6602
 
  In this article, we explain how to set up and use a Facebook Portal TV for video chats with family and friends...
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Why Video Chat on a TV?
 
 ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-tv-video-call.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Smartphones are unarguably the most popular devices for video chats. Their portability makes them easy and convenient to carry around. However, the user experience of video chatting on a smartphone falls short in some areas.
 
@@ -74,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/fa651493e7721486825be5cb6becb6ac17b9f6602
 [Making group conference calls](https://www.makeuseof.com/tag/6-excellent-apps-to-place-group-and-conference-calls/) is a lot more fun on a TV as you can see the people you are chatting with clearly due to the size of the screen.
 
  Having large images of your family, friends, and/or colleagues on the TV screen during a video call creates an illusion of proximity.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What Is the Facebook Portal TV?
 
@@ -91,39 +67,24 @@ thumbnail: https://thmb.techidaily.com/fa651493e7721486825be5cb6becb6ac17b9f6602
 
  The Portal TV offers additional services to you based on your subscription category.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to Make Video Calls on the Facebook Portal TV
 
 ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
 
-
-
-
+ Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
- Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
 ### Plugging In Your Portal TV
 
@@ -137,20 +98,6 @@ thumbnail: https://thmb.techidaily.com/fa651493e7721486825be5cb6becb6ac17b9f6602
 2. Don't place your Portal TV very close to a speaker or soundbar.
 3. Your Portal TV comes with Dolby Atmos sound. For effective use, it requires Dolby Atmos-encoded streaming content as well as a compatible audio system.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Mounting Your Portal TV on Top of Your TV
 
 Your Portal TV has two clips.
@@ -160,42 +107,21 @@ Your Portal TV has two clips.
 3. Simultaneously press the back clip of your Portal TV against the back of your TV frame and the front clip of your Portal TV against the front of your TV frame.
 4. Press the back clip of your Portal TV against the back of your TV for a firm grip.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Setting Up Your Remote
 
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Selecting Your Language and Connecting to Wi-Fi
 
 ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
 
@@ -218,19 +144,12 @@ Your Portal TV has two clips.
 
 ![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Here is how to use voice commands to make, answer, and hang up calls on your Portal.
 
@@ -240,20 +159,30 @@ Your Portal TV has two clips.
 
 **To hang up a call** , say "Hey Portal, hang up."
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Building Stronger Relationships by Connecting on the Big Screen
 
  Video chatting with family and friends on the big screen can make you feel closer to them even when they are far away. You can see their faces and expressions clearly like they are standing in front of you.
 
  Indeed, Facebook's Portal TV is helping people build stronger relationships among friends, families, and/or colleagues. Even in the midst of a pandemic.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -262,12 +191,23 @@ Your Portal TV has two clips.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-clearing-the-fuzziness-tips-to-improve-chrome-videography/"><u>[New] 2024 Approved Clearing the Fuzziness Tips to Improve Chrome Videography</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-the-ultimate-guide-to-window-recording-on-spring-screens/"><u>[New] 2024 Approved The Ultimate Guide to Window Recording on Spring Screens</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-pinnacle-of-low-speed-video-recording-top-5/"><u>[Updated] 2024 Approved Pinnacle of Low-Speed Video Recording – Top 5</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-art-of-matching-fpv-drones-with-ideal-blades/"><u>2024 Approved The Art of Matching FPV Drones with Ideal Blades</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-the-ios-145-update-is-going-to-really-hurt-facebook/"><u>How the iOS 14.5 Update Is Going to Really Hurt Facebook</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-vivo-y100t-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Vivo Y100t Quickly? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-tecno-pop-8-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Tecno Pop 8 online without jailbreak</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-innovative-approaches-for-effective-use-of-streamlabs-obs/"><u>In 2024, Innovative Approaches for Effective Use of Streamlabs OBS</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-social-media-is-facebook-at-the-forefront/"><u>Interactive Social Media: Is Facebook at the Forefront?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-minimize-daily-facebook-usage/"><u>Mastering Social Media: Minimize Daily Facebook Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-recovery-of-deleted-facebook-videos/"><u>Mastering the Recovery of Deleted Facebook Videos</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-common-issues-with-the-logitech-g230-microphone-fixed/"><u>Solving Common Issues with the Logitech G230 Microphone [FIXED]</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-showdown-of-corporate-and-casual-online-communities/"><u>The Ultimate Showdown of Corporate and Casual Online Communities</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722842901524-troubleshooting-missing-rockaldlldll-errors-in-your-system-expert-advice/"><u>Troubleshooting Missing rockaldll.dll Errors in Your System – Expert Advice</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasked-truths-rethinking-the-significance-of-facebook-reports/"><u>Unmasked Truths: Rethinking the Significance of Facebook Reports</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapps-legal-standoff-against-privacy-rule-impact/"><u>WhatsApp's Legal Standoff Against Privacy Rule Impact</u></a></li>
+</ul></div>
 

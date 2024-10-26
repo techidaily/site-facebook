@@ -1,7 +1,7 @@
 ---
 title: "Social Media Standstill: Facebook & Co.'s 6-Hour Pause"
-date: 2024-10-18T20:59:58.854Z
-updated: 2024-10-20T16:54:39.354Z
+date: 2024-10-19T19:36:54.523Z
+updated: 2024-10-26T16:42:37.865Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
@@ -62,16 +62,10 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
@@ -95,21 +89,19 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-discovering-pc-gaming-the-quintessential-5-gb-advance-emulators/"><u>[New] Discovering PC Gaming The Quintessential 5 GB Advance Emulators</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-one-ear-beats-issue-repair-path/"><u>[New] In 2024, One-Ear Beats Issue Repair Path</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-transforming-your-single-picture-into-video-magic-with-pixiz/"><u>2024 Approved Transforming Your Single Picture Into Video Magic with Pixiz</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/combine-avi-videos-without-spending-a-dime-top-free-tools-for-2024/"><u>Combine AVI Videos Without Spending a Dime Top Free Tools for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-your-feed-mastering-customization-in-facebooks-world/"><u>Crafting Your Feed: Mastering Customization in Facebook's World</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-growth-essential-meta-concepts-and-strategies/"><u>Elevate Growth: Essential Meta Concepts & Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/establishing-privacy-boundaries-in-adolescent-social-media-use/"><u>Establishing Privacy Boundaries in Adolescent Social Media Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-facebook-is-changing-the-game-for-musicians-and-earnings/"><u>How Facebook Is Changing the Game for Musicians and Earnings</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/how-to-update-your-logitech-c525-webcam-driver-on-windows-1087/"><u>How to Update Your Logitech C525 Webcam Driver on Windows 10/8/7</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-look-the-workplace-dynamics-on-facebook-groups/"><u>Inside Look: The Workplace Dynamics on Facebook Groups</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/introducing-the-latest-update-bings-intelligent-search-now-available-for-your-smartphone/"><u>Introducing the Latest Update: Bing's Intelligent Search Now Available for Your Smartphone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/navigating-the-world-of-samsungs-integrated-mobile-apps-for-your-smart-tv/"><u>Navigating the World of Samsung's Integrated Mobile Apps for Your Smart TV</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networking-site-shifts-paradigms-the-story-of-facebook/"><u>Social Networking Site Shifts Paradigms – The Story of Facebook</u></a></li>
-<li><a href="https://article-posts.techidaily.com/strategic-planning-for-effective-virtual-meetings-on-win11-for-2024/"><u>Strategic Planning for Effective Virtual Meetings on Win11 for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-your-online-presence-by-adjusting-facebooks-birthdate/"><u>Streamlining Your Online Presence by Adjusting Facebook's Birthdate</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/the-bottom-line-how-much-do-podcasters-take-home/"><u>The Bottom Line How Much Do Podcasters Take Home?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-adding-depth-with-3d-text-in-photoshop-workflows/"><u>[New] Adding Depth with 3D Text in Photoshop Workflows</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-quick-and-easy-creating-beautifully-detailed-slow-motion-videos-in-mobile-apps/"><u>[New] Quick and Easy Creating Beautifully Detailed Slow Motion Videos in Mobile Apps</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-streamlining-the-process-of-google-voice-call-capture/"><u>[Updated] 2024 Approved Streamlining the Process of Google Voice Call Capture</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-ice-prowess-unleashed-2022-olympics-sprinting-spectacles/"><u>[Updated] In 2024, Ice Prowess Unleashed 2022 Olympics Sprinting Spectacles</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-strategies-for-effective-youtube-comment-engagement/"><u>[Updated] Strategies for Effective YouTube Comment Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-busting-10-common-facebook-myths/"><u>Behind the Scenes: Busting 10 Common Facebook Myths</u></a></li>
+<li><a href="https://facebook.techidaily.com/bring-music-to-life-access-spotifys-miniplayer-via-facebook/"><u>Bring Music to Life: Access Spotify's Miniplayer via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/ceo-to-examine-trumps-social-media-standing/"><u>CEO to Examine Trump's Social Media Standing</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722971221209-easy-solutions-to-samsung-printer-driver-issues-in-windows-fixed/"><u>Easy Solutions to Samsung Printer Driver Issues in Windows - Fixed</u></a></li>
+<li><a href="https://network-issues.techidaily.com/1719974710557-graphical-gone-wrong-monster-hunts-fix-successful/"><u>Graphical Gone Wrong? Monster Hunt's Fix Successful</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-fps-titans-ranking-gamings-elite-shooters/"><u>In 2024, FPS Titans Ranking Gaming's Elite Shooters</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/logic-pro-x-guide-to-cohesive-track-transitions-for-2024/"><u>Logic Pro X Guide to Cohesive Track Transitions for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150672275-panel-of-watchdogs-to-render-verdict-on-donald-trumps-fb-ban/"><u>Panel of Watchdogs to Render Verdict on Donald Trump's FB Ban.</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153483748-unlock-cross-service-integration-move-your-fb-stories-swiftly/"><u>Unlock Cross-Service Integration: Move Your FB Stories Swiftly</u></a></li>
 </ul></div>
 

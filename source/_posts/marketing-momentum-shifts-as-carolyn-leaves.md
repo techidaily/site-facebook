@@ -1,7 +1,7 @@
 ---
 title: Marketing Momentum Shifts as Carolyn Leaves
-date: 2024-09-10T14:55:33.581Z
-updated: 2024-09-11T14:55:33.581Z
+date: 2024-10-22T17:45:40.278Z
+updated: 2024-10-26T19:35:40.376Z
 tags:
   - facebook
 categories:
@@ -19,27 +19,10 @@ thumbnail: https://thmb.techidaily.com/e2b7342586f1532a636225d5506546a483f2a235b
 
  It's somewhat unfortunate timing, but a key player in Facebook's advertising strategy has just stepped down.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Facebook Loses Its Top Ad Executive
 
@@ -50,20 +33,6 @@ thumbnail: https://thmb.techidaily.com/e2b7342586f1532a636225d5506546a483f2a235b
  "I am extremely proud of what we set out to accomplish but way more proud of my team and the support we showed each other, especially in difficult times," Everson writes. "I am very much looking forward to starting a new chapter."
 
 ![find-video-facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/02/find-video-facebook.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Everson doesn't go into details as to what her plans are from here on out, but [Insider](https://www.businessinsider.com/outgoing-facebook-carolyn-everson-is-believed-headed-for-a-ceo-role-2021-6) reports that she's now looking to fill a top executive role elsewhere.
 
@@ -79,37 +48,23 @@ thumbnail: https://thmb.techidaily.com/e2b7342586f1532a636225d5506546a483f2a235b
 
  Prior to Facebook, Everson worked as head of ad sales at ViacomCBS' MTV Networks, then global head of advertising at Microsoft.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## What Does This Mean for Facebook?
 
 ![facebook-spying](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/11/facebook-spying.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  With this change in leadership may come a change in how Facebook deals with its advertisers. While the company surely has other qualified, long-term employees that could fill the position, it'll be hard-pressed to find someone willing to fill Everson's shoes.
 
@@ -117,14 +72,11 @@ thumbnail: https://thmb.techidaily.com/e2b7342586f1532a636225d5506546a483f2a235b
 
  It's a role with a lot of responsibilities, and thus, a lot of stress. We'll have to wait and see whether this'll cause any major changes to the company's operations.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,12 +85,19 @@ thumbnail: https://thmb.techidaily.com/e2b7342586f1532a636225d5506546a483f2a235b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-ultimate-guide-to-editbox-suite-reviewed/"><u>[New] In 2024, Ultimate Guide to EditBox Suite, Reviewed</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-innovate-your-intonation-ranking-the-best-audio-modification-apps-for-mobile/"><u>2024 Approved Innovate Your Intonation Ranking the Best Audio Modification Apps for Mobile</u></a></li>
+<li><a href="https://facebook.techidaily.com/agile-operations-top-lite-android-workhorses/"><u>Agile Operations: Top Lite Android Workhorses</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/empowering-excel-users-with-chatgpt-a-strategy-to-tackle-spreadsheet-fears/"><u>Empowering Excel Users with ChatGPT: A Strategy to Tackle Spreadsheet Fears</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/expert-tips-for-resolving-pubg-pc-game-freezing-problems-a-comprehensive-fix-it-manual/"><u>Expert Tips for Resolving PUBG PC Game Freezing Problems – A Comprehensive Fix-It Manual</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-data-collection-hurdles-with-ios-145/"><u>Facebook Faces Data Collection Hurdles with iOS 14.5</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-tecno-pop-7-pro-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Tecno Pop 7 Pro Pattern Lock Screen</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-implications-of-non-responsive-users-in-messaging/"><u>The Implications of Non-Responsive Users in Messaging</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-tips-fixing-the-dev-error-6634-on-warzone-updated-guide/"><u>Troubleshooting Tips: Fixing the Dev Error 6634 on Warzone (Updated Guide)</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-this-years-most-noteworthy-tech-mistakes/"><u>Unearthing This Year's Most Noteworthy Tech Mistakes</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unveiling-the-true-cost-is-riding-with-uber-cheaper-than-taking-a-cab/"><u>Unveiling the True Cost: Is Riding with Uber Cheaper than Taking a Cab?</u></a></li>
+</ul></div>
 

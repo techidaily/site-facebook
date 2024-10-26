@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2024-10-16T02:07:22.437Z
-updated: 2024-10-20T23:44:17.400Z
+date: 2024-10-19T20:20:41.836Z
+updated: 2024-10-26T19:12:34.512Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -60,18 +60,20 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-complete-breakdown-the-android-adaptation-of-lightroom-app/"><u>[New] Complete Breakdown The Android Adaptation of Lightroom App</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-expert-tips-for-selecting-video-control-software/"><u>[New] Expert Tips for Selecting Video Control Software</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-the-leading-8-multimedia-apps-for-creative-phones-android-ios-for-2024/"><u>[New] The Leading 8 Multimedia Apps for Creative Phones (Android, iOS) for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-premier-tactics-capturing-high-quality-sporting-live-events/"><u>[Updated] 2024 Approved Premier Tactics Capturing High-Quality Sporting Live Events</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoiding-the-elite-fraudsters-web-networks/"><u>Avoiding the Elite Fraudsters' Web Networks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-best-to-extraordinary-mondlys-journey-in-german-linguistics/"><u>From Best to Extraordinary: Mondly’s Journey in German Linguistics</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Realme 12+ 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-world-of-ergonomic-seating-an-expert-take-on-the-cumuluspro-standing-desk-mat/"><u>Navigating the World of Ergonomic Seating: An Expert Take on the CumulusPRO Standing Desk Mat</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-meets-live-audience-with-facebooks-update/"><u>Social Media Meets Live Audience with Facebook's Update</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-oneplus-nord-ce-3-lite-5g-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your OnePlus Nord CE 3 Lite 5G Phone Pattern Lock</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-old-social-circles-on-fb/"><u>Unveiling Old Social Circles on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-realities-seeing-the-whole-picture-in-fb-data-exposes/"><u>Unveiling Realities: Seeing the Whole Picture in FB Data Exposés</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-will-your-messages-be-private-with-fb-messenger-e2ee/"><u>When Will Your Messages Be Private with FB Messenger E2EE?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-unlocking-social-media-success-rising-through-the-facebook-leaderboard/"><u>[New] In 2024, Unlocking Social Media Success Rising Through the Facebook Leaderboard</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-anonymous-fb-story-watcher-app/"><u>[Updated] 2024 Approved Anonymous FB Story Watcher App</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-innovative-pathways-ensuring-correct-iphone-snapchat-data-flow/"><u>[Updated] 2024 Approved Innovative Pathways Ensuring Correct iPhone-Snapchat Data Flow</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-mirth-in-monotony-the-top-20-fb-detention-reprieve-humor/"><u>2024 Approved Mirth in Monotony The Top 20 Fb Detention Reprieve Humor</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-language-of-data-insights-from-whistleblowers-release/"><u>Deciphering the Language of Data: Insights From Whistleblower's Release</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-signals-whats-next-for-facebook/"><u>Deciphering the Signals: What's Next for Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-your-fb-blocked-network-list/"><u>Decoding Your Fb Blocked Network List</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-fbcta-and-user-privacy/"><u>Demystifying FBCTA and User Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-for-youths-facebook-proposes-break-from-instagram/"><u>Digital Detox for Youths? Facebook Proposes Break From Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-management-selecting-the-ideal-page-administrator/"><u>Efficient Management: Selecting the Ideal Page Administrator</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/fcpx-lower-thirds-101-a-beginners-guide-to-success-for-2024/"><u>FCPX Lower Thirds 101 A Beginners Guide to Success for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-tecno-pova-6-pro-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Tecno Pova 6 Pro 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/mastering-printer-configuration-and-control-in-windows-11-a-comprehensive-how-to/"><u>Mastering Printer Configuration & Control in Windows 11 – A Comprehensive How-To</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-the-persistent-click-issue-eliminating-sound-problems-on-windows-computers/"><u>Solving the Persistent 'Click' Issue: Eliminating Sound Problems on Windows Computers</u></a></li>
+<li><a href="https://driver-install.techidaily.com/usb-stability-secured-for-win-users/"><u>USB Stability Secured for WIN Users</u></a></li>
 </ul></div>
 

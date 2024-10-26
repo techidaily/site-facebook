@@ -1,7 +1,7 @@
 ---
 title: How Will U.S. Legislation Challenge the Titans?
-date: 2024-10-20T02:17:18.791Z
-updated: 2024-10-21T01:05:26.240Z
+date: 2024-10-20T20:22:41.643Z
+updated: 2024-10-26T21:50:00.166Z
 tags:
   - facebook
 categories:
@@ -38,22 +38,21 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
@@ -81,10 +80,10 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. The Ending Platform Monopolies Act
@@ -96,6 +95,13 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
  The bill specifies a "conflict of interest" that should be avoided at all costs; a platform owner's responsibility to the marketplace that they manage conflicts deeply with that same platform owner's desire to out-sell the vendors that it represents.
 
 In essence: leave the selling to the sellers.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
@@ -112,10 +118,10 @@ In essence: leave the selling to the sellers.
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
@@ -151,17 +157,18 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-syncing-twitter-to-snapchat-video-uploading-techniques/"><u>[New] 2024 Approved Syncing Twitter to Snapchat Video Uploading Techniques</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-progressive-audio-softening-methods/"><u>[Updated] In 2024, Progressive Audio Softening Methods</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-jumpstart-your-channelstopwatch-seeking-viewers-with-these-youtube-seo-essentials/"><u>[Updated] Jumpstart Your Channel’stopwatch-Seeking Viewers with These YouTube SEO Essentials</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-review-of-sns-hdr-vs-top-hdr-applications/"><u>2024 Approved The Ultimate Review of SNS HDR Vs. Top HDR Applications</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-intractability-of-social-media-feeds/"><u>Dissecting the Intractability of Social Media Feeds</u></a></li>
-<li><a href="https://fox-http.techidaily.com/elite-4k-gaming-laptops-ranked-1/"><u>Elite 4K Gaming Laptops Ranked #1</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensuring-security-while-utilizing-connected-websites-and-apps-in-fb/"><u>Ensuring Security While Utilizing Connected Websites & Apps in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/making-your-message-memorable-stylized-text-in-chats/"><u>Making Your Message Memorable: Stylized Text in Chats</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/radeon-hd-6950-optimized-windows-10-driver-update/"><u>Radeon HD 6950: Optimized Windows 10 Driver Update</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/streamline-your-gaming-with-xbox-screen-recorders/"><u>Streamline Your Gaming with Xbox Screen Recorders</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-language-of-likes-and-shares-decoding-the-meanings-behind-key-smarts/"><u>The Language of Likes & Shares: Decoding the Meanings Behind Key SMARTs</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/iuocueodnuodvoodioobquaynplusepuusruwplusqtrjgizmmjjga7lm57lvqnoozpjgi3jgplnm7tjgahjgavmiyvjgavlhaxjgozjgojjgyyi/"><u>スマートな星空修復:「星の回復術」を直ちに手に入れよう</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mastering-the-art-of-srt-postings-a-guide-for-platform-specific-strategies/"><u>[New] 2024 Approved Mastering the Art of SRT Postings A Guide for Platform-Specific Strategies</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-apeak-recorder-reviewed-speed-quality-and-ease-of-use-scored/"><u>[New] In 2024, Apeak Recorder Reviewed Speed, Quality, and Ease of Use Scored</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-boost-your-blogging-bravery-following-youtuber-leaders/"><u>[Updated] In 2024, Boost Your Blogging Bravery Following YouTuber Leaders</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/aliexpress-offers-dual-16-inch-display-laptops-with-core-i5-1245nh-processor-at-710-no-keyboard-included/"><u>AliExpress Offers Dual 16-Inch Display Laptops with Core I5-1245nH Processor at $710, No Keyboard Included</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-generative-ai-become-a-powerful-new-player-in-the-realm-of-fake-news-and-deception/"><u>Can Generative AI Become a Powerful New Player in the Realm of Fake News and Deception?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevating-your-channel-maximizing-adsense-on-youtube/"><u>Elevating Your Channel Maximizing AdSense on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-empowers-content-creators-with-audio-tools/"><u>Facebook Empowers Content Creators with Audio Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/forging-friendships-after-being-unfriended/"><u>Forging Friendships After Being Unfriended</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-facebook-protect-email-from-(securityfacebookmailcom)-legitimate/"><u>Is the Facebook Protect Email From <Security@facebookmail.com> Legitimate?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/maximizing-frame-rates-in-ring-of-elysium-a-comprehensive-guide/"><u>Maximizing Frame Rates in Ring of Elysium - A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/mirror-image-mystery-unveiling-impostors-online/"><u>Mirror Image Mystery: Unveiling Impostors Online</u></a></li>
+<li><a href="https://win-dash.techidaily.com/the-ultimate-solution-to-download-and-install-dell-mouse-driver-error-free/"><u>The Ultimate Solution to Download & Install Dell Mouse Driver Error-Free</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-crypto-stablecoins-definitions-and-dynamics/"><u>Unveiling Crypto Stablecoins: Definitions and Dynamics</u></a></li>
 </ul></div>
 

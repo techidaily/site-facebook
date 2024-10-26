@@ -1,7 +1,7 @@
 ---
 title: "Tweeting Terminology: Mastering the Top 30 SMARTs"
-date: 2024-09-10T14:53:08.227Z
-updated: 2024-09-11T14:53:08.227Z
+date: 2024-10-21T22:05:55.377Z
+updated: 2024-10-26T19:33:29.605Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,10 @@ thumbnail: https://thmb.techidaily.com/71f97dd9274703edf2e1d5e61f1afdbaca75ab6c6
 
  Most abbreviations are common across social media platforms, so chances are you've seen a few pop up on more than one app. Here are some of the most common abbreviations used on social media.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## 1\. POV
 
@@ -33,37 +30,16 @@ thumbnail: https://thmb.techidaily.com/71f97dd9274703edf2e1d5e61f1afdbaca75ab6c6
 
  For example, a video saying "POV: You have no more chores to do" indicates that you should imagine a person in that position for the context of the video.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 2\. FYP
 
  FYP is short for "For You Page", which is TikTok's personal recommendations feed. It shows you what it thinks you'll like based on the content you already enjoy. Every TikTok creator wants their videos to be featured on the FYP. In fact, the #FYP hashtag on TikTok had 49,775.4 billion views at the time of writing.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 3\. IYKYK
 
@@ -73,41 +49,27 @@ thumbnail: https://thmb.techidaily.com/71f97dd9274703edf2e1d5e61f1afdbaca75ab6c6
 
  GRWM means "get ready with me". The term is most popular on TikTok for videos showing creators getting ready for the day. This could be in preparation for running errands, attending an event, or going on a date.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. DM
 
  A DM is a direct message sent on a social media app. It's where users can communicate privately instead of publicly, like in post comments. For example, you can send a[DM on social media](https://www.makeuseof.com/what-does-dm-mean/) when you want to share someone's post with a friend privately.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 6\. #F4F
 
  #F4F means "follow for follow". Users often leave this hashtag in your comments after following you. It's their way of letting you know they've just followed you and asking you to follow them back. You aren't necessarily obligated to follow them back, but you may lose them as a follower if you don't.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 7\. #L4L
 
@@ -119,125 +81,50 @@ thumbnail: https://thmb.techidaily.com/71f97dd9274703edf2e1d5e61f1afdbaca75ab6c6
 
  While the terms "tweet" and "retweet" have technically been retired with X's rebranding in 2023, you'll still find people using the terms.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 9\. ATP
 
  ATP means "at this point". This abbreviation shows up in social media captions and comments. It means at this moment in time. For example, "I don't know what to do about this situation ATP." It's also commonly written in lowercase letters.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 10\. ATM
 
  ATM is short for "at the moment". Similar to ATP, ATM simply means right now.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 11\. FW
 
  FW stands for "f\*\*\* with". If someone says they f\*\*\* with something, they mean they cosign it. Conversely, if they say they don't FW with something, it means they don't associate with it.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 12\. IKTR
 
  IKTR means "I know that's right". This term is used when you agree with something or can relate to the situation. For example, someone may post that doing their nails is a form of self-care. Another user may comment "IKTR".
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 13\. ICYMI
 
  Popular on X, ICYMI stands for "in case you missed it". It's used to bring your audience up to speed about something that happened while they were away or that they missed on their timeline.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 14\. IJS
 
  IJS means "I'm just saying". The IJS abbreviation is often added to the end of a post about an unpopular opinion or differing view.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 15\. IMO/IMHO
 
@@ -251,63 +138,35 @@ thumbnail: https://thmb.techidaily.com/71f97dd9274703edf2e1d5e61f1afdbaca75ab6c6
 
  TBH and TBQH stand for "to be honest" and "to be quite hones"t, respectively. These informal abbreviations are used in different contexts, including opinions, hot takes, and admissions.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 18\. FRFR
 
  FRFR means "for real for real". This is an informal way of emphasizing your point. It's often added at the end of a sentence to casually express one's sincerity. It can also be used to agree with someone.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 19\. BFFR
 
  BFFR is short for "be for f\*\*\*ing real". BFFR is used when you disagree with someone or an idea and want it to be known that it's either ridiculous, naive, or dumb.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 20\. WCW
 
  WCW stands for "Woman Crush Wednesday". WCW is used on posts that celebrate women on Wednesdays. Users may post one or more women and may or may not explain why they've picked them as their WCW. The abbreviation can also be used as a hashtag.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 21\. MCM
 
  MCM is short for "Man Crush Monday". This is similar to WCW but for men. And instead of Wednesdays, the posts are uploaded on Mondays.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 22\. TBT
 
@@ -320,20 +179,6 @@ thumbnail: https://thmb.techidaily.com/71f97dd9274703edf2e1d5e61f1afdbaca75ab6c6
 ## 24\. OOTD
 
  OOTD is short for "outfit of the day". Popular on Instagram and TikTok, OOTD is used to show off your outfit for that particular day.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 25\. OOTN
 
@@ -363,14 +208,11 @@ thumbnail: https://thmb.techidaily.com/71f97dd9274703edf2e1d5e61f1afdbaca75ab6c6
 
  It can be hard to keep up with all the new slang on social media. It would probably help if there were a dictionary you could use to keep up with all the new terms. Hopefully, this article helps you understand social media lingo a little better, so you don't experience FOMO next time you're online.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -379,12 +221,24 @@ thumbnail: https://thmb.techidaily.com/71f97dd9274703edf2e1d5e61f1afdbaca75ab6c6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-20-most-popular-memes-on-reddit-and-twitter-for-2024/"><u>[New] 20 Most Popular Memes on Reddit and Twitter for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-pro-equipment-list-for-adventure-documentaries/"><u>[New] Pro Equipment List for Adventure Documentaries</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-essential-steps-for-embedding-facebook-streams-online/"><u>[Updated] Essential Steps for Embedding Facebook Streams Online</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-masterclass-8-selecting-top-live-stream-cameras/"><u>[Updated] Masterclass 8 Selecting Top Live Stream Cameras</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-symphony-for-statuses-whatsapps-melodic-feature/"><u>2024 Approved Symphony for Statuses WhatsApp's Melodic Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-ways-facebook-is-giving-you-more-control-over-your-news-feed/"><u>3 Ways Facebook Is Giving You More Control Over Your News Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-ways-to-customize-your-facebook-feed/"><u>4 Ways to Customize Your Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150184377-alert-recover-your-compromised-fb-profile-now/"><u>Alert: Recover Your Compromised FB Profile Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipating-trouble-fbs-future-headline-outlook/"><u>Anticipating Trouble: FB's Future Headline Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-boundaries-metamating-at-facebook/"><u>Breaking Boundaries: Metamating at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/buy-in-to-obtain-metas-paid-verification-badge/"><u>Buy-In to Obtain Meta's Paid Verification Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-online-world-with-simplified-fb-settings/"><u>Crafting Your Online World with Simplified FB Settings</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/essential-list-of-leading-artificial-intelligence-note-taking-apps/"><u>Essential List of Leading Artificial Intelligence Note-Taking Apps</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-overcome-initialization-problems-in-farming-simulator-22-a-comprehensive-guide/"><u>How to Overcome Initialization Problems in Farming Simulator 22 - A Comprehensive Guide</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-google-pixel-7a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719148119499-transform-your-online-presence-seamless-fb-posts-and-notes-movement/"><u>Transform Your Online Presence: Seamless Fb Posts & Notes Movement!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/windows-11-hp-officejet-pro/"><u>Windows 11 HP OfficeJet Pro</u></a></li>
+</ul></div>
 

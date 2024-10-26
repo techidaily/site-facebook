@@ -1,7 +1,7 @@
 ---
 title: What Are Ray-Ban Stories? Facebook Announces & Pricing Details
-date: 2024-09-10T14:55:06.043Z
-updated: 2024-09-11T14:55:06.043Z
+date: 2024-10-19T19:09:23.471Z
+updated: 2024-10-26T21:02:36.990Z
 tags:
   - facebook
 categories:
@@ -19,33 +19,10 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
 
  So, what does the social media giant have up its sleeves (or rather, resting on its nose)? Let's find out.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## What Are Ray-Ban Stories?
 
@@ -59,19 +36,12 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
 
  The big theme around the Ray-Ban Stories is giving you the ability to capture the world around you without needing to leave it. There’s no need to scramble for your phone when something amazing happens, nor do you need to stare through a screen when recording something. Now you can capture anything just by looking at it, so you can concentrate on living in the moment.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## The Ray-Ban Stories Specifications
 
@@ -89,68 +59,44 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
 
  The glasses will have an off switch, which will disable all the tech on them once flipped. And Facebook is proud to show off a light-up LED on the camera to show others that you’re recording them, which helps improve privacy. In the video, Mark Zuckerberg claims this is “more than what smartphones do,” but we’d argue that holding up a phone to record someone is more obvious than an LED.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How Much Are the Ray-Ban Stories?
 
  If you want a pair of glasses for yourself, they won't break the bank too much. You can pick them up for $299, which is a pretty reasonable price for what you're getting.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## When Will the Ray-Ban Stories Come Out?
 
  The best bit is, if you're dying to wear a piece of the future, you can buy them right away. Just head over to the[Ray-Ban Stories store page](https://www.ray-ban.com/usa/electronics/RW4002%20UNISEX%20ray-ban%20stories%20%7C%20wayfarer-shiny%20black/8056597489478) and pick up a pair today.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## A New Chapter in the Story of Smart Glasses
 
  If you love capturing those precious moments, but you'd rather not experience it through a phone screen, the Ray-Ban Stories may just be up your alley. They're out now, so be sure to grab a pair ASAP if this sounds like something you want.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,12 +105,21 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-deciphering-hidden-content-on-youtube-an-ordered-walkthrough/"><u>[New] 2024 Approved Deciphering Hidden Content on YouTube An Ordered Walkthrough</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-perfect-conclusion-to-interactive-expeditions/"><u>[Updated] 2024 Approved Perfect Conclusion to Interactive Expeditions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-latest-hit-a-guide-to-todays-top-8-online-videos/"><u>[Updated] In 2024, The Latest Hit A Guide to Today's Top 8 Online Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-guide-to-elevating-video-presence-through-thumbnails/"><u>[Updated] Step-by-Step Guide to Elevating Video Presence Through Thumbnails</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-why-facebook-changed-its-user-interface-terminology/"><u>Breaking Down Why Facebook Changed Its User Interface Terminology</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/bring-the-world-of-streaming-into-your-home-cinema-system-with-ease/"><u>Bring the World of Streaming Into Your Home Cinema System with Ease</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/easy-steps-tracking-and-managing-data-consumption-in-windows-11/"><u>Easy Steps: Tracking and Managing Data Consumption in Windows 11</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/edit-your-way-to-success-iosandroid-apps-for-youtube-shorts-for-2024/"><u>Edit Your Way to Success IOS/Android Apps for YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-profiles-security-essential-secrets-of-fb-protection/"><u>Elevate Your Profile's Security: Essential Secrets of FB Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-audiences-profoundly-the-5-social-platforms-leading-biz/"><u>Engaging Audiences Profoundly: The 5 Social Platforms Leading Biz</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-international-expats-what-are-the-trade-offs/"><u>Facebook’s Role in International Expats – What Are the Trade-Offs?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/illuminating-insights-for-iphone-night-photos/"><u>Illuminating Insights for iPhone Night Photos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/olympic-snowscape-highlights-cross-style-22-for-2024/"><u>Olympic Snowscape Highlights - Cross Style '22 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/withholding-whatsapps-may-15-privacy-update-rollout/"><u>Withholding WhatsApp's May 15 Privacy Update Rollout</u></a></li>
+</ul></div>
 

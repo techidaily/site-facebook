@@ -1,7 +1,7 @@
 ---
 title: "Mastering FB: Enabling Two-Factor Security"
-date: 2024-09-10T14:54:43.524Z
-updated: 2024-09-11T14:54:43.524Z
+date: 2024-10-20T19:07:20.956Z
+updated: 2024-10-26T17:29:23.144Z
 tags:
   - facebook
 categories:
@@ -21,13 +21,10 @@ thumbnail: https://thmb.techidaily.com/c4e970c61c745a22a93f179d1f650cdbb34448ec2
 
  Let us show you how to set up two-factor authentication and Code Generator on your mobile device. We've illustrated these steps on Android, but they should work just the same on an iPhone.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## What Are Facebook Login Codes?
 
@@ -43,57 +40,35 @@ thumbnail: https://thmb.techidaily.com/c4e970c61c745a22a93f179d1f650cdbb34448ec2
 
 ![Facebook Mobile Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings-and-Privacy.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Facebook Mobile Setting Up Extra Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Setting-Up-Extra-Security.jpg)
 
 ![Set up Login Alerts on the Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Login-Alerts.jpg)
 
 Close
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How to Set Up Two-Factor Authentication
 
 [Facebook's two-factor authentication](https://www.makeuseof.com/tag/use-2fa-facebook-without-phone-number/) requires a mobile phone number or an authentication app. If you'd like to use a phone number for two-factor authentication, note that you can no longer use that same number to reset your password.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### How to Add a Phone Number to Facebook
 
@@ -107,21 +82,14 @@ Close
 
 ![Facebook Mobile Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings.jpg)
 
-
-
-
+![Facebook Mobile Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings-and-Privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-![Facebook Mobile Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings-and-Privacy.jpg)
 
 ![Facebook Mobile Personal and Account Information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Personal-and-Account-Information.jpg)
 
@@ -139,20 +107,6 @@ Close
 
 ![Facebook Mobile Two-Factor Authentication](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Two-Factor-Authentication.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Facebook Mobile Help Protect Your Account Select a Security Method](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Help-Protect-Your-Account-Select-a-Security-Method.jpg)
 
 Close
@@ -165,39 +119,18 @@ Close
 
 ![Select your phone number while setting up two-factor authentication in the Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-3.jpg)
 
-
-
-
+![Add a new phone number for two-factor authentication on the Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-via-Phone-Number-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-![Add a new phone number for two-factor authentication on the Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-via-Phone-Number-1.jpg)
 
 ![explanation of what Facebook can do with a phone number provided for two-factor authentication](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-via-Phone-Number-3.jpg)
 
 ![Enter a 6-digit code to confirm your phone number for two-factor authentication in Facebook Mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-4.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ![Confirmation that two-factor authentication was enabled for a specific phone number](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-5.jpg)
 
@@ -211,61 +144,27 @@ Close
 
 ![Facebook Mobile Help Protect Your Account Select a Security Method](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Help-Protect-Your-Account-Select-a-Security-Method.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![Facebook Two Factor Authentication Scan Code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-7-Edited.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Facebook Set Up Authenticator Choose App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-8-Blurred.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ![Enter Confirmation Code to authenticate authenticator app on Facebook for Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-9.jpg)
 
 ![Facebook MObile Two-Factor Authentication Is On](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-MObile-Two-Factor-Authentication-Is-On.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -283,37 +182,16 @@ Close
 
 ![Save Facebook Recovery Codes from the mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-Recovery-Codes.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![explanation of what Facebook can do with a phone number provided for two-factor authentication](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-via-Phone-Number-3.jpg)
 
-
-
-
+Close
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-Close
 
 ## How to Set Up Code Generator
 
@@ -323,67 +201,18 @@ Close
 
 ![Facebook Mobile Password and Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Password-and-Security.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Activate Code Generator for offline two-factor authentication](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-Activate.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ![Facebook Mobile Code Generator](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Code-Generator.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![Facebook Mobile Code Generator Code Copied](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Code-Generator-Code-Copied.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Close
 
@@ -391,34 +220,17 @@ Close
 
  Should you ever[lose access to Facebook Code Generator](https://www.makeuseof.com/tag/log-facebook-lost-access-code-generator/) (for example, if your phone was stolen), you can log into Facebook from a recognized device, log out on your phone, and remove Code Generator. Until you get your phone back, you can also set up a third-party app to generate codes.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Keep Your Facebook Account Secure
 
  Once you have straightened out your personal information, security settings, and backup recovery methods, you should never struggle to recover your Facebook account login. If you want to verify that you've sufficiently protected your Facebook account, try[Facebook's Privacy Checkup tool](https://www.facebook.com/privacy/checkup) and see if you can make any other improvements to keep your account secure.
 
  If you're ever concerned that your account is compromised, check whether anyone accessed your Facebook account and from where. You can also log them out of your account straight from the Facebook interface.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -427,12 +239,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-mp4-and-webm-extraction-from-social-media-streams/"><u>[New] 2024 Approved MP4 & WebM Extraction From Social Media Streams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-to-loop-videos-on-iphone-in-2024/"><u>[New] How to Loop Videos on iPhone, In 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-ideal-mac-video-logic-tool/"><u>[Updated] In 2024, Ideal Mac Video Logic Tool</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-obs-masterclass-for-beginners-stream-to-youtube-flawlessly/"><u>[Updated] OBS Masterclass for Beginners Stream to YouTube Flawlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-deep-into-digital-profits-unveiling-5-social-media-earning-methods/"><u>Dive Deep Into Digital Profits: Unveiling 5 Social Media Earning Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-making-your-mark-with-facebook-events/"><u>How-To: Making Your Mark with Facebook Events</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Itel P40? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-the-start-of-a-zoom-call-android-edition/"><u>In 2024, Navigating the Start of a Zoom Call Android Edition</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-iphone-15-pro-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock From your iPhone 15 Pro</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Oppo Reno 11F 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-social-giant-reaching-its-limits/"><u>Is the Social Giant Reaching Its Limits?</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-on-this-day-fb-memories-cleanup-guide/"><u>Securing Your On This Day: FB Memories Cleanup Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-assembling-people-through-fb-groups/"><u>The Art of Assembling People Through FB Groups</u></a></li>
+</ul></div>
 

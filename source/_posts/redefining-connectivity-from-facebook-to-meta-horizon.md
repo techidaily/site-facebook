@@ -1,7 +1,7 @@
 ---
 title: "Redefining Connectivity: From Facebook to Meta Horizon"
-date: 2024-10-20T00:28:46.836Z
-updated: 2024-10-20T21:51:27.425Z
+date: 2024-10-24T17:56:58.355Z
+updated: 2024-10-26T18:13:18.342Z
 tags:
   - facebook
 categories:
@@ -36,29 +36,22 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
  By December 2005, Facebook had six million users. It also had several new features, including the infamous Facebook Wall and News Feed. In April 2006, Facebook was out on mobile, and in September, they made the platform available to everyone on the internet of age 13 or above.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2007–2009: The Inception of the Facebook Like Button
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
 
  In February 2008, the Facebook-Winklevoss lawsuit settled with Zuckerberg paying the twins a settlement of $65 million in cash and Facebook stock. Later, in July, the platform released its mobile app on iOS.
 
  Soon after, Facebook added more features to its website and the app, including Chat, Pages, Facebook Ads, and video support. But the most significant of them was the infamous Like button, introduced in February 2009.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2010–2012: Facebook Goes Public
 
@@ -83,15 +76,22 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
  On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know[how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2016–2018: Controversies and Scandals
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
@@ -108,10 +108,10 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
@@ -124,13 +124,6 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
  Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2022 and Beyond: Layoffs, Chaos, and Recovery
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
@@ -142,6 +135,19 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 What comes next? Massive layoffs.
 
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Meta Is in a Rough Place, But When Is It Not?
 
@@ -164,16 +170,18 @@ What comes next? Massive layoffs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-top-6-tiktok-money-calculators-earnings-estimator/"><u>[New] Top 6 TikTok Money Calculators [Earnings Estimator]</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-choosing-the-right-gimbal-dslr-vs-mirrorless-edition-for-2024/"><u>[Updated] Choosing the Right Gimbal DSLR vs Mirrorless Edition for 2024</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/1728509265215-windows-10-windows-11/"><u>恢復 Windows 10：移回過渡到 Windows 11後的原始系統 - 三種可行解決辦法</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-nokia-c22-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Nokia C22 Phone Hassle-Free</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastodon-a-new-social-paradigm/"><u>Mastodon: A New Social Paradigm</u></a></li>
-<li><a href="https://facebook.techidaily.com/modern-buzz-spots-ranking-the-most-popular-online-communities/"><u>Modern Buzz Spots: Ranking the Most Popular Online Communities</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-online-interactions-deletion-of-comments-on-fb/"><u>Streamlining Online Interactions: Deletion of Comments on FB</u></a></li>
-<li><a href="https://video-capture.techidaily.com/the-complete-manual-taking-editing-and-sharing-display-images-for-2024/"><u>The Complete Manual Taking, Editing, and Sharing Display Images for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Honor Magic 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-family-connections-with-facebook-portal-tv/"><u>Unlocking Family Connections with Facebook Portal TV</u></a></li>
-<li><a href="https://facebook.techidaily.com/unseen-tech-marvels-discover-the-leading-4-stories-you-missed/"><u>Unseen Tech Marvels: Discover the Leading 4 Stories You Missed</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-leveraging-zoom-for-high-quality-facebook-live-streams-for-2024/"><u>[Updated] Leveraging Zoom for High-Quality Facebook LIVE Streams for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-bilingualmultilingual-content-on-fb/"><u>Best Practices for Bilingual/Multilingual Content on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-brands-presence-8-superior-reasons-to-opt-for-a-business-page/"><u>Boost Your Brand's Presence: 8 Superior Reasons to Opt for a Business Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/covid-fables-influencers-among-most-perpetuators/"><u>Covid Fables: Influencers Among Most Perpetuators</u></a></li>
+<li><a href="https://blog-min.techidaily.com/discover-the-13-leading-free-video-trimmers-how-to-effortlessly-edit-videos-online-today/"><u>Discover the 13 Leading Free Video Trimmers - How to Effortlessly Edit Videos Online Today!</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-the-issue-how-to-stop-beat-saber-from-continuously-crashing/"><u>Fixing the Issue: How to Stop Beat Saber From Continuously Crashing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/from-novice-to-pro-expert-tips-for-spotifys-advertisers/"><u>From Novice to Pro Expert Tips for Spotify's Advertisers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-infinix-hot-40i-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Infinix Hot 40i Phones? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/overcoming-absence-of-color-in-game-recordings/"><u>Overcoming Absence of Color in Game Recordings</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/step-by-step-vsco-image-enhancement-for-2024/"><u>Step-by-Step VSCO Image Enhancement for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145303400-stream-spotify-via-miniplayer-within-facebook/"><u>Stream Spotify via Miniplayer Within Facebook</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-motorola-edge-40-neo-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Motorola Edge 40 Neo IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unraveling-the-itunes-radio-download-process/"><u>Unraveling the iTunes Radio Download Process</u></a></li>
 </ul></div>
 

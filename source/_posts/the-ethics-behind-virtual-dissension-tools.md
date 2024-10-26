@@ -1,7 +1,7 @@
 ---
 title: The Ethics Behind Virtual Dissension Tools
-date: 2024-09-10T14:54:11.690Z
-updated: 2024-09-11T14:54:11.690Z
+date: 2024-10-19T22:06:14.088Z
+updated: 2024-10-26T20:24:37.584Z
 tags:
   - facebook
 categories:
@@ -17,33 +17,16 @@ thumbnail: https://thmb.techidaily.com/fa51da89f91ea3306806b0c92d6d119cfa0eae393
 
  Is there a place for dislike buttons in social media as we know it today? Do dislikes even serve a purpose? When examining the most prominent social media platforms widely used today, you get mixed results.Facebook and Instagram do not have a dislike button. Reddit has a downvote button, and YouTube a dislike one. Twitter doesn't have a dislike button, but that could change soon as it ran a test allowing some users to downvote.Let's examine some pros and cons to platforms and their dislike button.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Pros to the Dislike Button Hiding Its Numbers
 
  YouTube recently made waves when it decided to hide the dislike count. The dislike button is still there and visible. You can click it and dislike a video. However, the number of dislikes is hidden. You only see the[number of likes](https://www.makeuseof.com/are-likes-essential-for-social-media/) .
 
  Let's look at the benefits of not seeing the number of dislikes, starting with YouTube.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Hate Campaigns Leave Less of an Impact
 
@@ -59,23 +42,16 @@ thumbnail: https://thmb.techidaily.com/fa51da89f91ea3306806b0c92d6d119cfa0eae393
 
  Also, the creators of the videos garnering the dislikes can still see their number in their analytics. It's the viewers who have no concept of the number.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Less Stress When Posting
 
 ![stressed woman with laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/stressed-woman-with-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  When you post on YouTube, regardless of the subject matter of your posts, you open yourself to criticism from others. Sometimes, that can cause so much stress and anxiety that you put off posting indefinitely.
 
@@ -83,23 +59,16 @@ thumbnail: https://thmb.techidaily.com/fa51da89f91ea3306806b0c92d6d119cfa0eae393
 
  Sure, the dislikes will still be there in your analytics, but they won't be there for all to see. And, unless you go looking for them, they won't affect you. So that can make posting a much more stress-free experience.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### It Helps Your Mental Health
 
 ![person reaching for likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/person-reaching-for-likes.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Working off of the previous point, not seeing the number of dislikes on the videos you choose to share with the world can be good for your mental health, in general.
 
@@ -113,47 +82,27 @@ What's more, it goes beyond affecting only the poster.
 
  By hiding the dislikes number, YouTube essentially spares both the creator and their fan base of the stress, anxiety, and all the other negative emotions that can arise from being the victim of a hate campaign.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Cons to the Dislike Button Hiding Its Numbers
 
  Let's talk about the negatives that follow the action of hiding the dislikes number on posts.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### You Can't Discern Helpfulness
 
 ![how to video on youtube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/how-to-video.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  By having the dislikes hidden, you can't tell if a video is helpful or not with a glance.
 
@@ -179,6 +128,13 @@ What's more, it goes beyond affecting only the poster.
 
  Does it make sense to have a dislike button, remove it, or hide the count? Let's look at two examples: Twitter and Reddit.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Does It Make Sense for the Platform at All?
 
  Twitter is dipping its toes into the dislike pool by introducing a[downvote system](https://www.makeuseof.com/twitters-experimental-downvoting-system/) .
@@ -190,20 +146,6 @@ What's more, it goes beyond affecting only the poster.
  The tweet shared by Twitter was adamant that ‘‘This is not a dislike button.’’
 
  The company also ensured that this was only a test to see what people wanted, and it hasn't been decided whether the change would follow or the company would hold off on it. If you don't like a post, you have the option to skip over it and not like it, or you can reply or quote retweet it and share your opinion on it. So, does a dislike button make sense at all?
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### You Can't Imagine the Platform Without It
 
@@ -217,34 +159,17 @@ What's more, it goes beyond affecting only the poster.
 
  Reddit needs the balance of both upvotes and downvotes to be the platform people signed up to use. So, instead of removing the button entirely, it chose to hide the count of both buttons it offers.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Are Hidden Dislikes the Future?
 
  YouTube and Reddit took the path of hiding the dislike count. Twitter is looking to introduce a dislike system. Facebook had a dislike button but chose to remove it.
 
  There's no clear answer yet on whether dislikes should remain a part of social media or not. As clearly visible, there are both pros and cons to removing the number of dislikes under a post.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -253,12 +178,21 @@ What's more, it goes beyond affecting only the poster.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-effortless-avi-gif-conversion-using-filmora-tools/"><u>[New] 2024 Approved Effortless AVI-GIF Conversion Using Filmora Tools</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-streaming-perfection-techniques-for-clear-webcam-feed/"><u>[Updated] 2024 Approved Streaming Perfection Techniques for Clear Webcam Feed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-engage-viewers-beyond-individual-watches/"><u>[Updated] Engage Viewers Beyond Individual Watches</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-quick-guide-to-crafting-realistic-motion-blur-effect-in-ps/"><u>[Updated] Quick Guide to Crafting Realistic Motion Blur Effect in PS</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-uncovering-the-best-unnoticed-speech-to-text-on-mac/"><u>[Updated] Uncovering the Best Unnoticed Speech to Text on Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/accusation-facebook-forbids-authentic-ads/"><u>Accusation: Facebook Forbids Authentic Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-algorithm-10-compelling-arguments-for-quitting-social-media/"><u>Beyond the Algorithm: 10 Compelling Arguments for Quitting Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-your-brand-at-work-with-social-networks/"><u>Building Your Brand at Work with Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/channel-connectivity-a-new-era-for-fb-groups/"><u>Channel Connectivity: A New Era for FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/command-center-expansion-recruiting-a-dedicated-fb-administrator/"><u>Command Center Expansion: Recruiting a Dedicated FB Administrator</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/effective-steps-to-clear-temp-files-in-windows-11-complete-guide/"><u>Effective Steps to Clear Temp Files in Windows 11 - Complete Guide</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-iphone-x-vs-galaxy-comparing-facial-authentication-systems/"><u>In 2024, IPhone X Vs. Galaxy Comparing Facial Authentication Systems</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unplugging-pauses-from-social-streams-a-2023-approach-to-fixing-livestream-issues/"><u>In 2024, Unplugging Pauses From Social Streams A 2023 Approach to Fixing Livestream Issues</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Honor Play 8T? | Dr.fone</u></a></li>
+</ul></div>
 

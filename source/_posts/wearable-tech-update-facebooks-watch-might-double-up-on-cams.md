@@ -1,7 +1,7 @@
 ---
 title: "Wearable Tech Update: Facebook's Watch Might Double Up on Cams"
-date: 2024-09-10T14:53:17.852Z
-updated: 2024-09-11T14:53:17.852Z
+date: 2024-10-22T19:09:42.438Z
+updated: 2024-10-26T18:26:38.493Z
 tags:
   - facebook
 categories:
@@ -19,27 +19,10 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
 
  While most companies tend to design smartwatches to complement smartphones with their functionality, Facebook is taking a different approach. The company reportedly wants its smartwatch to be used in a similar fashion as smartphones.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Facebook's Smartwatch Could Feature Two Detachable Cameras
 
@@ -51,37 +34,16 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
 
 ![facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-ui.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Facebook's smartwatch will run a customized version of Android. The company will be working with its partners and offer its own suite of apps to deliver a feature-rich user experience. It will launch a companion smartphone app for the watch as well.
 
  The report is light on the smartwatch's health tracking feature, but it will feature a heart rate monitor.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Facebook Could Still Scrap Its Smartwatch
 
@@ -95,33 +57,19 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
 
 ![Transfer Facebook posts and notes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/transfer-posts-notes-facebook-featured.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## This Will Be an Uphill Battle for Facebook
 
@@ -129,14 +77,11 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
 
  However, this will be an uphill battle for Facebook since many people are not comfortable sharing too much data with the company, given its[handling of user data in the past](https://www.makeuseof.com/whatsapp-forces-share-data-with-facebook/) . Many consumers might not be too comfortable with a Facebook smartwatch having access to their health data and other key metrics.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,12 +90,26 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-prime-7-multimedia-players-for-macos/"><u>[New] 2024 Approved Prime 7 Multimedia Players for MacOS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-best-8-evidenced-tools-for-video-propagation-for-2024/"><u>[Updated] Best 8 Evidenced Tools for Video Propagation for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-premier-fast-photo-viewing-software/"><u>[Updated] Premier Fast Photo Viewing Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-facebooks-innovative-revenue-model-for-musicians/"><u>A Closer Look at Facebook's Innovative Revenue Model for Musicians</u></a></li>
+<li><a href="https://facebook.techidaily.com/adopt-dark-scheme-change-facebook-theme/"><u>Adopt Dark Scheme: Change Facebook Theme</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-identifying-compromised-accounts-on-facebook/"><u>Alert! Identifying Compromised Accounts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-at-facebook-exploring-the-policies-center/"><u>Behind-the-Scenes at Facebook: Exploring the Policies Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-interaction-engage-friends-with-messengers-query-games/"><u>Boost Interaction: Engage Friends with Messenger's Query Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-back-the-trump-era-on-meta/"><u>Bringing Back the Trump Era on Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-the-dots-facebook-aids-global-pandemic-response/"><u>Connecting the Dots: Facebook Aids Global Pandemic Response</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivate-happiness-by-scheduling-downtime-via-facebook/"><u>Cultivate Happiness by Scheduling Downtime via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152890645-from-facebook-to-the-world-seamlessly-upload-your-posts-and-notes/"><u>From Facebook to the World: Seamlessly Upload Your Posts and Notes</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/google-mp4/"><u>Google ドライブ上でMP4動画再生に問題がある時、解決策をご紹介</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-realme-c55-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-mastering-storyremix-for-windows-11-enhancing-videos-with-photos/"><u>In 2024, Mastering StoryRemix for Windows 11 Enhancing Videos with Photos</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-nokia-c32-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Nokia C32 – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/origin-gaming-troubleshooting-steps-to-solve-in-game-setup-mistakes/"><u>Origin Gaming Troubleshooting: Steps to Solve In-Game Setup Mistakes</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Vivo S18? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/sound-masterpieces-selecting-the-top-10-on-spotify-for-2024/"><u>Sound Masterpieces Selecting the Top 10 on Spotify for 2024</u></a></li>
+</ul></div>
 

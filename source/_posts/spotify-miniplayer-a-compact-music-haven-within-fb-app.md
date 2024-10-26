@@ -1,7 +1,7 @@
 ---
 title: "Spotify Miniplayer: A Compact Music Haven Within FB App"
-date: 2024-10-17T02:07:46.860Z
-updated: 2024-10-21T00:36:44.714Z
+date: 2024-10-20T21:29:26.106Z
+updated: 2024-10-26T17:08:22.155Z
 tags:
   - facebook
 categories:
@@ -45,16 +45,10 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
  Spotify’s miniplayer has already launched in the US, Canada, Australia, and in 25 other countries. Spotify is planning to expand this feature to more countries over the following months.
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Listen to Spotify Songs Through the Facebook Miniplayer
@@ -66,19 +60,19 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -88,10 +82,10 @@ Close
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## More Audio Features Are Coming Soon
@@ -115,24 +109,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-grassroots-video-marketing-strategies-for-2024/"><u>[Updated] Grassroots Video Marketing Strategies for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-guide-9-cost-free-editing-tools-for-creatives/"><u>[Updated] In 2024, Essential Guide 9 Cost-Free Editing Tools for Creatives</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-navigating-the-igtv-landscape-a-beginners-roadmap-for-2024/"><u>[Updated] Navigating the IGTV Landscape A Beginner's Roadmap for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/7-breakthrough-revelations-extracted-from-social-media-docs/"><u>7 Breakthrough Revelations Extracted From Social Media Docs</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/beyond-the-original-exploring-modern-substitutes-for-the-turing-test/"><u>Beyond the Original: Exploring Modern Substitutes for the Turing Test</u></a></li>
-<li><a href="https://facebook.techidaily.com/block-random-social-suggestions-for-new-friends/"><u>Block Random Social Suggestions for New Friends</u></a></li>
-<li><a href="https://facebook.techidaily.com/connectivity-revolution-the-power-of-facebook-channels-in-groups/"><u>Connectivity Revolution: The Power of Facebook Channels in Groups</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/discover-font-powerhouses-to-dominate-your-tiktok-content-in-23/"><u>Discover Font Powerhouses to Dominate Your TikTok Content in '23</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/five-ai-driven-tactics-amplifying-malicious-digital-ventures/"><u>Five AI-Driven Tactics: Amplifying Malicious Digital Ventures</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Xiaomi Redmi K70? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6-plus-passcode-without-computer-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6 Plus Passcode without Computer? | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/navigating-windows-file-type-alteration/"><u>Navigating Windows File Type Alteration</u></a></li>
-<li><a href="https://facebook.techidaily.com/networking-for-a-better-code-language-facebook-joins-rust-foundation/"><u>Networking for a Better Code Language: Facebook Joins Rust Foundation</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-social-presence-identifying-breaches/"><u>Securing Your Social Presence: Identifying Breaches</u></a></li>
-<li><a href="https://facebook.techidaily.com/shadows-in-screen-time-hidden-choices-affecting-you/"><u>Shadows in Screen Time: Hidden Choices Affecting You</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-network-reevaluates-presidents-access/"><u>Social Network Reevaluates President's Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/swift-swapping-of-separate-facebook-login-credentials/"><u>Swift Swapping of Separate Facebook Login Credentials</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-meccas-for-embarking-on-freelancing-ventures/"><u>Top 5 Meccas for Embarking on Freelancing Ventures</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/top-6-persuasive-benefits-of-owning-an-apple-watch-insights-from-industry-experts/"><u>Top 6 Persuasive Benefits of Owning an Apple Watch: Insights From Industry Experts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-effective-thumbnails-the-secret-to-video-success/"><u>[New] 2024 Approved Effective Thumbnails The Secret to Video Success</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-valheims-optimal-seed-selection-strategies/"><u>[New] In 2024, Valheim's Optimal Seed Selection Strategies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-step-into-the-spotlight-on-instagram-with-these-tricks/"><u>[New] Step Into the Spotlight on Instagram with These Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/12-adverse-impacts-social-medias-influence-on-society/"><u>12 Adverse Impacts: Social Media's Influence on Society</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-internet-comments-eternal-markers/"><u>Are Internet Comments Eternal Markers?</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-users-trust-fb-messenger-encryption/"><u>Can Users Trust FB Messenger Encryption?</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-strategies-banishing-negative-posts-online/"><u>Clean Slate Strategies: Banishing Negative Posts Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-who-sees-your-active-status-on-fb/"><u>Controlling Who Sees Your Active Status on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-viral-videos-a-comprehensive-guide-to-facebook-reels/"><u>Creating Viral Videos: A Comprehensive Guide to Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-chatting-integrating-facebooks-sounds-in-messages/"><u>Cutting-Edge Chatting: Integrating Facebook’s Sounds in Messages</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-energy-efficiency-activating-low-power-mode-on-macos-monterey-a-guide-by-zdnet/"><u>Mastering Energy Efficiency: Activating Low Power Mode on macOS Monterey - A Guide by ZDNet</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/tecnicas-expertas-para-controlar-tu-cuenta-aomei-con-exito/"><u>Técnicas Expertas Para Controlar Tu Cuenta AOMEI Con Éxito</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/value-meets-innovation-in-our-apple-watch-se-assessment-the-smart-choice-for-cost-conscious-consumers/"><u>Value Meets Innovation in Our Apple Watch SE Assessment: The Smart Choice for Cost-Conscious Consumers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/visual-transformation-techniques-for-creative-edits/"><u>Visual Transformation Techniques for Creative Edits</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/visual-virtuosity-unveiled-a-close-look-at-the-z32x-4k-monitor/"><u>Visual Virtuosity Unveiled A Close Look at the Z32X 4K Monitor</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/windowspxe/"><u>Windows上PXEブートサーバのセットアップ:安全且び簡易手順ガイド</u></a></li>
 </ul></div>
 

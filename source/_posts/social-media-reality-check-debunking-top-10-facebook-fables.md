@@ -1,7 +1,7 @@
 ---
 title: "Social Media Reality Check: Debunking Top 10 Facebook Fables"
-date: 2024-10-18T20:29:41.837Z
-updated: 2024-10-21T00:47:02.236Z
+date: 2024-10-20T19:01:01.473Z
+updated: 2024-10-26T21:40:27.489Z
 tags:
   - facebook
 categories:
@@ -38,18 +38,24 @@ Pixabay free image
 
 > "No, Facebook doesn't tell people that you've seen their profile. Third-party apps also can't provide this functionality. Facebook also wants your help in dealing with apps that are scamming people by claiming they have this ability. So if you come across anything that claims to offer this, please report the app."
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Facebook Messages From My Friends Are Safe to Click
 
 ![woman in a christmas sweater holding a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/woman-in-christmas-sweater.jpg)
 
  Your friends would never want to harm you, and you're right about that. Unfortunately, online miscreants try to take advantage of this trust. Sometimes, you'll get a weird message from your friend asking you to click a link. Don't do it![Facebook scams are becoming all too common](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) , so you need to exercise the same precautions here as you would elsewhere on the internet. If you have received a message from a friend with a link, before you click it, ask them whether they intended to send that to you. If it's a public post, go through the comments and see if anyone has warned that this is a hoax or a virus.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Facebook Is Going to Charge You Money
 
@@ -70,10 +76,10 @@ Pixabay free image
  Also, it means that if you've liked a certain page, your friends might see a photo of your face showing as a supporter of the page when the page is advertising on Facebook. So be careful what you "like".
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. You Can Post Other People's Content on Facebook
@@ -85,15 +91,28 @@ Pixabay free image
  In other words, don't share content you don't own or have a right to share. You can use a[Rights Manager](https://www.facebook.com/formedia/tools/rights-manager) to protect your own intellectual property if you are a content creator.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. It's Easy to Quit Facebook
 
 ![Person holding phone with social media apps as icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(53).jpg)
+
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  There are so many[privacy benefits of deleting social media accounts](https://www.makeuseof.com/privacy-benefits-deleting-social-media-accounts/) . While one option to keep Facebook away from using your data is to just quit Facebook, you'll be surprised how difficult it is to delete your account. Facebook has an entire help section on deactivating and deleting accounts, but it's still not as simple as that!
 
@@ -104,13 +123,6 @@ Pixabay free image
 ## 7\. If I Don't Use Facebook, It Doesn't Know Anything About Me
 
 ![A hand showing someone selecting a photo for social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-cottonbro-5082579.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Facebook is a social network, and if you know a lot of people who use it, chances are that the social network has information about you. It's called a "[shadow profile](https://www.makeuseof.com/tag/facebook-shadow-profiles/) ". When your friends use Facebook, they give it access to their contact book and personal information. Now let's say one of your friends has you and your phone number in their contact book. Facebook stores this. Now let's say another friend has you, your phone number, and your email address in their contact book. Facebook will also store that and match it to the existing information.
 
@@ -129,10 +141,10 @@ Pixabay free image
  If you see a Facebook app that adds a Dislike button or even a third-party browser extension, don't install it. It's not made by Facebook and there is a chance some of these have malware.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 9\. Facebook Is Overcrowded and Needs to Delete Inactive Accounts
@@ -147,15 +159,22 @@ Pixabay free image
 
  The bottom line is that if you ever see something on your timeline asking you to download or copy-paste something to keep your account active, don't do it. If it looks really serious, report spam and malicious content directly to Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 10\. Facebook Requires ID Proof
 
 ![login page displayed on tablet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/tablet-login-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Facebook stresses it wants to be community of real people and not fake names, and scammers try to take advantage of this. New users are therefore more likely to see this scam than others. You might come across a message—especially a private message—saying something like, "Facebook requires you to scan and send a valid photo ID to prove your identity. This is for the safety and security of all users. If you don't, Facebook will have to delete your account." Ignore it, or report it.
@@ -166,13 +185,6 @@ Pixabay free image
 2. To confirm your name. (Facebook asks users to confirm your name to keep the community safe from impostors.)
 
  This means that any message you are seeing inside Facebook about proving your ID is a scam, and your photo ID is going to someone with malicious intent, not to Facebook.
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Don't Believe Facebook Myths
 
@@ -193,16 +205,24 @@ Pixabay free image
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-decode-the-past-comprehensive-tutorial-for-inverting-image-searches-on-instagram/"><u>[New] Decode the Past Comprehensive Tutorial for Inverting Image Searches on Instagram</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-delving-into-twitter-archives-processes-explained/"><u>[Updated] Delving Into Twitter Archives Processes Explained</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-top-5-ios-emulators-that-bring-your-favorite-psp-worlds-to-life/"><u>[Updated] Top 5 iOS Emulators That Bring Your Favorite PSP Worlds to Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-facebooks-daily-memory-utility/"><u>A Step-by-Step Guide to Facebook's Daily Memory Utility</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/broadcasting-brilliance-how-to-capture-compelling-sports-content/"><u>Broadcasting Brilliance How to Capture Compelling Sports Content</u></a></li>
-<li><a href="https://win-dash.techidaily.com/hp-laserjet-p1006-driver-update-free-downloads/"><u>HP LaserJet P1006 Driver Update - Free Downloads</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-to-sever-instagram-connection-with-facebook/"><u>Steps to Sever Instagram Connection with Facebook</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/still-using-pattern-locks-with-vivo-v29-pro-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Vivo V29 Pro? Tips, Tricks and Helpful Advice</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-mechanics-of-facebooks-feed-algorithm/"><u>The Mechanics of Facebook's Feed Algorithm</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-playing-spotify-on-facebook/"><u>The Ultimate Guide to Playing Spotify on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/three-warnings-metas-media-conquest/"><u>Three Warnings: Meta's Media Conquest</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-igtv-unveiled-5-essential-downloads-for-mobile-devices-for-2024/"><u>[New] IGTV Unveiled 5 Essential Downloads for Mobile Devices for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/creating-emotional-depth-scriptwriting-tips/"><u>Creating Emotional Depth Scriptwriting Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-setback-with-ios-145-update/"><u>Facebook Faces Setback with iOS 14.5 Update</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-bypass-apple-iphone-13-passcode-easily-video-inside-drfone-by-drfone-ios/"><u>How to Bypass Apple iPhone 13 Passcode Easily Video Inside | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-motorola-moto-e13-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Motorola Moto E13</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-view-your-relationship-histories-on-facebook/"><u>How to View Your Relationship Histories on Facebook</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-vivo-x-flip-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Vivo X Flip Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-assessment-of-the-razer-blade-stealth-cu13-unprecedented-advancements-in-slim-laptop-technology/"><u>In-Depth Assessment of the Razer Blade Stealth Cu13: Unprecedented Advancements in Slim Laptop Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-future-of-computation-meta-and-its-pioneering-supercomputer/"><u>Navigating the Future of Computation: Meta and Its Pioneering Supercomputer</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-user-experience-or-compromising-on-data-protection-with-facebook-logins/"><u>Optimizing Your User Experience or Compromising on Data Protection? With Facebook Logins</u></a></li>
+<li><a href="https://facebook.techidaily.com/rights-over-your-online-images/"><u>Rights Over Your Online Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-secure-not-scammed-facebook-marketplace-safety-guide/"><u>Stay Secure, Not Scammed: Facebook Marketplace Safety Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-comeback-kid-an-analysis-of-facebooks-staying-power/"><u>The Comeback Kid - An Analysis of Facebook’s Staying Power</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-unbreakable-approach-to-tiktok-bio-hyperlinks/"><u>The Unbreakable Approach to TikTok Bio Hyperlinks</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-nokia-130-music-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Nokia 130 Music Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitters-social-influence-spurs-facebooks-prompt-for-sharing-wisdom/"><u>Twitter's Social Influence Spurs Facebook's Prompt for Sharing Wisdom</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-unlock-advanced-video-editing-capabilities-on-windows-8-and-later/"><u>Updated 2024 Approved Unlock Advanced Video Editing Capabilities on Windows 8 and Later</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-you-should-embrace-online-conversation-9-advantages-to-consider/"><u>Why You Should Embrace Online Conversation: 9 Advantages to Consider</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/rawbmp/"><u>コストフリーなウェブ向けRAWバイナルからBMPへの移行: ムーヴァビのガイド</u></a></li>
 </ul></div>
 

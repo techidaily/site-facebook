@@ -1,7 +1,7 @@
 ---
 title: "Furtive Features: FB Like Privacy Settings Guide"
-date: 2024-10-17T23:25:13.178Z
-updated: 2024-10-20T21:30:38.553Z
+date: 2024-10-19T19:13:34.689Z
+updated: 2024-10-26T17:51:35.469Z
 tags:
   - facebook
 categories:
@@ -28,27 +28,26 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Hiding the Facebook Reaction Count on Mobile
 
 ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
 ![Reaction preference settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Reaction-count-settings-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -71,22 +70,29 @@ To hide the number of reactions on your posts, follow these steps.
 
 ![The settings and privacy section on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/settings-privacy-section-facebook-web.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Your new settings are saved automatically.
 
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Understanding Facebook's Reaction Preferences
@@ -120,19 +126,22 @@ Your new settings are saved automatically.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-mov-saving-strategies-the-six-must-know-tactics-for-windows-11-users-for-2024/"><u>[New] .MOV Saving Strategies - The Six Must-Know Tactics for Windows 11 Users for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-real-time-narrative-builder/"><u>[New] 2024 Approved Real-Time Narrative Builder</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-innovative-8-upgrades-for-webcam-video-quality/"><u>2024 Approved Innovative 8 Upgrades for Webcam Video Quality</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-guide-to-amplify-your-online-presence-with-fb-groups/"><u>A Guide to Amplify Your Online Presence with FB Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/behavior-for-sale-the-economy-exposed/"><u>Behavior for Sale: The Economy Exposed</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-off-social-buttons-on-fb-nostalgia-feature/"><u>Cut Off Social Buttons on FB Nostalgia Feature</u></a></li>
-<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-honor-90-pro-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Honor 90 Pro in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-framework-understanding-its-governance-entity/"><u>Facebook's Framework: Understanding Its Governance Entity</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Tecno Spark 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-exhaustive-breakdown-of-vsco-photography-tool/"><u>In 2024, Exhaustive Breakdown of VSCO Photography Tool</u></a></li>
-<li><a href="https://techidaily.com/is-your-vivo-s18-pro-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Vivo S18 Pro working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/mastering-video-enlargement-on-youtube/"><u>Mastering Video Enlargement on YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-opportunities-5-facebook-strategies-for-careers/"><u>Maximizing Opportunities: 5 Facebook Strategies for Careers</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-biggest-tech-fumbles-of-the-current-era/"><u>The Biggest Tech Fumbles of the Current Era</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-inshots-ecosystem-a-detailed-editor-app-study-for-2024/"><u>[New] InShot’s Ecosystem A Detailed Editor App Study for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-a-seamless-transition-from-aspect-ratio-to-square-on-instagram-with-imovie/"><u>[Updated] 2024 Approved A Seamless Transition From Aspect Ratio to Square on Instagram with iMovie</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-enjoy-9-complete-uncut-holiday-cine-classics-for-no-cost/"><u>[Updated] In 2024, Enjoy 9 Complete, Uncut Holiday Cine Classics for No Cost</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-handling-soundtracks-opening-srt-on-pcmac/"><u>[Updated] In 2024, Handling Soundtracks Opening SRT on PC/Mac</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cross-continental-hit-apples-premier-app/"><u>Cross-Continental Hit: Apple's Premier App</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-iphone-6s-activation-lock-by-drfone-ios/"><u>How to Remove iPhone 6s Activation Lock</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-15-plus-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 15 Plus without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/paso-a-paso-los-dias-de-la-semana-en-hispanoamerica/"><u>Paso a Paso: Los Días De La Semana en Hispanoamérica</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-fix-for-lost-login-reclaim-your-facebook-passcode/"><u>Quick Fix for Lost Login: Reclaim Your Facebook Passcode</u></a></li>
+<li><a href="https://facebook.techidaily.com/renewable-revolution-complete-energy-for-fb/"><u>Renewable Revolution: Complete Energy for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-storytelling-on-facebook-with-reels-and-rooms/"><u>Revolutionizing Storytelling on Facebook with Reels & Rooms?</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-sharing-strategy-social-media-tips-for-privacy-protection/"><u>Safe Sharing Strategy: Social Media Tips for Privacy Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-community-removal-on-social-media/"><u>Simplifying Community Removal on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/sounds-for-stories-using-facebooks-new-messenger-features/"><u>Sounds for Stories: Using Facebook's New Messenger Features</u></a></li>
+<li><a href="https://fox-access.techidaily.com/the-ultimate-guide-to-essential-10-fcp-plugins-for-2024/"><u>The Ultimate Guide to Essential 10 FCP Plugins for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-telegrams-upswing-when-fb-was-inaccessible/"><u>Understanding Telegram's Upswing When FB Was Inaccessible</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-metaai-and-can-it-compete-with-other-chatbots/"><u>What Is MetaAI? And Can It Compete With Other Chatbots?</u></a></li>
 </ul></div>
 

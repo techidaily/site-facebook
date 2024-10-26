@@ -1,7 +1,7 @@
 ---
 title: Whistleblowers Pleased as Germany Halts Facebook From Collecting WhatsApp User Info
-date: 2024-10-16T18:36:38.292Z
-updated: 2024-10-20T19:08:36.386Z
+date: 2024-10-20T16:49:21.551Z
+updated: 2024-10-26T18:55:36.163Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -56,10 +56,10 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -83,21 +83,22 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-50plus-engaging-phrases-that-will-take-your-tiktok-to-new-heights/"><u>[New] In 2024, 50+ Engaging Phrases That Will Take Your TikTok to New Heights</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-seamless-tweeting-expert-video-conversion-software/"><u>2024 Approved Seamless Tweeting Expert Video Conversion Software</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/8-reasons-why-teachers-should-embrace-ai-instead-of-fearing-it/"><u>8 Reasons Why Teachers Should Embrace AI Instead of Fearing It</u></a></li>
-<li><a href="https://facebook.techidaily.com/beware-unmask-these-14-typical-facebook-tricks-immediately/"><u>Beware! Unmask These 14 Typical Facebook Tricks Immediately</u></a></li>
-<li><a href="https://facebook.techidaily.com/channel-synergy-transforming-groups-on-the-platform/"><u>Channel Synergy: Transforming Groups on the Platform</u></a></li>
-<li><a href="https://app-tips.techidaily.com/concealing-applications-a-step-by-step-guide-for-android-ios-devices/"><u>Concealing Applications: A Step-by-Step Guide for Android, iOS Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/credibility-clash-who-wins-in-the-meta-blue-battle/"><u>Credibility Clash: Who Wins in the Meta-Blue Battle?</u></a></li>
-<li><a href="https://windows11.techidaily.com/eliminating-driver-enforcement-loading-unsigned-on-windows-108/"><u>Eliminating Driver Enforcement: Loading Unsigned On Windows 10/8</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-reputation-on-the-line-amid-tech-doubts/"><u>Facebook's Reputation on the Line Amid Tech Doubts</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-unlock-iphone-xr-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock iPhone XR without Passcode or Face ID</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-unveiling-the-ideal-youtube-subset-of-viewers/"><u>In 2024, Unveiling the Ideal YouTube Subset of Viewers</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-tightening-its-grip-a-threat-to-facebook-and-instagram/"><u>Meta Tightening Its Grip – A Threat to Facebook & Instagram?</u></a></li>
-<li><a href="https://win-forum.techidaily.com/revo-uninstaller-step-by-step-guide-on-setup-and-activation/"><u>Revo Uninstaller: Step-by-Step Guide on Setup & Activation</u></a></li>
-<li><a href="https://win-able.techidaily.com/unlock-a-smooth-gameplay-experience-on-your-pc-with-these-fixes-to-the-assassinn-creed-odyssey-freezing-glitch-march-2024/"><u>Unlock a Smooth Gameplay Experience on Your PC with These Fixes to the Assassin'n Creed Odyssey Freezing Glitch (March 2024)</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-a-new-era-for-social-listening-at-facebook/"><u>Unveiling a New Era for Social Listening at Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/us-enters-metas-verification-era/"><u>US Enters Meta's Verification Era</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-mastering-streams-weighing-xsplit-against-obs-capabilities/"><u>[Updated] Mastering Streams Weighing XSplit Against OBS Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-reveals-insightful-policies-at-new-center-launch/"><u>Facebook Reveals Insightful Policies at New Center Launch</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-audio-issues-how-to-restore-sound-on-your-hp-laptop-running-windows-11/"><u>Fixing Audio Issues: How to Restore Sound on Your HP Laptop Running Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/germanys-stand-on-privacy-no-more-facebook-snooping-on-whatsapp-users/"><u>Germany's Stand on Privacy: No More Facebook Snooping on WhatsApp Users</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-samsung-galaxy-s23-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Samsung Galaxy S23</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-vivo-y27s-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Vivo Y27s Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-x100-pro-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Vivo X100 Pro Phone without Google Account?</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencers-at-the-forefront-of-covid-19-mythology/"><u>Influencers at the Forefront of Covid-19 Mythology</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-virtual-reality-to-messaging-on-fb-platform/"><u>Introducing Virtual Reality to Messaging on FB Platform</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/leading-cryptocurrency-topics-for-chatai/"><u>Leading Cryptocurrency Topics for ChatAI</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-security-with-two-factor-authentication-on-major-mail-providers/"><u>Maximizing Security with Two-Factor Authentication on Major Mail Providers</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-us-officially-verified-sign-up-now/"><u>Meta US: Officially Verified Sign-Up Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-and-resolving-top-11-social-media-faux-pas-on-facebook/"><u>Navigating & Resolving Top 11 Social Media Faux Pas on Facebook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-tips-adding-captions-in-youtube-videos/"><u>Quick Tips Adding Captions in YouTube Videos</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/redefining-home-management-ai-driven-by-gpts-touch/"><u>Redefining Home Management: AI-Driven by GPT's Touch</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-most-empowering-movie-picks-to-spark-motivation-in-every-viewer/"><u>The Most Empowering Movie Picks to Spark Motivation in Every Viewer</u></a></li>
+<li><a href="https://facebook.techidaily.com/unified-media-presence-transferring-instagram-reels-to-facebook-feed/"><u>Unified Media Presence: Transferring Instagram Reels to Facebook Feed</u></a></li>
 </ul></div>
 

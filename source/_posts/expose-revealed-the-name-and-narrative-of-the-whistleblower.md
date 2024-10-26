@@ -1,7 +1,7 @@
 ---
 title: "Exposé Revealed: The Name and Narrative of the Whistleblower"
-date: 2024-09-10T14:55:54.578Z
-updated: 2024-09-11T14:55:54.578Z
+date: 2024-10-22T17:46:53.841Z
+updated: 2024-10-26T17:43:07.069Z
 tags:
   - facebook
 categories:
@@ -19,27 +19,10 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
  Read on to find out more about Haugen and some of the claims she made against the social network and tech giant in the interview.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Who Is the Facebook Whistleblower?
 
@@ -51,21 +34,20 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
  Here are some of the biggest claims made by Haugen in her recent 60 Minutes interview:
 
-## 5 Claims Made by Frances Haugen on 60 Minutes
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+## 5 Claims Made by Frances Haugen on 60 Minutes
 
 ### 1\. Facebook’s Algorithm Shows You Hateful and Divisive Content
 
@@ -75,45 +57,18 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
  Related:[How to Disable Algorithmic Feeds on Twitter, Instagram, and Facebook](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 2\. Facebook Is Profiting From Showing You Hateful and Divisive Content
 
  Haugen claims that the more you consume content that evokes anger or incites violence, the more profitable it is for Facebook.
 
 > Facebook makes more money when you consume more content. People enjoy engaging with things that elicit an emotional reaction. And the more anger that they get exposed to, the more they interact and the more they consume.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 3\. Facebook Chooses Profit Over Safety
 
@@ -129,19 +84,12 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
  Related:[Study Suggests Facebook Handled Election Misinformation Poorly](https://www.makeuseof.com/study-facebook-election-misinformation/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 5\. Instagram Is Harming Teenage Girls
 
@@ -149,25 +97,12 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
 > Facebook's own research says, as these young women begin to consume this-- this eating disorder content, they get more and more depressed. And it actually makes them use the app more. And so, they end up in this feedback cycle where they hate their bodies more and more. Facebook's own research says it is not just the Instagram is dangerous for teenagers, that it harms teenagers, it's that it is distinctly worse than other forms of social media.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## What Is the Way Forward for Facebook?
 
@@ -175,14 +110,11 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
  In the meantime, Facebook has, unsurprisingly, released a statement denying the claims made by Haugen, saying it has invested significantly in keeping its platform safe. But this could yet prove to be a watershed moment, with Facebook forced to hold itself more to account.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -191,12 +123,20 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-chart-your-course-to-partner-status-via-a-rapid-10000-views-journey/"><u>[New] 2024 Approved Chart Your Course to Partner Status via a Rapid 10,000 Views Journey</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-quality-of-movement-choosing-between-mirrorless-and-dslr/"><u>[Updated] Quality of Movement Choosing Between Mirrorless & DSLR</u></a></li>
+<li><a href="https://facebook.techidaily.com/banish-facebooks-privacy-invasion-with-off-fb-controls/"><u>Banish Facebook's Privacy Invasion with Off-FB Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-recent-facebook-watches/"><u>Discovering Recent Facebook Watches</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-drivers-hp-color-laserjet-pro-mfp-m477-printer-software/"><u>Download Drivers: HP Color LaserJet Pro MFP M477 Printer Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-next-step-enhancing-stories-panel-with-reels-and-rooms/"><u>Facebook's Next Step: Enhancing Stories Panel With Reels & Rooms</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-isolation-to-engagement-joining-an-expat-group-on-facebook/"><u>From Isolation to Engagement: Joining an Expat Group on Facebook</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-ai-driven-high-quality-editing-platform/"><u>In 2024, AI-Driven High-Quality Editing Platform</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-tecno-spark-10-4g-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Tecno Spark 10 4G to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/optimizing-performance-in-avatar-troubleshooting-low-fps-and-smoothing-out-stutters/"><u>Optimizing Performance in 'Avatar': Troubleshooting Low FPS and Smoothing Out Stutters</u></a></li>
+<li><a href="https://facebook.techidaily.com/resolving-access-issues-with-your-facebook-id/"><u>Resolving Access Issues with Your Facebook ID</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/simulating-dialogue-bot-vs-human-interaction/"><u>Simulating Dialogue: Bot vs Human Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unyielding-nature-of-facebooks-content-advice/"><u>The Unyielding Nature of Facebook's Content Advice</u></a></li>
+</ul></div>
 

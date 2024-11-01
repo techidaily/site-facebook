@@ -1,7 +1,7 @@
 ---
 title: "The Instant Fix: Purge Your Facebook Broadcast History"
-date: 2024-10-23T19:49:47.163Z
-updated: 2024-10-26T21:19:53.007Z
+date: 2024-10-30T16:46:56.541Z
+updated: 2024-11-01T17:20:23.617Z
 tags:
   - facebook
 categories:
@@ -28,29 +28,22 @@ thumbnail: https://thmb.techidaily.com/d54fa6180dfbcf214df4f9458a0e28f5138815530
 
  Facebook allows you to delete your story on its app and web versions. This guide will cover both versions so that you can delete your story regardless of how you are accessing Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Get Rid of a Story on the Facebook Android App
 
 To delete your story on the mobile version of Facebook:
 
 ![screenshot showing facebook story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-showing-facebook-story.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![screenshot showing facebook story with options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-showing-facebook-story-with-options.jpg)
 
 ![screenshot showing how to delete facebook story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-showing-how-to-delete-facebook-story.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -60,6 +53,13 @@ Close
 4. Select**Delete video** or**Delete photo** , as the case may apply.
 5. Tap**Delete** on the confirmation prompt.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Clear a Story on Facebook Web
 
  Deleting your story on the web version of Facebook is similar to the process on the app.
@@ -67,10 +67,10 @@ Close
 ![screenshot of Facebook story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-of-Facebook-story.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Log in to[Facebook](https://www.facebook.com/) on the web, navigate to the story you want to delete, click on the**vertical ellipsis** , and select**Delete video** .
@@ -79,10 +79,10 @@ Close
 And there you have it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can You Recover a Deleted Story on Facebook?
@@ -108,20 +108,22 @@ And there you have it.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-nokia-c22-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Nokia C22 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-ways-to-limit-people-contacting-you-on-facebook/"><u>5 Ways to Limit People Contacting You on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-reasons-why-a-facebook-page-is-better-than-a-personal-profile-for-branding/"><u>8 Reasons Why a Facebook Page Is Better Than a Personal Profile for Branding</u></a></li>
-<li><a href="https://facebook.techidaily.com/ad-head-carolyn-everson-quits-facebook/"><u>Ad Head Carolyn Everson Quits Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/attracting-prose-masters-fbs-strategic-5m-bet-on-journalist-platforms/"><u>Attracting Prose Masters: FB's Strategic $5M Bet on Journalist Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/boosting-user-engagement-with-fb-photo-descriptions/"><u>Boosting User Engagement with FB Photo Descriptions</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721474933956-cant-access-the-internet-on-another-device-via-iphone-fix-ipadiphone-tethering-now/"><u>Can’t Access the Internet on Another Device via iPhone? Fix iPad/iPhone Tethering Now!</u></a></li>
-<li><a href="https://facebook.techidaily.com/charting-digital-footsteps-an-in-depth-look-at-every-fb-move-youve-made/"><u>Charting Digital Footsteps: An In-Depth Look at Every FB Move You've Made</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tial-tips-for-free-youtube-video-transcriptions-for-2024/"><u>Essential Tips for FREE YouTube Video Transcriptions for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/exploring-high-speed-action-a-top-5-game-list-for-2024/"><u>Exploring High-Speed Action A Top 5 Game List for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-motorola-moto-g24-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Motorola Moto G24 Lock Screen Password</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-ideal-illustration-tools-for-windows-no-cost-high-prices/"><u>In 2024, Ideal Illustration Tools for Windows No Cost, High Prices</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/maximize-your-tiktok-experience-with-updated-numbers/"><u>Maximize Your TikTok Experience with Updated Numbers</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-in-2024-10-essential-fcpx-plugins-to-elevate-your-video-editing-game-free-and-paid/"><u>New In 2024, 10 Essential FCPX Plugins to Elevate Your Video Editing Game Free and Paid</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-review-protection-and-price-point-for-finties-macbook-pro-13-case/"><u>Comprehensive Review: Protection & Price Point for Fintie's MacBook Pro 13 Case</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/die-besten-videokonverter-softwarelosungen-fur-windows-10-and-11-schnelle-und-sichere-optionen-im-uberblick/"><u>Die Besten Videokonverter-Softwarelösungen Für Windows 10 & 11 – Schnelle Und Sichere Optionen Im Überblick</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ensuring-optimal-display-a-how-to-on-installing-new-graphics-drivers-in-windows-11/"><u>Ensuring Optimal Display: A How-To on Installing New Graphics Drivers in Windows 11</u></a></li>
+<li><a href="https://win-web.techidaily.com/error-404-webpage-unavailable-access-denied/"><u>Error 404: Webpage Unavailable – Access Denied</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagrams-end-to-end-encryption-awaiting-2022/"><u>Facebook and Instagram's End-to-End Encryption Awaiting 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-pauses-trump-ban-review-by-regulatory-council/"><u>Facebook Pauses Trump Ban Review by Regulatory Council</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-everyone-group-notification-feature/"><u>Halt Everyone Group Notification Feature</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-lava-agni-2-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Lava Agni 2 5G without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://media-tips.techidaily.com/impending-password-sharing-restrictions-on-disneyplus-what-you-need-to-know/"><u>Impending Password Sharing Restrictions on Disney+: What You Need To Know</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-sound-excellence-for-podcasters-ultimate-audio-interface-guide/"><u>In 2024, Sound Excellence for Podcasters Ultimate Audio Interface Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-owners-dodge-location-monitoring/"><u>IPhone Owners Dodge Location Monitoring</u></a></li>
+<li><a href="https://facebook.techidaily.com/make-a-mark-messengers-formatting-fundamentals/"><u>Make a Mark: Messenger's Formatting Fundamentals</u></a></li>
+<li><a href="https://windows11.techidaily.com/recover-missing-seagate-or-samsung-drives-in-windows/"><u>Recover Missing Seagate or Samsung Drives in Windows</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/resolved-access-issue-on-windows-11s-device-security-dashboard-now-solved/"><u>Resolved - Access Issue on Windows 11'S Device Security Dashboard Now Solved</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-fb-image-exposure-settings/"><u>Tailoring FB Image Exposure Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-upside-to-connectivity-9-good-aspects-of-online-communities/"><u>The Upside to Connectivity: 9 Good Aspects of Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-telegrams-advantages-when-fb-was-offline/"><u>Unveiling Telegram's Advantages When FB Was Offline</u></a></li>
 </ul></div>
 

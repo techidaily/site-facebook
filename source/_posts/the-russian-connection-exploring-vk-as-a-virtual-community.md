@@ -1,7 +1,7 @@
 ---
 title: "The Russian Connection: Exploring VK as a Virtual Community"
-date: 2024-09-10T14:50:04.947Z
-updated: 2024-09-11T14:50:04.947Z
+date: 2024-10-30T16:03:17.487Z
+updated: 2024-11-01T16:19:11.165Z
 tags:
   - facebook
 categories:
@@ -23,57 +23,29 @@ thumbnail: https://thmb.techidaily.com/8614a77f9e633f7b68cb429db560c3992306d2b5b
 
 ![VK is the most popular social media site in Russia.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Image Credit:[Statista](https://www.statista.com/statistics/284447/russia-social-network-penetration/)
 
  With Facebook coming in at number four (behind VK and other popular social media sites Odnoklassniki and Instagram), VK actually has its closest competitor beat by nearly twofold in terms of monthly messages and posts exchanged between users.
 
  According to[Alexa](https://www.alexa.com/topsites/countries/RU) , VK is the third most-visited site in Russia, right behind Google and YouTube; the site's daily mobile audience peaks at nearly 45 million visitors on average.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 2\. VK is More Popular With Young Users
 
 ![Distribution of VK users by age groups.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/vk-users-by-age.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Image Credit:[ResearchGate](https://www.researchgate.net/figure/Distribution-of-VK-users-by-age-groups%5Ffig3%5F321459360)
 
@@ -85,20 +57,6 @@ Some potential explanations for this difference include:
 * The site's tendency to encourage users to expand their social circles, as opposed to remaining only in the ones that they are already a part of.
 * The popularity of the social media site Odnoklassniki with older Russian adults.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 3\. VK Offers a Lot In Terms of Profile Creation
 
  Facebook as a company tends to encourage users to populate their timelines with the latest on their lives, as opposed to creating an extremely specific profile of general information about themselves.
@@ -106,6 +64,13 @@ Some potential explanations for this difference include:
  This is not the case on VK—in fact, the site's profile-creation aspect is honestly more granular than anything we've ever seen on any social media site, period.
 
 ![Creating a profile on VK.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk-social-media.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To name one example, the sign-up process asks that you add your education to your profile. I expected to drop my university's name in and move on.
 
@@ -121,20 +86,6 @@ Some potential explanations for this difference include:
 
  Needless to say, things got complicated. Durov was eventually coerced into forfeiting his stake in the company in 2014\. Everything went to Alisher Usmanov, the richest man in Russia at the time.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 5\. Russian Users Believe VK is Better than Facebook
 
  Call it a healthy sense of nationalism or simply a matter of convenience, most Russians simply prefer VK to Facebook. Sorry, Mark Zuckerberg.
@@ -143,31 +94,18 @@ Some potential explanations for this difference include:
 
  Related:[The Top 20 Social Media Apps and Sites in 202](https://www.makeuseof.com/tag/top-social-media-apps-sites/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. VK Has Suffered Major Security Breaches
 
  In June 2016, VK actually experienced a significant[security breach](https://www.makeuseof.com/historic-data-breaches/) , exposing the data of over 171 million users.
 
  Included in the spoils: names, email addresses, passwords, and other sensitive contact information, all found being sold on the dark web shortly after. VK isn't the first, nor the last. Still, it makes you think. We should always be careful about what we share online, even on a website as huge as this one.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 7\. The Most Common Password on VK is "123456"
 
@@ -197,14 +135,11 @@ Some potential explanations for this difference include:
 
  If you've got friends in Russia or Ukraine, this site is a great way to connect. Even if you don't, the brand's legacy offers westerners an uncanny glimpse through the looking glass. We could have sworn that we were staring at a circa 2014 Facebook splash page immediately after logging on.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -213,4 +148,21 @@ Some potential explanations for this difference include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-breaking-boundaries-in-video-content-creation-within-limit/"><u>[New] Breaking Boundaries in Video Content Creation (Within Limit)</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-effortlesssave-expert-perspective/"><u>[New] In 2024, EffortlessSave Expert Perspective</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-toonhub-pro-analysis-2024-report/"><u>[Updated] ToonHub Pro Analysis 2024 Report</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-grasping-the-advantages-of-av1-in-video-coding/"><u>2024 Approved Grasping the Advantages of AV1 in Video Coding</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-updates-and-installation-for-your-radeon-rx-470-video-cards-effortlessly/"><u>Get the Newest Updates & Installation for Your Radeon RX 470 Video Cards Effortlessly</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-apple-iphone-6-passcode-not-working-drfone-by-drfone-ios/"><u>How to Fix Apple iPhone 6 Passcode not Working? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-10-standout-educational-websites-for-self-paced-learning/"><u>In 2024, 10 Standout Educational Websites for Self-Paced Learning</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/stellar-file-eraser-5-windows-standard-en-setting-scheduler-for-erasing-traces/"><u>Stellar File Eraser 5 Windows Standard en Setting Scheduler for Erasing Traces</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pixel-journey-facebooks-evolution-into-meta/"><u>The Pixel Journey: Facebook's Evolution Into Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-rules-behind-facebooks-whitelist/"><u>Understanding the Rules Behind Facebook's Whitelist</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-everyones-names-fb-posts-that-count-all-groupies/"><u>Uniting Everyone's Names: FB Posts That Count All Groupies</u></a></li>
+<li><a href="https://facebook.techidaily.com/validation-process-for-securityfacebookmailcom-as-a-safe-fb-account/"><u>Validation Process for @security@facebookmail.com as a Safe FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-will-we-leave-behind-once-facebook-fades/"><u>What Will We Leave Behind Once Facebook Fades?</u></a></li>
+</ul></div>
 

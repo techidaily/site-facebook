@@ -1,7 +1,7 @@
 ---
 title: How to Disable the People You May Know Feature on Facebook
-date: 2024-09-10T14:50:06.331Z
-updated: 2024-09-11T14:50:06.331Z
+date: 2024-10-26T16:04:09.272Z
+updated: 2024-11-01T17:17:50.558Z
 tags:
   - facebook
 categories:
@@ -14,26 +14,6 @@ thumbnail: https://thmb.techidaily.com/46486d3cf08c5d74abeb420acca02a4bdb0158ce8
 ---
 
 ## How to Disable the People You May Know Feature on Facebook
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Quick Links
 
@@ -49,39 +29,11 @@ thumbnail: https://thmb.techidaily.com/46486d3cf08c5d74abeb420acca02a4bdb0158ce8
 
  Many of us would rather scroll through our Facebook feeds without having to deal with friend suggestions. Luckily, you can hide the "People You May Know" feature.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How Does Facebook Come Up With Its Friend Suggestions?
 
  Facebook uses its engagement algorithms, your uploaded contact lists, and existing friends to suggest lists of people it believes you may know. You find some of these people in your News Feed under the "People You May Know" gallery.
 
  It's in Facebook's interest to suggest Facebook friends for you. The more connections you have on the platform, the more likely you are to use it. However, if you're not looking to add new friends on Facebook, the feature could become redundant and better off hidden.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to Hide the "People You May Know" Feature on Facebook
 
@@ -91,21 +43,21 @@ thumbnail: https://thmb.techidaily.com/46486d3cf08c5d74abeb420acca02a4bdb0158ce8
 
 ![android screenshot showing facebook newsfeed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-facebook-newsfeed.jpg)
 
-![android screenshot showing how to hide people you may know feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-how-to-hide-people-you-may-know-feature-1.jpg)
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+![android screenshot showing how to hide people you may know feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-how-to-hide-people-you-may-know-feature-1.jpg)
 
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -130,20 +82,6 @@ Close
 
 ![screenshot showing people you may know alerts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-people-you-may-know-alerts-on-facebook.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Close
 
 1. Launch the Facebook app on your device and tap on the icon with your profile picture to reveal the expanded menu.
@@ -161,50 +99,42 @@ Close
 3. ![desktop screenshot showing facebook profile menu option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-profile-menu-option.jpg)  
  Then, click on**Settings** .
 
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 4. ![desktop screenshot showing facebook settings option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-settings-option.jpg)  
  Scroll down the left menu until you find**Notifications** . Select this.
 
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 5. ![desktop screenshot showing facebook notification settings option-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-notification-settings-option-1.jpg)  
  Scroll down and click on the**People You May Know** option.
 6. ![desktop screenshot showing facebook people you may know alerts option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-people-you-may-know-alerts-option.jpg)  
  You have the option to either turn off each type of notification (Push, Email, and SMS). You can also disable all the notifications by turning off the**Allow Notifications on Facebook** toggle.
 
- Once you've disabled this feature and these alerts, you should be able to navigate Facebook in peace. Unfortunately, while switching off alerts is permanent, you'll have to hide the friend suggestions box again when it reappears in your feed.
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
+ Once you've disabled this feature and these alerts, you should be able to navigate Facebook in peace. Unfortunately, while switching off alerts is permanent, you'll have to hide the friend suggestions box again when it reappears in your feed.
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -213,4 +143,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/treamline-shorter-optimizing-youtube-videos-for-less-time-for-2024/"><u>[New] Streamline Shorter Optimizing YouTube Videos for Less Time for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-igtvs-power-boosters-crafting-viral-hash-tags-for-2024/"><u>[Updated] IGTV's Power Boosters Crafting Viral Hash Tags for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/dissecting-the-pixel-slate-experience-navigating-through-chromeos-challenges/"><u>Dissecting the Pixel Slate Experience: Navigating Through ChromeOS Challenges</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-futuristics-the-top-six-reasons-to-embrace-its-metaverse/"><u>Facebook Futuristics: The Top Six Reasons to Embrace Its Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacked-ratings-facebooks-app-store-scores-tank-under-activist-pressure/"><u>Hacked Ratings: Facebook's App Store Scores Tank Under Activist Pressure</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-fix-a-non-detectable-external-hard-drive-on-windows-10-solutions-inside/"><u>How to Fix a Non-Detectable External Hard Drive on Windows 10 - Solutions Inside</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/how-to-listen-to-podcasts-on-your-iphone-for-2024/"><u>How To Listen to Podcasts on Your iPhone for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-solve-microsoft-word-documents-that-refuse-to-load/"><u>How to Solve Microsoft Word Documents That Refuse to Load</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/identifying-your-linux-distributions-kernel-and-os-versions-effectively/"><u>Identifying Your Linux Distribution's Kernel and OS Versions Effectively</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-apple-iphone-11-for-free-by-drfone-ios/"><u>In 2024, How To Unlock Cricket Apple iPhone 11 for Free</u></a></li>
+<li><a href="https://facebook.techidaily.com/live-the-experience-facebooks-latest-auditory-features/"><u>Live the Experience: Facebook's Latest Auditory Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/masking-your-social-footprints-on-facebook/"><u>Masking Your Social Footprints on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-privacy-concealing-friend-lists-on-fb/"><u>Mastering Privacy: Concealing Friend Lists on FB</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smart-navigation-with-the-ix-escort-reviewed-the-advanced-radar-detector-that-learns-your-routes/"><u>Smart Navigation with the iX Escort Reviewed: The Advanced Radar Detector that Learns Your Routes</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-update-your-social-media-login-passphrase/"><u>Steps to Update Your Social Media Login Passphrase</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-facebook-app-adjustments-for-improved-use/"><u>Top 10 Facebook App Adjustments for Improved Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-is-threatening-to-kill-facebook-and-instagram-in-europe/"><u>Why Meta Is Threatening to Kill Facebook and Instagram in Europe</u></a></li>
+</ul></div>
 

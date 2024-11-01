@@ -1,7 +1,7 @@
 ---
 title: The Essence and Mechanics of PhotoDNA Explored
-date: 2024-09-10T14:51:16.949Z
-updated: 2024-09-11T14:51:16.949Z
+date: 2024-10-30T17:04:34.096Z
+updated: 2024-11-01T16:50:37.791Z
 tags:
   - facebook
 categories:
@@ -21,27 +21,10 @@ thumbnail: https://thmb.techidaily.com/bfe8f97d519484170998bced830c25ea7c96c9f9f
 
  However, a technology co-developed by Microsoft called PhotoDNA is a step towards creating a safer online space for kids and adults alike.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## What Is PhotoDNA?
 
@@ -54,20 +37,6 @@ thumbnail: https://thmb.techidaily.com/bfe8f97d519484170998bced830c25ea7c96c9f9f
  Although not the only service to search for known CSAM, PhotoDNA is one of the most common methods, including many digital services like Reddit, Twitter, and most Google-owned products.
 
  PhotoDNA had to be physically set up on-premise in the early days, but Microsoft now operates the cloud-based PhotoDNA Cloud service. This allows smaller organizations without a vast infrastructure to undertake CSAM detection.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How Does PhotoDNA Work?
 
@@ -87,19 +56,12 @@ thumbnail: https://thmb.techidaily.com/bfe8f97d519484170998bced830c25ea7c96c9f9f
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Does PhotoDNA Use Facial Recognition?
 
@@ -113,37 +75,23 @@ thumbnail: https://thmb.techidaily.com/bfe8f97d519484170998bced830c25ea7c96c9f9f
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Does Facebook Use PhotoDNA?
 
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  As the owner and operator of the world's largest and most popular social networks, Facebook deals with a lot of user-generated content each day. Although it's hard to find reliable, current estimates,[analysis in 2013](https://www.businessinsider.com/facebook-350-million-photos-each-day-2013-9?IR=T) suggested that some 350 million images are uploaded to Facebook each day.
 
@@ -151,19 +99,12 @@ thumbnail: https://thmb.techidaily.com/bfe8f97d519484170998bced830c25ea7c96c9f9f
 
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Does PhotoDNA Make the Internet Safer?
 
@@ -173,14 +114,11 @@ thumbnail: https://thmb.techidaily.com/bfe8f97d519484170998bced830c25ea7c96c9f9f
 
  It's easier than ever to take and upload high-resolution abuse images online, and the abusers are increasingly taking to more secure platforms like the Dark Web and encrypted messaging apps to share the illegal material. If you've not come across the Dark Web before, it's worth reading about the risks associated with the hidden side of the internet.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -189,12 +127,22 @@ thumbnail: https://thmb.techidaily.com/bfe8f97d519484170998bced830c25ea7c96c9f9f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-seamless-scratching-for-chrome-devices-for-2024/"><u>[New] Seamless Scratching for Chrome Devices for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-deciphering-gopros-top-cameras-max-vs-hero-11-showdown/"><u>[Updated] 2024 Approved Deciphering GoPro's Top Cameras Max Vs. Hero 11 Showdown</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-sharing-easy-youtube-playlist-methods/"><u>Blitzing Sharing Easy YouTube Playlist Methods</u></a></li>
+<li><a href="https://program-issues.techidaily.com/expert-tips-for-resolving-steam-launchers-black-screen-problem/"><u>Expert Tips for Resolving Steam Launcher's Black Screen Problem</u></a></li>
+<li><a href="https://facebook.techidaily.com/find-the-hottest-content-on-facebook-lately/"><u>Find the Hottest Content on Facebook Lately</u></a></li>
+<li><a href="https://windows11.techidaily.com/fixing-captcha-missteps-in-windows-steam/"><u>Fixing CAPTCHA Missteps in Windows Steam</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-check-who-youve-blocked-on-facebook/"><u>How to Check Who You've Blocked on Facebook</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-feed-with-a-new-twist-in-business-advertising/"><u>Personalizing Your Feed with a New Twist in Business Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/pushing-the-limits-of-visual-content-with-fbs-3d-photo-feature/"><u>Pushing the Limits of Visual Content with FB's 3D Photo Feature</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-solution-overcoming-errors-in-the-user-profile-login-process/"><u>Step-by-Step Solution: Overcoming Errors in the User Profile Login Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vagueness-uncovered-a-glimpse-at-puzzling-content-sharing/"><u>Virtual Vagueness Uncovered: A Glimpse at Puzzling Content Sharing</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/what-does-a-404-error-mean-resolving-missing-pages-on-your-site/"><u>What Does a 404 Error Mean? Resolving Missing Pages on Your Site</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-holds-title-to-your-web-based-selfies/"><u>Who Holds Title to Your Web-Based Selfies?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-prioritizing-your-online-privacy-is-vital-in-todays-digital-age-facebooks-take/"><u>Why Prioritizing Your Online Privacy Is Vital in Today’s Digital Age - Facebook's Take</u></a></li>
+</ul></div>
 

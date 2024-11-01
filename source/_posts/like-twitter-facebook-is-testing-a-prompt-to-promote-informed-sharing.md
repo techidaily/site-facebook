@@ -1,7 +1,7 @@
 ---
 title: Like Twitter, Facebook Is Testing a Prompt to Promote Informed Sharing
-date: 2024-09-10T14:52:00.679Z
-updated: 2024-09-11T14:52:00.679Z
+date: 2024-10-30T16:09:01.032Z
+updated: 2024-11-01T16:50:40.122Z
 tags:
   - facebook
 categories:
@@ -17,33 +17,10 @@ thumbnail: https://thmb.techidaily.com/2ef3dcd0a65154e26137d2fe405a5df0d2493a533
 
  If you try to share a news article without opening it on Facebook, you may soon see a notification that encourages you to read it first. The prompt is currently being tested on the platform, with the goal of promoting more informed sharing.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Facebook Prods Users to Read Before Sharing
 
@@ -55,25 +32,12 @@ thumbnail: https://thmb.techidaily.com/2ef3dcd0a65154e26137d2fe405a5df0d2493a533
 
  Facebook then gives you two ways to reply to this prompt: **Open Article** and **Continue Sharing** . In other words, you can choose to read the article you're about to post, or continue to share it without reading.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Twitter Already Unveiled a Similar Prompt
 
@@ -83,25 +47,12 @@ thumbnail: https://thmb.techidaily.com/2ef3dcd0a65154e26137d2fe405a5df0d2493a533
 
  While[Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Will Facebook Ever Be Free of Misinformation?
 
@@ -109,14 +60,11 @@ thumbnail: https://thmb.techidaily.com/2ef3dcd0a65154e26137d2fe405a5df0d2493a533
 
  And since Facebook can't force you not to post certain things (unless it breaks Facebook's rules), misinformation will always be an issue. That's why it's important to know how to identify misinformation, as well as how to find reliable news sources.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -125,12 +73,18 @@ thumbnail: https://thmb.techidaily.com/2ef3dcd0a65154e26137d2fe405a5df0d2493a533
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-securely-grab-free-picture-frame-videos/"><u>[New] How to Securely Grab Free Picture Frame Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-ideal-online-journey-discovering-custom-ringtones-for-2024/"><u>[New] Ideal Online Journey Discovering Custom Ringtones for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-vlc-and-mpc-showdown-whats-your-preference-for-video/"><u>[Updated] VLC and MPC Showdown What's Your Preference for Video?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-fun-tests-are-they-stealing-secrets/"><u>Facebook's Fun Tests: Are They Stealing Secrets?</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-streamlines-your-conversations-upgraded-messaging-on-instagram-and-messenger-awaits/"><u>FB Streamlines Your Conversations: Upgraded Messaging on Instagram & Messenger Awaits</u></a></li>
+<li><a href="https://app-tips.techidaily.com/how-streamlined-regulations-are-boosting-aseans-path-to-a-2t-digital-economy-by-2030-featured-on-zdnet/"><u>How Streamlined Regulations Are Boosting ASEAN's Path to a $2T Digital Economy by 2030, Featured on ZDNET</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/i-metodi-piu-efficienti-per-la-trasformazione-di-file-mts-in-formato-mp4-soluzione-libera/"><u>I Metodi Più Efficienti per La Trasformazione Di File MTS in Formato MP4 - Soluzione Libera!</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-urges-step-back-from-screen-embrace-life/"><u>Instagram Urges: Step Back From Screen, Embrace Life</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-oppo-reno-11-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Oppo Reno 11 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-power-of-independent-messaging-services/"><u>Unlock the Power of Independent Messaging Services</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-leading-text-tracking-solutions-for-animators/"><u>Updated Leading Text Tracking Solutions for Animators</u></a></li>
+</ul></div>
 

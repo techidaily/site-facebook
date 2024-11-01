@@ -1,7 +1,7 @@
 ---
 title: "Holding Fire: Facebook Oversight Ponders Suspension"
-date: 2024-09-10T14:50:05.086Z
-updated: 2024-09-11T14:50:05.086Z
+date: 2024-10-31T16:11:37.912Z
+updated: 2024-11-01T16:07:27.227Z
 tags:
   - facebook
 categories:
@@ -17,20 +17,6 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
 
  Facebook's Oversight Board is still mulling over the fate of Donald Trump's accounts on Facebook and Instagram. Although a ruling was expected in a matter of days, the Oversight Board now says that it will reach a final decision "in the coming weeks."
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## The Oversight Board Weighs the Status of Trump's Accounts
 
  After the Capitol riots in January,[Facebook banned Trump from Facebook and Instagram indefinitely](https://www.makeuseof.com/facebook-instagram-indefinitely-ban-trumps-account/) . But making the decision to permanently ban Trump is much too significant for Facebook to decide on its own, so Facebook determined that it needed another set of eyes to examine the situation.
@@ -45,19 +31,12 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
 
  The Oversight Board was only introduced in December 2020, but it has already ruled on a number of cases. The permanent suspension of Trump's accounts is arguably the biggest decision the Oversight Board has had to make so far, so it only makes sense that it's delaying the final ruling.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Will the Oversight Board Choose to Ban Trump?
 
@@ -67,14 +46,11 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
 
  It's not a decision to make lightly, and the Oversight Board, as well as Facebook, must be prepared for backlash.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -83,4 +59,22 @@ thumbnail: https://thmb.techidaily.com/b65c1700fc3be6103fe73469bcdff9ebd5593034f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-acid-pro-alternatives-the-ultimate-review-series/"><u>[New] 2024 Approved ACID Pro Alternatives The Ultimate Review Series</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-elevate-your-episodes-masterful-lighting-setups-explained/"><u>[New] 2024 Approved Elevate Your Episodes Masterful Lighting Setups Explained</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-counterview-commentary-review/"><u>[Updated] CounterView Commentary Review</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-next-gen-players-guide-rift-vive-vs-ps-vr-games/"><u>[Updated] Next-Gen Players Guide Rift, Vive, vs PS VR Games</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-installation-guide-for-epson-workforce-ds-30-driver-on-windows-11-8-and-7/"><u>Easy Installation Guide for Epson WorkForce DS-30 Driver on Windows 11, 8 & 7</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-professionals-picks-smoothest-drone-gimbals/"><u>In 2024, Professional's Picks Smoothest Drone Gimbals</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-unlocking-the-full-potential-of-iphones-hdr-functions/"><u>In 2024, Unlocking the Full Potential of iPhone's HDR Functions</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-the-scandal-an-insight-into-facebook-disclosures/"><u>Inside the Scandal: An Insight Into Facebook Disclosures</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-next-gen-platform-for-community-oversight-on-fb/"><u>Introducing Next-Gen Platform for Community Oversight on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/mute-mode-taking-break-from-facebook-friends/"><u>Mute Mode: Taking Break From Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/realm-rankings-deciphering-which-platform-paves-a-higher-road-meta-or-twitter/"><u>Realm Rankings: Deciphering Which Platform Paves a Higher Road – Meta or Twitter?</u></a></li>
+<li><a href="https://facebook.techidaily.com/sculpting-your-facebook-profiles-privacy-settings/"><u>Sculpting Your Facebook Profile's Privacy Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-imagery-assembly-personalized-posts-with-pictures/"><u>Seamless Imagery Assembly: Personalized Posts with Pictures</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/understanding-the-key-distinctions-between-ipad-and-ipad-air/"><u>Understanding the Key Distinctions Between iPad and iPad Air</u></a></li>
+</ul></div>
 

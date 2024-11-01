@@ -1,7 +1,7 @@
 ---
 title: "The Concealed Count: How Many More Are Leaving?"
-date: 2024-10-22T21:53:51.442Z
-updated: 2024-10-26T17:45:43.939Z
+date: 2024-10-25T17:19:43.604Z
+updated: 2024-11-01T17:23:08.638Z
 tags:
   - facebook
 categories:
@@ -39,15 +39,22 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
  Talking about other metrics, the monthly active users saw a rise of two million—which is again negligible. Meta’s revenue grew from $29.01 billion in Q3 2021 to $33.67 billion in the next quarter. But the lower-than-expected net income and forecast caused Meta's share price to plunge.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Mark Zuckerberg's Statement on Losing Users
 
 ![mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Credits:[Anthony Quintano via Flickr](https://www.flickr.com/photos/quintanomedia/47774197691)
 
@@ -57,22 +64,15 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 
  But TikTok is not the only[reason for Facebook's declining users](https://www.makeuseof.com/why-facebook-is-losing-users/) . Lack of interest among the younger population, no markets to expand into, and its controversial privacy and tracking policies have all contributed to this trend.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Is Facebook’s End Near?
 
 ![facebook logo fallen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-logo-fallen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  A negligibly-small drop in the number of daily users, and that too for the first time, doesn’t mean that Facebook will fade away anytime soon. The Meta’s expansion into the metaverse will definitely help its flagship product, Facebook.
@@ -86,10 +86,10 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
  As it aggressively promotes Horizon Worlds, VR devices, and Reels, Facebook might regain the interest of young adults—a step which is essential to increase its user base. Moreover, a change in its privacy program and ads infrastructure can also help the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's User Loss Is Not as Big as It Seems
@@ -115,20 +115,18 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-win10-screen-grabber-top-tier-video-recorder/"><u>[New] 2024 Approved Win10 Screen Grabber - Top-Tier Video Recorder</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-expertly-curated-8-best-4k-blu-ray-players-guide/"><u>[New] Expertly Curated 8 Best 4K Blu-Ray Players Guide</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-guard-your-camera-top-10-shields-reviewed/"><u>[New] Guard Your Camera - Top 10 Shields Reviewed</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-jumpstart-with-vrecorder-easy-installation-walkthrough/"><u>2024 Approved Jumpstart with VRecorder Easy Installation Walkthrough</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-architectural-essence-of-facebook/"><u>Decoding the Architectural Essence of Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/delay-in-actions-by-facebooks-regulatory-authority/"><u>Delay in Actions by Facebook's Regulatory Authority</u></a></li>
-<li><a href="https://facebook.techidaily.com/detecting-irony-facebooks-latest-policy/"><u>Detecting Irony: Facebook's Latest Policy</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-decorum-validity-in-banning-trump-short-term-intervention/"><u>Digital Decorum: Validity in Banning Trump, Short-Term Intervention</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-docks-top-20-platforms-for-people-connecting-online/"><u>Digital Docks: Top 20 Platforms for People Connecting Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-reality-unbound-facebooks-pursuit-of-the-metaverse/"><u>Digital Reality Unbound: Facebook's Pursuit of the Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-campaigns-8-crowdfire-features-worth-mastering/"><u>Elevate Your Campaigns: 8 Crowdfire Features Worth Mastering</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-for-security-reasons-from-apple-iphone-12-mini-find-the-best-solution-here-by-drfone-ios/"><u>In 2024, Apple ID Locked for Security Reasons From Apple iPhone 12 mini? Find the Best Solution Here</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/review-embrace-an-energetic-lifestyle-in-style-with-garmins-vivomove-hr-watch/"><u>Review: Embrace an Energetic Lifestyle in Style with Garmin's Vivomove HR Watch</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/secure-mp3-conversion-of-live-skype-talks-for-2024/"><u>Secure MP3 Conversion of Live Skype Talks for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-guide-to-building-excel-budget-templates-for-tracking-revenue-and-costs/"><u>Step-by-Step Guide to Building Excel Budget Templates for Tracking Revenue and Costs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-influencers-blueprint-five-steps-to-proven-marketing-success/"><u>[Updated] 2024 Approved The Influencer's Blueprint Five Steps to Proven Marketing Success</u></a></li>
+<li><a href="https://fox-where.techidaily.com/comprehensive-package-specification-template-collection/"><u>Comprehensive Package Specification Template Collection</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/crafting-a-perfect-power-pair-lipo-and-drones/"><u>Crafting a Perfect Power Pair LiPo and Drones</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-top-sportsmen-reject-cyber-abuse-on-digital-networks/"><u>England's Top Sportsmen Reject Cyber Abuse on Digital Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-facebooks-new-gesture-based-interface/"><u>Examining Facebook's New Gesture-Based Interface</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-lock-apps-on-oppo-find-x6-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Oppo Find X6 to Protect Your Individual Information</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-realme-11-proplus-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Realme 11 Pro+ Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-lava-agni-2-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Lava Agni 2 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-triad-the-social-titans-among-us/"><u>Meta’s Triad: The Social Titans Among Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-the-way-you-connect-and-navigate-on-facebook/"><u>Revolutionizing The Way You Connect & Navigate on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sever-instagrams-ties-with-fb-a-compreenasional-approach/"><u>Sever Instagram's Ties with FB: A Compreenasional Approach</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-6-largest-and-most-advanced-language-ai-models/"><u>Top 6 Largest and Most Advanced Language AI Models</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-social-networking-goes-south-the-top-5-times-facebook-failed-its-audience/"><u>When Social Networking Goes South: The Top 5 Times Facebook Failed Its Audience</u></a></li>
 </ul></div>
 

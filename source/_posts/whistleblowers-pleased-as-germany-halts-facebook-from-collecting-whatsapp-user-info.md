@@ -1,7 +1,7 @@
 ---
 title: Whistleblowers Pleased as Germany Halts Facebook From Collecting WhatsApp User Info
-date: 2024-10-20T16:49:21.551Z
-updated: 2024-10-26T18:55:36.163Z
+date: 2024-10-26T17:41:34.965Z
+updated: 2024-11-01T16:38:50.212Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -56,10 +56,10 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -83,22 +83,18 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-mastering-streams-weighing-xsplit-against-obs-capabilities/"><u>[Updated] Mastering Streams Weighing XSplit Against OBS Capabilities</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-reveals-insightful-policies-at-new-center-launch/"><u>Facebook Reveals Insightful Policies at New Center Launch</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-audio-issues-how-to-restore-sound-on-your-hp-laptop-running-windows-11/"><u>Fixing Audio Issues: How to Restore Sound on Your HP Laptop Running Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/germanys-stand-on-privacy-no-more-facebook-snooping-on-whatsapp-users/"><u>Germany's Stand on Privacy: No More Facebook Snooping on WhatsApp Users</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-samsung-galaxy-s23-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Samsung Galaxy S23</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-vivo-y27s-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Vivo Y27s Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-x100-pro-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Vivo X100 Pro Phone without Google Account?</u></a></li>
-<li><a href="https://facebook.techidaily.com/influencers-at-the-forefront-of-covid-19-mythology/"><u>Influencers at the Forefront of Covid-19 Mythology</u></a></li>
-<li><a href="https://facebook.techidaily.com/introducing-virtual-reality-to-messaging-on-fb-platform/"><u>Introducing Virtual Reality to Messaging on FB Platform</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/leading-cryptocurrency-topics-for-chatai/"><u>Leading Cryptocurrency Topics for ChatAI</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-security-with-two-factor-authentication-on-major-mail-providers/"><u>Maximizing Security with Two-Factor Authentication on Major Mail Providers</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-us-officially-verified-sign-up-now/"><u>Meta US: Officially Verified Sign-Up Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-and-resolving-top-11-social-media-faux-pas-on-facebook/"><u>Navigating & Resolving Top 11 Social Media Faux Pas on Facebook</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-tips-adding-captions-in-youtube-videos/"><u>Quick Tips Adding Captions in YouTube Videos</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/redefining-home-management-ai-driven-by-gpts-touch/"><u>Redefining Home Management: AI-Driven by GPT's Touch</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-most-empowering-movie-picks-to-spark-motivation-in-every-viewer/"><u>The Most Empowering Movie Picks to Spark Motivation in Every Viewer</u></a></li>
-<li><a href="https://facebook.techidaily.com/unified-media-presence-transferring-instagram-reels-to-facebook-feed/"><u>Unified Media Presence: Transferring Instagram Reels to Facebook Feed</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-exclusive-mp4-uploader-to-facebook-platform/"><u>[Updated] 2024 Approved Exclusive MP4 Uploader to Facebook Platform</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-pursuit-of-perfection-wincams-listed-here/"><u>[Updated] In Pursuit of Perfection WinCams Listed Here</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-proiphone-close-up-techniques-unlocking-creative-vision/"><u>2024 Approved Proiphone Close-Up Techniques Unlocking Creative Vision</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-smb-video-marketing-success-factors/"><u>2024 Approved SMB Video Marketing Success Factors</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-stop-personalized-recommendations-for-podcasts-on-spotify/"><u>2024 Approved Stop Personalized Recommendations for Podcasts on Spotify</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/before-you-buy-think-about-these-screen-specs/"><u>Before You Buy, Think About These Screen Specs</u></a></li>
+<li><a href="https://facebook.techidaily.com/every-voice-heard-strategies-for-full-group-mentions-on-fb/"><u>Every Voice Heard: Strategies for Full Group Mentions on FB</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-asus-rog-phone-7-ultimates-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Asus ROG Phone 7 Ultimates Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-momentum-shifts-as-carolyn-leaves/"><u>Marketing Momentum Shifts as Carolyn Leaves</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-verification-are-the-benefits-justifiable/"><u>Meta Verification: Are The Benefits Justifiable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/syncopating-success-stories-facebook-and-spotifys-upcoming-boombox-feat/"><u>Syncopating Success Stories: Facebook & Spotify's Upcoming Boombox Feat</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-risks-lurking-in-entertainment-based-fb-quizzes/"><u>The Risks Lurking in Entertainment-Based FB Quizzes</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-governments-seek-to-curtail-the-power-of-technology-titans/"><u>Why Governments Seek to Curtail the Power of Technology Titans</u></a></li>
 </ul></div>
 

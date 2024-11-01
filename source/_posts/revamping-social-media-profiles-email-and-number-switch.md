@@ -1,7 +1,7 @@
 ---
 title: "Revamping Social Media Profiles: Email & Number Switch"
-date: 2024-10-24T19:09:22.837Z
-updated: 2024-10-26T18:40:30.813Z
+date: 2024-10-28T17:39:01.865Z
+updated: 2024-11-01T16:03:46.784Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 
  Another reason why you might want to update your email or phone number is if you are moving or traveling and will be using a new email address or phone number temporarily. Whatever the reason, updating your information is easy to do and can be done in just a few minutes.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Update Your Email Address and Phone Number on Facebook
 
  You can change the email address and phone number linked to your account on the Facebook app as well as the web version.
@@ -49,6 +56,19 @@ To change your email address on the Facebook app, follow these steps:
 ![screenshot showing personal information page on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-personal-information-page-on-facebook.jpg)
 
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -68,32 +88,18 @@ Here's how to do this:
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![screenshot showing how to remove phone number from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-how-to-remove-phone-number-from-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
 1. Tap on the email or phone number on the**Manage Contact Info** page.
 2. Hit**Remove** .
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Change Your Contact Details on the Facebook Website
 
@@ -105,10 +111,10 @@ Close
 3. Click on**Settings & Privacy** \>**Settings** .  
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![screenshot showing account settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-account-settings-page-on-Facebook.jpg)
@@ -118,20 +124,14 @@ Close
 ![screenshot showing edit email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-edit-email-address-page.jpg)
 6. Enter your new email address in the provided field and click**Add** or click on**Add your phone number?** .
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![screenshot showing enter email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-enter-email-address-page.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Updating Your Contact Information on Facebook
 
@@ -152,21 +152,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-elevate-your-design-game-with-our-guide-to-the-best-9-sites-showcasing-graffiti-typefaces/"><u>[Updated] 2024 Approved Elevate Your Design Game with Our Guide to the Best 9 Sites Showcasing Graffiti Typefaces</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-crafting-curls-and-contours-creating-a-personalized-beauty-channel/"><u>[Updated] In 2024, Crafting Curls and Contours Creating a Personalized Beauty Channel</u></a></li>
-<li><a href="https://facebook.techidaily.com/4-useful-ways-to-discover-new-facebook-groups/"><u>4 Useful Ways to Discover New Facebook Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/adjusting-public-friend-access-to-profile/"><u>Adjusting Public Friend Access to Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-system-for-unsolicited-pcemail-activity/"><u>Alert System for Unsolicited PC/Email Activity</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-online-presence-with-privacy-a-pre-deletion-guide/"><u>Balancing Online Presence with Privacy: A Pre-Deletion Guide</u></a></li>
-<li><a href="https://article-helps.techidaily.com/bone-chilling-image-builder/"><u>Bone-Chilling Image Builder</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-barriers-predicting-the-impact-of-upcoming-us-antitrust-laws/"><u>Breaking Down Barriers: Predicting the Impact of Upcoming US Antitrust Laws</u></a></li>
-<li><a href="https://facebook.techidaily.com/bringing-life-to-lines-crafting-your-personalized-facebook-cover-using-your-avatar/"><u>Bringing Life to Lines: Crafting Your Personalized Facebook Cover Using Your Avatar</u></a></li>
-<li><a href="https://facebook.techidaily.com/circumventing-the-masters-of-manipulative-media/"><u>Circumventing the Masters of Manipulative Media</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/come-codificare-file-av1-utilizzando-handbrake-isso-sui-supporto/"><u>Come Codificare File AV1 Utilizzando HandBrake - Isso Sui Supporto?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/flight-friendly-robot-categories/"><u>Flight-Friendly Robot Categories</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcome-roblox-error-277-top-troubleshooting-strategies/"><u>Overcome Roblox Error 277 : Top Troubleshooting Strategies</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-free-and-easy-the-best-3gp-video-rotators-for-2024/"><u>Updated Free and Easy The Best 3GP Video Rotators for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-dive-into-the-world-of-cosmetics-launching-a-beauty-channel/"><u>[Updated] In 2024, Dive Into the World of Cosmetics Launching a Beauty Channel</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-vibing-mix-melodies-into-status-updates/"><u>[Updated] In 2024, Vibing Mix Melodies Into Status Updates</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-seamless-adjustment-for-videos-and-graphics/"><u>[Updated] Seamless Adjustment for Videos and Graphics</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/2-mastering-the-restore-getting-back-lost-software-in-windows-11-systems/"><u>2. Mastering the Restore: Getting Back Lost Software in Windows 11 Systems</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-nubia-z50s-pro-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Nubia Z50S Pro</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Motorola Moto G Stylus (2023)? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensure-the-legitimacy-of-securityfacebookmailcom-as-a-security-email-service/"><u>Ensure the Legitimacy of @security@facebookmail.com as a Security Email Service</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/exploring-the-distinctions-of-srgb-and-rgb/"><u>Exploring the Distinctions of Srgb and Rgb</u></a></li>
+<li><a href="https://win-answers.techidaily.com/get-dota-2-running-smoothly-again-fix-crash-errors-with-these-tips/"><u>Get Dota 2 Running Smoothly Again - Fix Crash Errors with These Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-maintain-message-consistency-across-facebook-communities/"><u>How to Maintain Message Consistency Across Facebook Communities</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-realme-v30t-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Realme V30T Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-vk-a-compreranctive-view-of-russias-online-world/"><u>Inside VK: A Compreranctive View of Russia's Online World</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-economic-shift-how-creators-can-benefit-from-new-features/"><u>Instagram's Economic Shift: How Creators Can Benefit From New Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/intimate-listening-experience-spotify-miniplayer-in-fb/"><u>Intimate Listening Experience - Spotify Miniplayer in FB</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/maximizing-instagram-accessing-free-filters-via-searches/"><u>Maximizing Instagram Accessing Free Filters via Searches</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-delays-offering-end-to-end-encryption-by-default-until-2023-heres-why/"><u>Meta Delays Offering End-to-End Encryption by Default Until 2023: Here's Why</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-pursuit-the-race-for-global-ai-supremacy/"><u>Meta's Pursuit: The Race for Global AI Supremacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-settings-change-your-year-of-birth/"><u>Navigating Facebook Settings: Change Your Year of Birth</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-end-of-fbs-face-recognition-heres-why-meta-cut-ties/"><u>The End of FB's Face Recognition? Here’s Why Meta Cut Ties</u></a></li>
 </ul></div>
 

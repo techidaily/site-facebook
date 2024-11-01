@@ -1,7 +1,7 @@
 ---
 title: How to Use Messenger Without Facebook
-date: 2024-09-10T14:51:28.393Z
-updated: 2024-09-11T14:51:28.393Z
+date: 2024-10-29T17:11:56.036Z
+updated: 2024-11-01T16:53:44.406Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,10 @@ thumbnail: https://thmb.techidaily.com/4b4c42d86cbc7f5900b95e8b4af00dbe97e236701
 
  The two are obviously linked. But if you follow these simple steps, you can use Facebook Messenger without having an active Facebook account.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Why Use Facebook Messenger?
 
@@ -41,26 +38,6 @@ thumbnail: https://thmb.techidaily.com/4b4c42d86cbc7f5900b95e8b4af00dbe97e236701
 
  Your messages can be sent using end-to-end encryption too, although it's not by default, so[you need to know how to activate encryption](https://www.makeuseof.com/enable-encryption-facebook-messenger/) . This means that whatever you send can't be intercepted by third parties as messages are rendered unreadable. No one can see what you send while it's in transit between devices. It's the bare minimum you should expect from an instant messaging service these days.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Why Might You Avoid Using Facebook?
 
 ![download facebook messenger service app store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Messenger.jpg)
@@ -73,19 +50,12 @@ thumbnail: https://thmb.techidaily.com/4b4c42d86cbc7f5900b95e8b4af00dbe97e236701
 
  But even if you don't have Facebook, the company is still tracking you: shadow profiles detail the activities of those not using the app. Signing up to Messenger isn't going to make much of a difference, compared to the personal information users with Facebook accounts give up.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How to Download Messenger Without an Active Facebook Account
 
@@ -97,26 +67,6 @@ thumbnail: https://thmb.techidaily.com/4b4c42d86cbc7f5900b95e8b4af00dbe97e236701
 
 ![Facebook Messaging service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/The-Messenger-app-logo.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Next, you need to know how to sign up for Messenger.
 
  When you open the app for the first time, it will encourage you to log into a Facebook account using either your email address or phone number. Instead, click on**Create New Account** . This will redirect you into creating a Facebook account.
@@ -125,20 +75,6 @@ Next, you need to know how to sign up for Messenger.
 
  Okay, so now you have a Facebook account. That's not ideal, but you can do something about that at least. So what next?
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to Set Up Messenger Without an Active Facebook Account
 
  After you activate your account, there are still a few settings to finalize so that you can take full advantage of the app.
@@ -146,6 +82,13 @@ Next, you need to know how to sign up for Messenger.
  You could add a photo of yourself so that other users can recognize you. You can't do that within Messenger, however. It defaults to your Facebook profile picture, so you need to set that up within your account.
 
  How can you add friends to Messenger? You can do this via your Facebook account if you want to, but you'll probably need to explain to them that this is temporary, because you're only doing it to interact with them on Messenger. If you want to connect solely on Messenger via your smartphone, you can click on your profile picture in the top-left of your interface. Then go to**Phone contacts > Upload contacts** . This will sync the app with your phone book.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can You Have Messenger Without Using Facebook?
 
@@ -159,20 +102,6 @@ Next, you need to know how to sign up for Messenger.
 
 ![how to delete or deactivate account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Deactivate-Facebook.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Don't make this decision lightly. Before you begin the process, you need to know what it means when you[deactivate your Facebook account](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
 
  In a nutshell, deactivating Facebook still allows you time to think about whether you want to permanently delete your account (as your data is still stored, ready for reactivation). It also means Messenger will continue to work. When you deactivate Facebook, you should be asked if you want to continue using Messenger.
@@ -185,6 +114,13 @@ Next, you need to know how to sign up for Messenger.
 
  You'll see your two options with warnings about what happens when you follow either method. Select**Deactivate account** so you can still use Messenger on your smartphone.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Can I Use Messenger Without Facebook on my PC?
 
  Sadly, you can only use Messenger via your browser if you've got an active Facebook account.
@@ -193,25 +129,12 @@ Next, you need to know how to sign up for Messenger.
 
  If you're concerned about too many people finding you,[you can toggle your privacy settings](https://www.makeuseof.com/how-to-manage-facebook-privacy-settings-for-specific-posts/) . And if you're troubled by the amount of data Facebook can find out about you, you really need to limit what goes onto your Facebook page, including who can actually post to it and tag you in status updates or photos.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## And That's How You Can Download Messenger Without Using Facebook
 
@@ -219,14 +142,11 @@ Next, you need to know how to sign up for Messenger.
 
  Nonetheless, because this little loophole allows you to carry on using Messenger even after deactivating your main Facebook profile, it's not the end of the world.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -235,12 +155,24 @@ Next, you need to know how to sign up for Messenger.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-best-sonic-selection-software-for-android-users/"><u>[New] Best Sonic Selection Software for Android Users</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-counterclockwise-watch-how-to-unravel-your-youtube-sequence/"><u>[New] In 2024, Counterclockwise Watch How to Unravel Your YouTube Sequence</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-online-title-mastery-techniques-you-cant-ignore/"><u>[New] Online Title Mastery Techniques You Can't Ignore</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-trivia-titans-of-the-year-best-general-knowledge-sites/"><u>2024 Approved Trivia Titans of the Year - Best General Knowledge Sites</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/boost-site-analytics-with-cookiebot-technology-for-data-driven-decisions/"><u>Boost Site Analytics with Cookiebot Technology for Data-Driven Decisions</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/find-playstation-portable-details-launch-date-cost-features-and-purchase-locations/"><u>Find PlayStation Portable Details: Launch Date, Cost, Features & Purchase Locations</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Vivo Y28 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-5-revelations-for-novice-advertisers-to-master-promotion/"><u>In 2024, Top 5 Revelations for Novice Advertisers to Master Promotion</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-facts-alive-facebook-amps-up-against-hoaxes/"><u>Keeping Facts Alive: Facebook Amps Up Against Hoaxes</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-messages-potential-identity-swap/"><u>Masked Messages: Potential Identity Swap</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-social-screen-configuring-the-facebook-portal-tv/"><u>Master Your Social Screen: Configuring the Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-connectivity-with-smart-fb-followingunfollowing/"><u>Maximizing Connectivity with Smart FB Following/Unfollowing</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-direct-instagram-securement-delayed-till-2022/"><u>Messenger, Direct Instagram Securement Delayed 'Till 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-your-music-via-spotify-mini-on-facebook/"><u>Personalize Your Music via Spotify Mini on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-internet-engagement-a-guide-to-lessen-facebook-activity/"><u>Streamlining Internet Engagement: A Guide to Lessen Facebook Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-effortless-changes-to-boost-your-facebook-usage/"><u>Top 10 Effortless Changes to Boost Your Facebook Usage</u></a></li>
+</ul></div>
 

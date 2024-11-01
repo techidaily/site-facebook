@@ -1,7 +1,7 @@
 ---
 title: "Mastering Messenger Kids' Sleep Mode: A Step-by-Step Guide"
-date: 2024-10-22T21:34:06.423Z
-updated: 2024-10-26T20:29:31.164Z
+date: 2024-10-30T17:43:07.355Z
+updated: 2024-11-01T16:48:46.434Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
  For example, you can set the app's sleep time to start at 8pm on weekdays and 9pm on weekends.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Setting Up Sleep Mode on the Web App
 
  Follow these steps to enable Sleep Mode on using the browser version of the app:
@@ -50,10 +57,16 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
  Click Messenger Kids. It will navigate you to the child’s account connected with your Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 4. Tap on**Controls** to open a new menu with various settings.  
@@ -65,13 +78,6 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
  You can follow the same process if you are logged in from a Chromebook. Similarly, it doesn't matter whether you're using a Linux, Windows, or Mac computer. The steps are similar once you are logged in to Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Setting Up Sleep Mode on Mobile
 
  Another way to set up Sleep Mode is using the Facebook App on your Android or iPhone. For the mobile browser version, follow the steps mentioned above.
@@ -81,6 +87,13 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 ![Open Facebook Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Facebook-Menu.jpg)
 
 ![Open Messenger Kids on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Messenger-Kids-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Parental Controls on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Parental-Controls-on-Messenger-Kids.jpg)
 
@@ -101,10 +114,16 @@ Close
 **Download:** Facebook App on[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012755/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/facebook/id284882215) (Free)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why It’s a Good Idea to Use the Sleep Mode
@@ -112,28 +131,15 @@ Close
 There are several perks of using Messenger Kids Sleep Mode.
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Better Focus on Other Activities
 
 ![Children performing various activities](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Children-performing-various-activities.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Kids are energetic and should participate in physical activities and sports. With technology becoming common, it is hard to motivate them.
 
@@ -147,16 +153,16 @@ There are several perks of using Messenger Kids Sleep Mode.
 
  Allow your kids to cherish stress-free time by restricting their social media use. It helps them understand that the world does not revolve around social media only.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Reduce Worries About Social Media Addiction
 
  Social media addiction is a continuing concern for parents. Messenger Kids Sleep Mode allows your children to discover other sources of entertainment until the app is available for use again.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Encourages a Schedule
 
@@ -183,19 +189,14 @@ There are several perks of using Messenger Kids Sleep Mode.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-cutting-edge-tools-free-youtube-intro-creators-for-2024/"><u>[New] Cutting-Edge Tools Free YouTube Intro Creators for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-frozen-olympics-spectacular-2022-highlights/"><u>[New] Frozen Olympics Spectacular 2022 Highlights</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-comparative-study-dji-quadcopter-standard-edition/"><u>[Updated] In 2024, Comparative Study DJI Quadcopter Standard Edition</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-optimizing-viewing-experience-video-filters-for-all-screens-for-2024/"><u>[Updated] Optimizing Viewing Experience Video Filters for All Screens for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/expert-escapes-from-advanced-phishing-tactics/"><u>Expert Escapes From Advanced Phishing Tactics</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-oppo-reno-8t-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Oppo Reno 8T 5G Location by Number | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-incorporate-mp3s-into-presentation-decks/"><u>In 2024, Incorporate MP3s Into Presentation Decks</u></a></li>
-<li><a href="https://facebook.techidaily.com/instantaneously-transforming-your-virtual-visage-facebook-update/"><u>Instantaneously Transforming Your Virtual Visage: Facebook Update</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-e-commerce-buying-history-permanent/"><u>Is E-Commerce Buying History Permanent?</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/resolving-the-notorious-roblox-code-277-on-pc-comprehensive-guide/"><u>Resolving the Notorious Roblox Code 277 on PC – Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-case-for-social-detox-a-list-of-7-advantages/"><u>The Case for Social Detox: A List of 7 Advantages</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshoot-and-fix-continuous-crashes-in-halo-infinite-for-pc-players/"><u>Troubleshoot and Fix Continuous Crashes in Halo Infinite for PC Players</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/unlock-easy-paths-for-exceptional-yt-thumbnails-for-2024/"><u>Unlock Easy Paths for Exceptional YT Thumbnails for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-amazons-legal-stance-on-10k-fb-groups/"><u>Unveiling Amazon’s Legal Stance on 10K FB Groups</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-streamline-your-podcast-with-ease/"><u>[New] Streamline Your Podcast With Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-job-opportunities-build-the-future-with-facebooks-metaverse/"><u>Explore Job Opportunities: Build the Future with Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/gain-competitive-edge-essential-metadata-tools-for-success/"><u>Gain Competitive Edge: Essential Metadata Tools for Success</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/govees-clever-space-heater-discount-get-it-now-for-40-less-discover-more-on-zdnet/"><u>Govee's Clever Space Heater Discount: Get It Now for $40 Less! Discover More on ZDNET</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-mastering-screen-recordings-powerpoint-edition/"><u>In 2024, Mastering Screen Recordings PowerPoint Edition</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ls-showdown-tech-titans-clashing-in-real-time/"><u>In 2024, The LS Showdown Tech Titans Clashing in Real Time</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/minimizing-ai-illusions-leveraging-six-guiding-prompts/"><u>Minimizing AI Illusions: Leveraging Six Guiding Prompts</u></a></li>
+<li><a href="https://facebook.techidaily.com/mobile-revolution-facebook-launches-portable-portal/"><u>Mobile Revolution: Facebook Launches Portable Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-revised-meanings-of-facebooks-pages/"><u>Understanding Revised Meanings of Facebook's Pages</u></a></li>
 </ul></div>
 

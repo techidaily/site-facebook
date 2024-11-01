@@ -1,7 +1,7 @@
 ---
 title: "National Perspective on Platforms: Harmful Trends Prevail"
-date: 2024-10-21T17:58:55.845Z
-updated: 2024-10-26T20:24:33.905Z
+date: 2024-10-25T16:47:11.119Z
+updated: 2024-11-01T16:34:33.885Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Does Social Media Affect Your Life?
@@ -62,19 +62,19 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
@@ -100,20 +100,19 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discover-able.techidaily.com/1726028812276-movm4v/"><u>高速MOVからM4Vへの変換：快適で質の良いファイルコンバート手順</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-disruption-why-big-tech-faces-government-scrutiny/"><u>Decoding the Disruption: Why Big Tech Faces Government Scrutiny</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-silent-initiative-facebooks-smartwatch-plot/"><u>Decoding the Silent Initiative: Facebook's Smartwatch Plot</u></a></li>
-<li><a href="https://facebook.techidaily.com/delving-into-the-operation-of-photodna-technology/"><u>Delving Into the Operation of PhotoDNA Technology</u></a></li>
-<li><a href="https://facebook.techidaily.com/disappearing-into-the-digital-ether-fb-messaging/"><u>Disappearing Into the Digital Ether: FB Messaging</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-8-key-functions-to-elevate-your-campaign-strategy/"><u>Discover 8 Key Functions to Elevate Your Campaign Strategy</u></a></li>
-<li><a href="https://facebook.techidaily.com/discussing-the-case-for-allowing-users-to-have-separate-identities-within-a-singular-facebook-identity/"><u>Discussing the Case for Allowing Users to Have Separate Identities Within a Singular Facebook Identity</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-facebook-id-vs-displayed-name-variations/"><u>Dissecting Facebook ID vs Displayed Name Variations</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/gptzero-the-key-to-unmasking-ai-text-craftsmanship/"><u>GPTZero: The Key to Unmasking AI Text Craftsmanship</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-enable-usb-debugging-on-a-locked-oppo-reno-11f-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Oppo Reno 11F 5G Phone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-transform-your-typography-the-3d-text-technique-explained-psx/"><u>In 2024, Transform Your Typography The 3D Text Technique Explained PSX</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ordered-watchlist-experience-the-matrix-movies-rightly/"><u>Ordered Watchlist: Experience The Matrix Movies Rightly</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/professional-stabilizers-roundup-securing-smooth-cinematography/"><u>Professional Stabilizers Roundup Securing Smooth Cinematography</u></a></li>
-<li><a href="https://techtrends.techidaily.com/supercharge-your-iphone-cuirefresh-discover-esrs-new-qi2-magsafe-charger-range-with-revolutionary-cryoboost-tech-for-swift-heat-free-charging-insights/"><u>Supercharge Your iPhone Cuirefresh: Discover ESR's New Qi2 MagSafe Charger Range with Revolutionary CryoBoost Tech for Swift, Heat-Free Charging - Insights</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/toms-tech-reviews-a-comprehensive-guide-by-toms-hardware/"><u>Tom's Tech Reviews: A Comprehensive Guide by Tom's Hardware</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/our-gateway-to-success-with-a-bundle-of-50-free-adornments-in-2024/"><u>[New] Your Gateway to Success with a Bundle of 50 FREE Adornments, In 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-chronicles-of-youtube-the-ultimate-viral-list/"><u>[Updated] 2024 Approved Chronicles of YouTube The Ultimate Viral List</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-pinterest-video-downloader-guide-the-leading-no-cost-alternatives/"><u>[Updated] Pinterest Video Downloader Guide The Leading No-Cost Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-online-presence-facebook-vs-twitter-identities/"><u>Exploring Online Presence: Facebook vs Twitter Identities</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-app-tutorial-for-seamless-spotify-listening/"><u>Facebook App Tutorial for Seamless Spotify Listening</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-samsung-galaxy-a14-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Samsung Galaxy A14 5G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-navigate-the-complex-world-of-fb-friendship-changes/"><u>How To Navigate The Complex World of FB Friendship Changes</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-s23-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy S23 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-ultimate-guide-to-selecting-from-the-top-9-free-youtube-tools/"><u>In 2024, The Ultimate Guide to Selecting From the Top 9 FREE YouTube Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-blueprint-to-bar-private-images-online/"><u>Meta's Blueprint to Bar Private Images Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/seize-profit-with-these-5-online-platform-strategies/"><u>Seize Profit with These 5 Online Platform Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryl-sandberg-and-social-media-dynamics/"><u>Sheryl Sandberg and Social Media Dynamics</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/simplify-repairing-your-devices-playback-failure-alarm-signal-problem/"><u>Simplify Repairing Your Device's 'Playback Failure Alarm Signal' Problem</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/tips-and-tricks-for-setting-up-your-lava-blaze-pro-5g-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Lava Blaze Pro 5G Phone Pattern Lock</u></a></li>
 </ul></div>
 

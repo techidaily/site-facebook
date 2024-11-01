@@ -1,7 +1,7 @@
 ---
 title: "The Next Evolution: Exploring Facebook's VR Frontier"
-date: 2024-10-20T18:02:24.891Z
-updated: 2024-10-26T18:07:44.800Z
+date: 2024-10-26T17:09:42.436Z
+updated: 2024-11-01T16:53:08.419Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  With most acquisitions done in private, it’s likely that this number is even higher. But why would Facebook want to spend so much to acquire companies from a variety of industries? While we don't know for sure, what we do know is that they can benefit from knowing customers, unlike other companies.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Effects of a Granular Customer Profile
@@ -49,6 +49,13 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Data Brokering and Targeted Ads
 
  When tech giants like Facebook create incredibly granular customer profiles, they don’t just have an idea of how you behave as a person. Companies can also understand, predict, and create trends for whole segments of a population.
@@ -56,19 +63,6 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  Related:[Reasons Why Facebook Is a Security and Privacy Nightmare](https://www.makeuseof.com/tag/facebook-security-privacy-nightmare/)
 
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
-
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Algorithmic Biases
 
@@ -79,10 +73,16 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  When it comes to social media, it’s important to remember that access to information on a curated newsfeed always comes with an agenda, even if it wasn’t the original intention.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Security Risks of Granular Data
@@ -94,10 +94,10 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  Because the regulation often inhibits progress, many would tout the lag of regulation around technology to be a boon. However, the regulation also works to protect end-users from exploitation, especially due to ignorance. For this reason, many data brokers think more about profit than they do about protecting their consumers.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## A Battle Among Giants
@@ -133,17 +133,18 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-dynamic-duo-wearable-and-mac-harmony/"><u>[Updated] 2024 Approved Dynamic Duo Wearable & Mac Harmony</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/20plus-funny-metaverse-memes-and-how-to-make-your-own-memes/"><u>20+ Funny Metaverse Memes and How to Make Your Own Memes</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-unlocking-secure-video-sharing-youtube-to-gmail-with-google-access/"><u>2024 Approved Unlocking Secure Video Sharing YouTube to Gmail with Google Access</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/best-3-oppo-reno-10-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Oppo Reno 10 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-novice-to-connoisseur-deciphering-social-media-symbolism/"><u>From Novice to Connoisseur: Deciphering Social Media Symbolism</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-intercept-text-messages-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>How to Intercept Text Messages on Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-zte-nubia-flip-5g-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset ZTE Nubia Flip 5G phone? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-implications-the-aftermath-of-facial-id-removal-on-social-media/"><u>Privacy Implications: The Aftermath of Facial ID Removal on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-stitching-piecing-together-profile-and-group-links/"><u>Social Stitching: Piecing Together Profile & Group Links</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-invisible-networker-eliminating-public-view-of-fb-stories/"><u>The Invisible Networker: Eliminating Public View of Fb Stories</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/weighing-up-your-llm-choices-local-edition/"><u>Weighing Up Your LLM Choices – Local Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-pauses-policy-change-rollout-beyond-may-15/"><u>WhatsApp Pauses Policy Change Rollout Beyond May 15</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-from-sketches-to-stakes-leading-platforms-turning-art-into-nfts/"><u>[Updated] From Sketches to Stakes Leading Platforms Turning Art Into NFTs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-funimate-pro-apk-review-and-how-to-guide/"><u>2024 Approved Funimate Pro APK Review and How-To Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-the-art-of-decreasing-decibents-a-guide-to-fading-out-sounds/"><u>2024 Approved Mastering the Art of Decreasing Decibents A Guide to Fading Out Sounds</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-the-errors-in-your-paradox-launcher-a-comprehensive-guide/"><u>Fixing the Errors in Your Paradox Launcher - A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-adolescent-security-in-the-world-of-social-media/"><u>Fortifying Adolescent Security in the World of Social Media</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-samsung-galaxy-s24-ultra-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Samsung Galaxy S24 Ultra Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-vivo-v27-pro-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Vivo V27 Pro Phones with/without a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-new-era-utilizing-soundmojis-in-chats/"><u>Navigating New Era: Utilizing Soundmojis in Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-digital-life-respond-to-a-stolen-fb-account/"><u>Protect Your Digital Life: Respond to a Stolen FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-content-development-for-social-media-success-with-ripl/"><u>Strategic Content Development for Social Media Success with Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-wristwatch-scheme-insights-on-facebooks-plan/"><u>The Hidden Wristwatch Scheme: Insights on Facebook’s Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-detectives-handbook-to-verify-identities/"><u>The Social Detective's Handbook to Verify Identities</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-sony-vegas-vs-adobe-premiere-which-one-is-better-in-2024/"><u>Updated Sony Vegas VS Adobe Premiere, Which One Is Better, In 2024</u></a></li>
 </ul></div>
 

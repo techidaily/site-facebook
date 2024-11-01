@@ -1,7 +1,7 @@
 ---
 title: "Soundwaves and Sociability: Facebook’s Upcoming Collaboration with Spotify"
-date: 2024-09-10T14:52:28.303Z
-updated: 2024-09-11T14:52:28.303Z
+date: 2024-10-27T17:17:14.549Z
+updated: 2024-11-01T16:57:08.550Z
 tags:
   - facebook
 categories:
@@ -17,27 +17,10 @@ thumbnail: https://thmb.techidaily.com/a830d2a24e442aebcbf388f14e166b1639967eaf0
 
  As Facebook expands into the world of audio, Facebook CEO Mark Zuckerberg hinted at a collaboration with Spotify. Project Boombox, the name of the upcoming integration, will allow users to listen to Spotify through Facebook.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Facebook and Spotify Team up on Project Boombox
 
@@ -53,25 +36,12 @@ thumbnail: https://thmb.techidaily.com/a830d2a24e442aebcbf388f14e166b1639967eaf0
 
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Audio Is Exploding, But Is It Here to Stay?
 
@@ -81,14 +51,11 @@ thumbnail: https://thmb.techidaily.com/a830d2a24e442aebcbf388f14e166b1639967eaf0
 
  With so many platforms attempting to create some kind of social audio experience, we can only wonder if it's even worth it. Will audio as a social medium really take off, or will each platform's efforts fall flat?
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -97,12 +64,26 @@ thumbnail: https://thmb.techidaily.com/a830d2a24e442aebcbf388f14e166b1639967eaf0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-optimize-your-social-media-videos-on-fb-with-the-right-ratio/"><u>[New] 2024 Approved Optimize Your Social Media Videos on FB with the Right Ratio</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-from-black-and-white-to-richness-embracing-hdrs-power/"><u>[New] In 2024, From Black and White to Richness Embracing HDR's Power</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-online-oasis-video-vault/"><u>[New] In 2024, Online Oasis Video Vault</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-secure-and-detailed-best-ways-to-document-fb-call-footage/"><u>[Updated] 2024 Approved Secure & Detailed Best Ways to Document FB Call Footage</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-the-boundaries-with-syma-x8c-flight/"><u>2024 Approved Exploring the Boundaries with Syma X8C Flight</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unique-conversation-starters-for-streaming/"><u>2024 Approved Unique Conversation Starters for Streaming</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-honor-play-40c-lock-screen-password-by-drfone-android/"><u>How To Change Honor Play 40C Lock Screen Password?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/how-to-counter-facebooks-instantaneous-deletion-of-videos-for-2024/"><u>How to Counter Facebook's Instantaneous Deletion of Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-your-photos-secret-facebooks-privacy-haven/"><u>Making Your Photos Secret: Facebook's Privacy Haven</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-discretion-in-social-media-building-an-exclusive-fb-group/"><u>Mastering Discretion in Social Media: Building an Exclusive FB Group</u></a></li>
+<li><a href="https://review-topics.techidaily.com/nokia-c210-music-recovery-recover-deleted-music-from-nokia-c210-by-fonelab-android-recover-music/"><u>Nokia C210 Music Recovery - Recover Deleted Music from Nokia C210</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconnecting-with-blocked-friends-on-fb/"><u>Reconnecting with Blocked Friends on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/reflecting-on-your-digital-footprints-before-a-clean-slate/"><u>Reflecting on Your Digital Footprints Before a Clean Slate</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/region-free-dvd-player-setup-enjoy-us-movies-in-the-uk-without-any-hassle/"><u>Region-Free DVD Player Setup: Enjoy US Movies in the UK Without Any Hassle</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-your-facebook-experience-avoid-these-14-schemes/"><u>Safeguard Your Facebook Experience: Avoid These 14 Schemes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-values-of-virtual-networks-top-9-findings/"><u>The Hidden Values of Virtual Networks: Top 9 Findings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-storm-ahead-for-facebook-news/"><u>The Storm Ahead for Facebook News</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-essential-crowdflower-tools-for-effective-marketing/"><u>Top 8 Essential CrowdFlower Tools for Effective Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-digital-tracings-a-detailed-examination-and-account-summary-on-fb/"><u>Uncovering Digital Tracings: A Detailed Examination and Account Summary on FB</u></a></li>
+</ul></div>
 

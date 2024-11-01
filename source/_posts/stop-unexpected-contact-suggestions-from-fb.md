@@ -1,7 +1,7 @@
 ---
 title: Stop Unexpected Contact Suggestions From FB
-date: 2024-10-24T19:34:00.101Z
-updated: 2024-10-26T18:10:10.596Z
+date: 2024-10-25T16:03:16.912Z
+updated: 2024-11-01T16:18:44.183Z
 tags:
   - facebook
 categories:
@@ -70,19 +70,25 @@ Close
 ![android screenshot showing facebook settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-facebook-settings-page.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![screenshot showing notification settings on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-notification-settings-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![screenshot showing people you may know alerts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-people-you-may-know-alerts-on-facebook.jpg)
@@ -105,40 +111,40 @@ Close
  Then, click on**Settings** .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 4. ![desktop screenshot showing facebook settings option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-settings-option.jpg)  
  Scroll down the left menu until you find**Notifications** . Select this.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 5. ![desktop screenshot showing facebook notification settings option-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-notification-settings-option-1.jpg)  
  Scroll down and click on the**People You May Know** option.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6. ![desktop screenshot showing facebook people you may know alerts option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-people-you-may-know-alerts-option.jpg)  
  You have the option to either turn off each type of notification (Push, Email, and SMS). You can also disable all the notifications by turning off the**Allow Notifications on Facebook** toggle.
-
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Once you've disabled this feature and these alerts, you should be able to navigate Facebook in peace. Unfortunately, while switching off alerts is permanent, you'll have to hide the friend suggestions box again when it reappears in your feed.
 
@@ -157,18 +163,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/nmatched-camera-and-recording-app-selection-on-iphones-and-androids-for-2024/"><u>[New] Unmatched Camera & Recording App Selection on iPhones and Androids for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-discovering-the-best-10-online-tools-for-vimeo-videos/"><u>[Updated] In 2024, Discovering the Best 10 Online Tools for Vimeo Videos</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-the-complete-haul-video-manual-from-shopping-to-screen-time/"><u>[Updated] In 2024, The Complete Haul Video Manual From Shopping to Screen Time</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-keys-to-protecting-personal-data-on-facebooks-network/"><u>5 Keys to Protecting Personal Data on Facebook's Network</u></a></li>
-<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Honor V Purse | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/break-up-with-spotify-remove-it-from-facebook/"><u>Break Up with Spotify: Remove It From Facebook</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-nokia-g42-5g-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Nokia G42 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/career-development-tips-integrating-facebook-into-your-plan/"><u>Career Development Tips: Integrating Facebook Into Your Plan</u></a></li>
-<li><a href="https://facebook.techidaily.com/connected-culture-facebooks-journey-to-meta-universe/"><u>Connected Culture: Facebook’s Journey to Meta Universe</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Google Pixel 8? | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/quick-quirks-of-professional-photo-editing-for-2024/"><u>Quick Quirks of Professional Photo Editing for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolve-your-dying-light-game-crash-issues-instantly/"><u>Resolve Your Dying Light Game Crash Issues Instantly</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/varieties-of-fb-video-screens-for-2024/"><u>Varieties of FB Video Screens for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-100-working-method-for-adding-link-to-tiktok-bio/"><u>[New] 2024 Approved 100% Working Method for Adding Link to TikTok Bio</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-bite-sized-tips-for-aspiring-video-editors/"><u>[New] 2024 Approved Bite-Sized Tips for Aspiring Video Editors</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-concept-to-reality-top-7-gadgets-for-metaverse-success/"><u>[New] From Concept to Reality Top 7 Gadgets for Metaverse Success</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-reimagining-anime-narratives-in-trending-tiktok-creations/"><u>[Updated] 2024 Approved Reimagining Anime Narratives in Trending TikTok Creations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-leaders-in-virtual-marvel-universe-creation/"><u>[Updated] Leaders in Virtual Marvel Universe Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-dull-to-dynamic-amplifying-your-groups-charisma/"><u>From Dull to Dynamic: Amplifying Your Group's Charisma</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-maven-ends-tenure-at-social-media-giant/"><u>Marketing Maven Ends Tenure at Social Media Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-personal-brand-designing-a-facebook-cover-with-yourself-as-the-star/"><u>Master Your Personal Brand: Designing a Facebook Cover with Yourself as the Star</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-reignites-trumps-fb-and-insta-access/"><u>Meta Reignites Trump’s FB & Insta Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-online-freedom-disconnecting-instagramfacebook/"><u>Pioneering Online Freedom: Disconnecting Instagram/Facebook</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-hevc-h265-on-samsung-galaxy-s24-ultra-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on Samsung Galaxy S24 Ultra, is it possible?</u></a></li>
+<li><a href="https://facebook.techidaily.com/regain-social-media-ground-bypassing-lost-phones-on-fb/"><u>Regain Social Media Ground: Bypassing Lost Phones on FB</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/sicherung-externer-datentrager-auf-google-drive-top-3-effektive-strategien/"><u>Sicherung Externer Datenträger Auf Google Drive: Top 3 Effektive Strategien</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synergy-achieved-upload-and-share-fb-stories-notebooks-to-top-sites/"><u>Social Synergy Achieved: Upload & Share FB Stories, Notebooks to Top Sites</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/synthesizing-mood-an-ode-to-trailer-tunes-for-2024/"><u>Synthesizing Mood An Ode to Trailer Tunes for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-and-solutions-for-dragon-quest-xi-crashes-a-complete-guide/"><u>Troubleshooting and Solutions for Dragon Quest XI Crashes: A Complete Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-sides-of-social-networking-private-faces-on-fb/"><u>Unseen Sides of Social Networking: Private Faces on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-if-meta-disrupts-europes-social-media-landscape/"><u>What If Meta Disrupts Europe’s Social Media Landscape?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Eliminating Facebook Push Notifications
-date: 2024-10-20T19:01:51.463Z
-updated: 2024-10-26T19:44:10.716Z
+date: 2024-10-31T16:01:42.684Z
+updated: 2024-11-01T17:29:30.322Z
 tags:
   - facebook
 categories:
@@ -50,13 +50,6 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
 
 ![facebook notification mark read](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-mark-read.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  To mark all of your Facebook notifications as read, follow the guide below:
 
 1. Head to**Facebook.com** and log into your account.
@@ -64,18 +57,18 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
 3. Click on the three horizontal dots.
 4. Select**Mark all as read** .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Turn Off Facebook Notifications
 
  Hopefully, the last two sections have helped you get your existing Facebook notifications under control. But that's only half of the battle. You need to make sure you're not getting pestered by all that notification spam in the future, otherwise, you'll quickly end up back in the same position.
 
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications as They Arrive
 
@@ -94,10 +87,10 @@ Follow the steps below to learn about the process on the web app:
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications by Category
@@ -132,10 +125,10 @@ Follow the steps below to learn about the process on the web app:
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -157,6 +150,13 @@ Close
 2. Select**Notifications** from the menu.
 3. Scroll down to**Facebook** and tap on the entry.
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## More Ways to Make Facebook Work for You
 
@@ -181,18 +181,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-realme-c33-2023-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Realme C33 2023 Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-samsung-galaxy-f14-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Samsung Galaxy F14 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/december-the-final-month-for-insta-threads/"><u>December: The Final Month for Insta Threads</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-online-deceit-dispelling-10-facebook-falsehoods/"><u>Decoding Online Deceit: Dispelling 10 Facebook Falsehoods</u></a></li>
-<li><a href="https://facebook.techidaily.com/deconstructing-power-dynamics-7-core-insights-from-social-media-papers/"><u>Deconstructing Power Dynamics: 7 Core Insights From Social Media Papers</u></a></li>
-<li><a href="https://facebook.techidaily.com/delayed-dictum-social-media-court-hesitates/"><u>Delayed Dictum: Social Media Court Hesitates</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-how-photodna-identifies-counterfeits/"><u>Demystifying How PhotoDNA Identifies Counterfeits</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/effective-strategies-to-overcome-finals-error-code-tfla0002-issues/"><u>Effective Strategies to Overcome Finals Error Code TFLA0002 Issues</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-xiaomi-14-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Xiaomi 14 Pro to iPhone | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/narrative-navigation-six-ways-to-employ-gpt-as-a-dungeon-mastering-ai/"><u>Narrative Navigation: Six Ways to Employ GPT as a Dungeon Mastering AI</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/troubleshoot-win-microphone-functionality/"><u>Troubleshoot Win Microphone Functionality</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/troubleshooting-tips-for-connecting-a-logitech-keyboard-in-windows-11-systems-that-wont-recognize-it/"><u>Troubleshooting Tips for Connecting a Logitech Keyboard in Windows 11 Systems That Won't Recognize It</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/king-the-vault-the-wealth-of-mr-beast-for-2024/"><u>Unlocking the Vault The Wealth of Mr. Beast for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-join-the-giggle-roll-and-tearful-talks-on-instagram-memes/"><u>[New] 2024 Approved Join the Giggle-Roll and Tearful Talks on Instagram Memes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-delicate-volume-modulation-using-lumafusions-features/"><u>[New] Delicate Volume Modulation Using Lumafusion's Features</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-quiet-curator-of-online-chronicles/"><u>[New] In 2024, Quiet Curator of Online Chronicles</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unveiling-the-secrets-to-dynamic-video-cover-design-in-facebook-space/"><u>[Updated] Unveiling the Secrets to Dynamic Video Cover Design in Facebook Space</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/t-mirrorless-cameras-for-vlogging/"><u>8 Best Mirrorless Cameras for Vlogging</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/from-funny-to-fascinating-best-reaction-video-apps/"><u>From Funny to Fascinating Best Reaction Video Apps</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-honor-play-8t-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Honor Play 8T?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-instagram-stories-a-step-by-step-polling-guide/"><u>In 2024, Mastering Instagram Stories A Step-by-Step Polling Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-online-spaces-for-seniors-sociability/"><u>Prime Online Spaces for Seniors' Sociability</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-consequences-of-incorporating-meta-ai-on-instagramfacebook/"><u>The Consequences of Incorporating Meta AI on Instagram/Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/track-us-target-ads-datas-new-frontier/"><u>Track Us, Target Ads: Data's New Frontier</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-photos-into-stereoscopic-delights-for-fb/"><u>Transforming Photos Into Stereoscopic Delights for FB</u></a></li>
 </ul></div>
 

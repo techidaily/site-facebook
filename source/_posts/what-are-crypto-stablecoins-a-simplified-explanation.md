@@ -1,7 +1,7 @@
 ---
 title: What Are Crypto Stablecoins? A Simplified Explanation
-date: 2024-10-23T19:46:50.775Z
-updated: 2024-10-26T17:01:30.974Z
+date: 2024-10-28T17:36:59.681Z
+updated: 2024-11-01T16:57:35.596Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ That's where stablecoins come in.
 
  Stablecoins are blockchain-based digital currencies just like Bitcoin or Ethereum, but they are designed to maintain a consistent price over time, usually by being pegged to the value of another currency or being backed by a trusted agency.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do Stablecoins Work?
 
  Volatility aside, there are a number of great use cases for cryptocurrencies. These include greater transaction transparency, security, and the potential privacy of users.
@@ -47,13 +54,6 @@ That's where stablecoins come in.
  Stablecoins try to maintain these benefits and bring benefits of their own, which we'll get into in a moment. However, stablecoins do this without bringing along all of the price volatility that makes other cryptocurrencies difficult and intimidating to use in regular transactions.
 
 ![Tether logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/Tether_full_logo_dm.png)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Image Credit: Tether
 
@@ -65,24 +65,18 @@ Image Credit: Tether
 
  Facebook's proposed Diem stablecoin (formerly Libra) would get around this issue in part by being backed by a basket of reserve currencies from around the world. If one or even a few of these assets experienced price instability, it would be checked by the stability of the other assets. That would allow Diem to maintain a more stable price than any individual asset backing the coin.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### CBDCs Are a Subset of Stablecoins
 
  When a government launches its own stablecoin, this class of stablecoin is called a "central bank digital currency" or "CBDC" for short. Right now, China is the only country with a CBDC, though India, the United Kingdom, the United States, and other countries have publicly considered the idea.
 
  While CBDCs would work similarly to existing cryptocurrencies for users, they would pose additional opportunities and obstacles for governments. We'll return to the idea of CBDCs in a moment.
-
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## More Stablecoin Examples and Use Cases
 
@@ -95,26 +89,26 @@ Image Credit: Tether
  While China uses its CBDC as a surveillance tool, U.S. Fed Chair Jerome Powell has said that the private nature of cryptocurrencies is a reason for the U.S. not to build a CBDC.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Stablecoins Could Provide Financial Infrastructure to the Unbanked
 
 ![usd coin logo smartphone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/usd-coin-logo-smartphone-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  On the other end of the spectrum, giving individuals more control over their money is a stated goal of cryptocurrencies in general and Diem specifically. Cryptocurrencies, including stablecoins, reduce a lot of barriers to entry for conventional banking.
 
  People without easy access to physical banks or who don't trust banking institutions could access secure financial services through stablecoins. Stablecoins other than CBDCs can be used by individuals as a store of value when their own local currency was in flux, as discussed above, or by people who live in areas where multiple currencies are used.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Stablecoins Improve Online Transactions
 
@@ -143,16 +137,16 @@ Image Credit: Tether
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/nveiling-the-secrets-of-youtube-video-dimensions-and-resolution-for-2024/"><u>[New] Unveiling the Secrets of YouTube Video Dimensions & Resolution for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-enabling-autoplay-youtube-videos-in-social-media-network/"><u>[Updated] In 2024, Enabling Autoplay Youtube Videos in Social Media Network</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-inside-spaces-weaving-in-the-essence-of-daylight/"><u>[Updated] Inside Spaces Weaving in the Essence of Daylight</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-unveiling-tiktoks-visual-makeover-techniques/"><u>2024 Approved Unveiling TikTok's Visual Makeover Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-covert-etiquette-in-facebooks-friend-request-culture/"><u>Deciphering the Covert Etiquette in Facebook's Friend Request Culture</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-policy-allowance-for-multiple-user-profiles-per-account/"><u>Decoding Facebook’s Policy: Allowance for Multiple User Profiles Per Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-functioning-of-facebooks-policy-monitor/"><u>Decoding The Functioning of Facebook's Policy Monitor</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-and-upgrade-hp-officejet-pro-8610-printer-drivers-compatible-with-windows-1087xpvista/"><u>Download & Upgrade HP OfficeJet Pro 8610 Printer Drivers: Compatible with Windows 10/8/7/XP/Vista</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-use-of-unfollowfollow-in-facebook-networking/"><u>Efficient Use of Unfollow/Follow in Facebook Networking</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/lighten-your-sentence-with-satire-ranking-funniest-facebook-detentions-for-2024/"><u>Lighten Your Sentence with Satire Ranking Funniest Facebook Detentions for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-fast-track-to-film-fame-easy-movie-creation-secrets/"><u>Updated In 2024, Fast Track to Film Fame Easy Movie Creation Secrets</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-secure-smooth-videos-selecting-premium-tripods-for-youtubers/"><u>[New] In 2024, Secure Smooth Videos Selecting Premium Tripods for YouTubers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-essential-knowledge-for-saving-app-activity/"><u>[Updated] In 2024, Essential Knowledge for Saving App Activity</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/effective-methods-for-responding-to-negative-youtube-feedback-for-2024/"><u>Effective Methods for Responding to Negative YouTube Feedback for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-metas-trusted-identity-in-america/"><u>Embrace Meta's Trusted Identity in America</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-improve-your-digital-television-signal-using-a-home-antenna/"><u>How to Improve Your Digital Television Signal Using a Home Antenna</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-communal-territories-now-on-facebook/"><u>Interactive Communal Territories Now on Facebook</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/s-playbook-the-path-to-earnings-on-youtube-for-2024/"><u>Joshi's Playbook The Path to Earnings on Youtube for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/superior-plot-strategies-across-diverse-cinematic-fields/"><u>Superior Plot Strategies Across Diverse Cinematic Fields</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-how-to-preventing-responses-on-your-social-media-update/"><u>The Ultimate How-To: Preventing Responses on Your Social Media Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-unspoken-etiquette-for-online-acquaintance-requests/"><u>Understanding Unspoken Etiquette for Online Acquaintance Requests</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleashing-the-power-of-hd-media-in-social-networks/"><u>Unleashing the Power of HD Media in Social Networks</u></a></li>
 </ul></div>
 

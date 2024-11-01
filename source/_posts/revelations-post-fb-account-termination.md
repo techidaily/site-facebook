@@ -1,7 +1,7 @@
 ---
 title: Revelations Post-FB Account Termination
-date: 2024-09-10T14:51:15.568Z
-updated: 2024-09-11T14:51:15.568Z
+date: 2024-10-27T16:08:34.273Z
+updated: 2024-11-01T16:08:21.914Z
 tags:
   - facebook
 categories:
@@ -19,51 +19,14 @@ thumbnail: https://thmb.techidaily.com/93116893fd34c4239c7adfcfb1ed2eb9afdd0b3ec
 
  However, there is another option. Rather than deleting Facebook, you can just deactivate your account. But what happens when you deactivate your Facebook account? If you deactivate Facebook, can you still use Messenger? And what does deleting Facebook mean in contrast to deactivating it?
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## What Is the Difference Between Deleting and Deactivating Facebook?
 
 ![deleting or deactivating facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/03/quitting-facebook.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  There's a difference between deleting and deactivating your Facebook account. They're not interchangeable terms.
 
@@ -93,26 +56,6 @@ thumbnail: https://thmb.techidaily.com/93116893fd34c4239c7adfcfb1ed2eb9afdd0b3ec
 
  If you still exist on Facebook, attempt to log back in, and then try to deactivate again. If this still doesn't work, you can[complain to Facebook](https://en-gb.facebook.com/help/reportlinks/) or take the next step: deletion. Before you do that, read on to find out what you need to do before deleting Facebook entirely.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Do My Comments Disappear if I Deactivate Facebook?
 
  If deactivation has worked, your posts on your own timeline won't be publicly visible, and your friends shouldn't be able to see them either. Your whole profile will have gone. But that doesn't mean comments you've made to others will disappear as well.
@@ -141,20 +84,6 @@ thumbnail: https://thmb.techidaily.com/93116893fd34c4239c7adfcfb1ed2eb9afdd0b3ec
 
  Check on Messenger; there could be a technical issue. You can't send a message to someone who has blocked you, and their profile picture will be replaced on any comments they've previously posted on your timeline.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Can I Still Use Messenger Without Facebook?
 
  You might worry that by deactivating Facebook, you won't be able to use the separate (but nonetheless connected) Messenger app. They're both owned by the same company and have the same contact list as a basis. It seems like Messenger cannot exist without its parent, and that used to be the case.
@@ -167,31 +96,18 @@ thumbnail: https://thmb.techidaily.com/93116893fd34c4239c7adfcfb1ed2eb9afdd0b3ec
 
  So can you still use Messenger if you've deleted Facebook? You used to be able to using a phone number, but that's changed: now, you can't use Messenger without a Facebook account, even if that account has been deactivated. So, if you delete Facebook, you're automatically deleting Messenger too.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Can People See My Messages if I Deactivate Facebook?
 
  Yes, you can still use Messenger, so it follows that your messages will appear after deactivating your account. In fact, when you press "Send," as long as you have internet access, the message will go straight to the recipient's inbox.
 
  However, if you delete Facebook, your previous messages will read "Facebook User". The recipient won't be able to respond. Incidentally, this is the same thing that happens if you block someone.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can You Reactivate a Facebook Account?
 
@@ -201,29 +117,23 @@ thumbnail: https://thmb.techidaily.com/93116893fd34c4239c7adfcfb1ed2eb9afdd0b3ec
 
 ![how much does facebook know about me](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-activity.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Can you reactivate a deleted Facebook account? You can, but it's more difficult. You'll need to have taken steps to prepare for your reactivation**before** deletion.
 
  The social network lets you download a copy of[all the data Facebook has stored about you](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) . That means you can get your account back up and running, although the process is a bit trickier than if you've merely deactivated it.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## What Happens to Tagged Photos After Deactivating Facebook?
 
@@ -237,32 +147,22 @@ thumbnail: https://thmb.techidaily.com/93116893fd34c4239c7adfcfb1ed2eb9afdd0b3ec
 
  Worried about an embarrassing photo? Don't want people identifying you even after deactivation or deletion? Don't forget that[you can manually remove tags](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) anyway—but do so before taking further steps with your account.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Should You Deactivate or Delete Facebook?
 
  If you're reading this because you're not sure whether to delete or deactivate Facebook, choose the latter and stick with Facebook. Why? Because you're clearly unsure about the decision. It's better to start with the non-nuclear option which will allow you to return one day. Deleting Facebook is the Scorched Earth approach, so only do so if you're 100 percent sure.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -271,12 +171,20 @@ thumbnail: https://thmb.techidaily.com/93116893fd34c4239c7adfcfb1ed2eb9afdd0b3ec
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-beyond-google-other-ar-sticker-solutions/"><u>[New] Beyond Google Other AR Sticker Solutions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/oost-your-youtube-presence-with-personalized-annotations-and-card-integration/"><u>[New] Boost Your YouTube Presence with Personalized Annotations and Card Integration</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/uilding-a-fanbase-with-youtube-streams/"><u>[New] Building a Fanbase with YouTube Streams</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/a-complete-guide-to-utilizing-ios-screenshot-feature-for-2024/"><u>A Complete Guide to Utilizing IO's Screenshot Feature for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/balancing-out-earbud-audio-find-out-why-youre-hearing-more-from-one-airpod-than-the-other/"><u>Balancing Out EarBud Audio: Find Out Why You're Hearing More From One AirPod Than the Other</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/capture-life-in-motion-top-mobile-cameras-for-steady-videos-for-2024/"><u>Capture Life in Motion Top Mobile Cameras for Steady Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/mical-microphones-catered-to-vloggers-for-2024/"><u>Economical Microphones Catered to Vloggers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-limit-who-can-see-your-facebook-posts-with-a-restricted-list/"><u>How to Limit Who Can See Your Facebook Posts With a Restricted List</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-impact-or-plateauing-at-facebook/"><u>Maximizing Impact or Plateauing at Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/pandemic-misguidance-12-prominent-personalities/"><u>Pandemic Misguidance: 12 Prominent Personalities</u></a></li>
+<li><a href="https://facebook.techidaily.com/process-to-notify-about-young-user-on-fb/"><u>Process to Notify About Young User on FB</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-pictures-after-samsung-galaxy-z-fold-5-has-been-deleted-by-fonelab-android-recover-pictures/"><u>Recover your pictures after Samsung Galaxy Z Fold 5 has been deleted.</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplify-your-web-browsing-with-fewer-targeted-promos/"><u>Simplify Your Web Browsing with Fewer Targeted Promos</u></a></li>
+</ul></div>
 

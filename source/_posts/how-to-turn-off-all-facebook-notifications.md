@@ -1,7 +1,7 @@
 ---
 title: How To Turn Off All Facebook Notifications
-date: 2024-10-22T22:10:39.869Z
-updated: 2024-10-26T21:44:51.648Z
+date: 2024-10-30T16:23:34.759Z
+updated: 2024-11-01T16:06:45.614Z
 tags:
   - facebook
 categories:
@@ -50,13 +50,6 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 
 ![facebook notification mark read](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-mark-read.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  To mark all of your Facebook notifications as read, follow the guide below:
 
 1. Head to**Facebook.com** and log into your account.
@@ -65,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 4. Select**Mark all as read** .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Turn Off Facebook Notifications
@@ -78,10 +71,10 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications as They Arrive
@@ -119,6 +112,19 @@ Follow the steps below to learn about the process on the web app:
 
  It's also worth scrolling to the very bottom of the list to the**How you receive notifications** section. In it, you can select which browser and email notifications you receive. You can choose to receive Facebook's suggested notifications if can't be bothered to customize everything—but it will probably still result in you getting too much spam.
 
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Stop Facebook Notifications Altogether
 
  You can't disable all types of Facebook notifications in the web app, but you can stop Facebook notifications entirely on Android and iOS.
@@ -142,13 +148,6 @@ Close
 5. Tap on**Notifications** .
 6. Slide the toggle next to**Show notifications** into the**Off** position.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Stop Facebook Notifications on iOS
 
  If you have an iOS device, follow these steps to stop Facebook notifications:
@@ -157,6 +156,13 @@ Close
 2. Select**Notifications** from the menu.
 3. Scroll down to**Facebook** and tap on the entry.
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
+
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## More Ways to Make Facebook Work for You
 
@@ -181,22 +187,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/7-simple-tips-to-protect-your-privacy-on-facebook/"><u>7 Simple Tips to Protect Your Privacy on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-tips-to-avoid-phishing-scams-on-facebook/"><u>8 Tips to Avoid Phishing Scams on Facebook</u></a></li>
-<li><a href="https://android-frp.techidaily.com/about-meizu-frp-bypass-by-drfone-android/"><u>About Meizu FRP Bypass</u></a></li>
-<li><a href="https://facebook.techidaily.com/app-trackings-waning-influence-among-iphone-users/"><u>App Tracking's Waning Influence Among iPhone Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-a-robust-online-community-with-ripl-techniques/"><u>Building a Robust Online Community with Ripl Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/collaborative-content-strategy-sharing-instagram-reels-across-platforms/"><u>Collaborative Content Strategy: Sharing Instagram Reels Across Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/constructing-an-individualized-facebook-emblem/"><u>Constructing an Individualized Facebook Emblem</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-for-dollars-tracking-trends-and-targets/"><u>Data for Dollars: Tracking Trends and Targets</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/easy-tips-for-organizing-your-workflow-with-slack-reminders/"><u>Easy Tips for Organizing Your Workflow with Slack Reminders</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/exploring-ai-limitations-with-gpt-3/"><u>Exploring AI Limitations with GPT-3</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719147619522-facebook-orders-judgment-for-trumps-prohibition/"><u>Facebook Orders Judgment for Trump's Prohibition</u></a></li>
-<li><a href="https://howto.techidaily.com/google-pixel-fold-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Pixel Fold Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Vivo Y100i Power 5G? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Apple iPhone SE? | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/1719164560814-top-4-gba-simulation-apps-for-apple-fans-and-gamers/"><u>Top 4 GBA Simulation Apps for Apple Fans and Gamers!</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-mkvtoolnix-for-macos-a-beginners-guide-to-video-editing/"><u>Updated 2024 Approved MKVtoolnix for macOS A Beginners Guide to Video Editing</u></a></li>
-<li><a href="https://techidaily.com/week-in-review-the-demise-of-netflixs-free-plan-and-enhanced-tech-solutions-for-iphones/"><u>Week in Review: The Demise of Netflix's Free Plan & Enhanced Tech Solutions for iPhones</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-youtube-short-mastery-from-idea-to-final-product/"><u>[New] YouTube Short Mastery From Idea to Final Product</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-top-rankings-decoded-is-pickups-editorivity-leading-android/"><u>[Updated] 2024 Approved Top Rankings Decoded Is PickUp's Editorivity Leading Android?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-unveiling-the-secrets-of-valheim-crop-cultivation/"><u>2024 Approved Unveiling the Secrets of Valheim Crop Cultivation</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-p40plus-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on P40+</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-global-tag-functionality-on-fb/"><u>Halt Global Tag Functionality on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/hold-your-breath-facebooks-regulators-stall-judgment/"><u>Hold Your Breath: Facebook's Regulators Stall Judgment</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-premiere-elements-not-for-you-try-these-10-exceptional-alternatives-instead/"><u>New Premiere Elements Not for You? Try These 10 Exceptional Alternatives Instead</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-profile-picture-for-facebook/"><u>Personalizing Your Profile Picture for Facebook</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/problemlosungen-unzugangliche-boot-festplatten-mit-windows-zum-ausfuhren-funf-ansatze/"><u>Problemlösungen - Unzugängliche Boot-Festplatten Mit Windows Zum Ausführen: Fünf Ansätze</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-intersection-of-online-networks-and-real-world-shopping/"><u>The Intersection of Online Networks and Real-World Shopping</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-vigilant-eye-seeing-through-fake-profiles-in-networks/"><u>The Vigilant Eye: Seeing Through Fake Profiles in Networks</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-best-image-to-video-converters-free-and-paid-options/"><u>Updated Best Image to Video Converters Free and Paid Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/vulnerabilities-in-cyber-social-networks/"><u>Vulnerabilities in Cyber Social Networks</u></a></li>
+<li><a href="https://win-blog.techidaily.com/windows-users-solve-your-steelseries-gg-engine-concerns-with-these-tips/"><u>Windows Users, Solve Your SteelSeries GG Engine Concerns With These Tips!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook's Ambitions in Physical Retail Spaces - What It Means For Us
-date: 2024-09-10T14:51:40.564Z
-updated: 2024-09-11T14:51:40.564Z
+date: 2024-10-25T16:17:22.232Z
+updated: 2024-11-01T16:28:03.845Z
 tags:
   - facebook
 categories:
@@ -19,45 +19,14 @@ thumbnail: https://thmb.techidaily.com/67b9a46edc93cc7d7ee3f65fbe7a823bf8c1214de
 
  The company is building physical stores in its bid to create a metaverse, but why retail? Apparently, Meta’s stores will focus on connected video hardware, from conferencing to Oculus VR.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Facebook May Be Opening Retail Stores Near You
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Facebook,[now known as Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , is discussing plans to build retail stores around the world. They will showcase the company’s virtual reality and augmented reality products, according to the[New York Times](https://www.nytimes.com/2021/11/05/technology/facebook-stores-meta-metaverse.html) , which claims to have seen supporting documents.
 
@@ -67,43 +36,23 @@ thumbnail: https://thmb.techidaily.com/67b9a46edc93cc7d7ee3f65fbe7a823bf8c1214de
 
  The stores may also showcase voice-activated sunglasses, developed in conjunction with Ray-Ban, that you can use to take photos and videos.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Why Facebook Could Open Retail Stores
 
 ![Oculus Quest 2 headset and controllers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Oculus-Quest-2.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Essentially, Meta wants you to hop onto its vision and buy into the concepts of virtual reality and augmented reality. The[New York Times](https://www.nytimes.com/2021/11/05/technology/facebook-stores-meta-metaverse.html) says the documents reveal that the focus of the retail stores is to make the world “more open and connected.”
 
@@ -119,19 +68,12 @@ thumbnail: https://thmb.techidaily.com/67b9a46edc93cc7d7ee3f65fbe7a823bf8c1214de
 
  And Meta’s plans for building these stores aren’t cast in stone. Because the project is still in development, there’s a possibility they may scrap it altogether.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Facebook Is Doubling Down on Its Plans to Build a Metaverse
 
@@ -141,14 +83,11 @@ thumbnail: https://thmb.techidaily.com/67b9a46edc93cc7d7ee3f65fbe7a823bf8c1214de
 
 ​​​​​
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,12 +96,17 @@ thumbnail: https://thmb.techidaily.com/67b9a46edc93cc7d7ee3f65fbe7a823bf8c1214de
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-firefoxs-leading-screen-snapshot-apps/"><u>[New] In 2024, Firefox's Leading Screen Snapshot Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unlocking-youtubes-full-potential-with-top-video-formats/"><u>[Updated] 2024 Approved Unlocking YouTube's Full Potential with Top Video Formats</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-fixed-frame-to-fluid-motion-live-photo-transformation/"><u>2024 Approved From Fixed Frame to Fluid Motion Live Photo Transformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-spotify-within-the-facebook-app-ecosystem/"><u>Embracing Spotify Within the Facebook App Ecosystem</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-from-tape-to-trending-seamless-mp3-to-youtube-transition/"><u>In 2024, From Tape to Trending Seamless MP3 to YouTube Transition</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-oppo-a38-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Oppo A38 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-privacy-settings-for-an-invisible-fb-presence/"><u>Mastering Privacy Settings for an Invisible Fb Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-your-facebook-account-post-code-loss/"><u>Recovering Your Facebook Account Post Code Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/sailing-smoothly-the-role-of-stability-coins-in-crypto/"><u>Sailing Smoothly: The Role of Stability Coins in Crypto</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-guide-17-premier-lights-and-cameras-for-2024/"><u>The Ultimate Guide 17 Premier Lights & Cameras for 2024</u></a></li>
+</ul></div>
 

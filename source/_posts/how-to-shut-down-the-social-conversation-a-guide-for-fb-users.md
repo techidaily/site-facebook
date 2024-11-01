@@ -1,7 +1,7 @@
 ---
 title: "How to Shut Down the Social Conversation: A Guide for FB Users"
-date: 2024-09-10T14:51:01.201Z
-updated: 2024-09-11T14:51:01.201Z
+date: 2024-10-28T16:01:59.348Z
+updated: 2024-11-01T16:35:17.454Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,10 @@ thumbnail: https://thmb.techidaily.com/4a4e8f7773cbb7ba2441b2203815dab13dab20d5c
 
  Let's find out how you can disable and manage the comment section of your Facebook post when it becomes necessary.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Things to Know About Turning Off Comments on Facebook
 
@@ -33,43 +30,9 @@ thumbnail: https://thmb.techidaily.com/4a4e8f7773cbb7ba2441b2203815dab13dab20d5c
 
  However, in a Facebook group where you are an admin, Facebook allows you to completely turn off comments on a post.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to Manage Comments on Your Personal Facebook Posts
 
  You can choose between using the Facebook mobile app on your phone or its web version on a PC to manage comments on your profile posts. This guide will show you how to do using both versions.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### How to Manage Comments on the Facebook App
 
@@ -79,19 +42,12 @@ thumbnail: https://thmb.techidaily.com/4a4e8f7773cbb7ba2441b2203815dab13dab20d5c
 
 ![screenshot showing how to manage comments on facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-comments-on-facebook-post.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Close
 
@@ -109,44 +65,17 @@ Close
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 * Click on**Settings and privacy > Settings > Privacy** .
 * Select**Public Posts** on the side menu.
 
 ![screenshot of general profile settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-general-profile-settings-page-1.JPG)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 * Click on**Public Post Comments** or the area next to it and select your preferred commenting audience, from**Public** ,**Friends of Friends** , or**Friends** .
 
@@ -154,27 +83,27 @@ Close
 
  And that's all you need to manage comments on your Facebook post.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to Disable Post Comments in a Facebook Group
 
  Unlike personal posts, Facebook allows group administrators to completely disable the comment section of a post in a Facebook group. To do this, follow these steps:
 
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -192,14 +121,11 @@ Close
 
  A similar rule applies to groups, if you're not sharing something that requires input from other members, you can simply turn off commenting on the post with the steps shared above.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -208,12 +134,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-converting-insta-videos-to-mp3-a-comprehensive-overview/"><u>[New] In 2024, Converting Insta Videos to MP3 - A Comprehensive Overview</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-acid-pro-overview-plus-best-software-match-ups/"><u>[Updated] ACID Pro Overview + Best Software Match-Ups</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-navigating-digital-memory-lane-with-backward-image-scans-facebook-for-2024/"><u>[Updated] Navigating Digital Memory Lane with Backward Image Scans (Facebook) for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-download-mastery-securing-the-livestream-lifeline/"><u>2024 Approved Download Mastery Securing the Livestream Lifeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-content-policies-on-facebooks-white-list/"><u>Exploring Content Policies on Facebook's White List</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-an-unexpected-setback-from-ios-145/"><u>Facebook Faces an Unexpected Setback From iOS 14.5</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-regain-fb-log-in-without-prior-generated-codes/"><u>How to Regain FB Log In Without Prior Generated Codes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-huawei-nova-y71-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Huawei Nova Y71?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-efficient-broadcast-techniques-incorporating-youtube-loops-on-tv/"><u>In 2024, Efficient Broadcast Techniques Incorporating YouTube Loops on TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-fbs-facial-recognition-systema-detailed-analysis/"><u>Meta Drops FB's Facial Recognition System—A Detailed Analysis</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/quickcapture-for-windows-ultimate-for-2024/"><u>QuickCapture for Windows Ultimate for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/score-big-with-these-11-best-free-mobile-word-games/"><u>Score Big with These 11 Best Free Mobile Word Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-disengagement-for-a-focused-facebook-feed/"><u>Strategic Disengagement for a Focused Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-podcasts-of-22-comprehensive-review-and-ratings/"><u>Top Podcasts of '22 - Comprehensive Review & Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrecy-of-facebook-chats/"><u>Unveiling the Secrecy of Facebook Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-made-the-biggest-impact-top-podcasts-from-22/"><u>What Made the Biggest Impact: Top Podcasts From '22</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-aid-unlocking-essential-assistive-tech/"><u>Windows Aid: Unlocking Essential Assistive Tech</u></a></li>
+</ul></div>
 

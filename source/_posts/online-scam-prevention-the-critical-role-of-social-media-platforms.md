@@ -1,7 +1,7 @@
 ---
 title: "Online Scam Prevention: The Critical Role of Social Media Platforms"
-date: 2024-09-10T14:51:59.336Z
-updated: 2024-09-11T14:51:59.336Z
+date: 2024-10-25T17:06:47.580Z
+updated: 2024-11-01T17:05:51.213Z
 tags:
   - facebook
 categories:
@@ -17,27 +17,10 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
 
  According to a report by consumer watchdog Which?, big tech companies such as Facebook and Google aren't doing enough to prevent scam advertisements on their platforms.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
 
@@ -55,19 +38,12 @@ Adam French, Consumer Rights Expert at Which?, said:
 
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## The Response by Facebook and Google
 
@@ -87,14 +63,11 @@ Facebook further stated:
 
  While Facebook and Google claim to be doing their part to battle bad ads, the report by Which? suggests that the opposite is true.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -103,12 +76,23 @@ Facebook further stated:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-explore-better-than-sharex-a-guide-for-2024/"><u>[Updated] Explore Better Than ShareX - A Guide for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-preferred-speech-to-text-ipad-apps-3-for-2024/"><u>[Updated] Preferred Speech-to-Text iPad Apps #3 for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-the-7-best-fps-games/"><u>[Updated] The 7 Best Fps Games</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-oppo-a78-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-security-standards-on-fb-profile/"><u>Elevating Security Standards on FB Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-alerting-about-child-users-in-virtual-spaces/"><u>Guidelines for Alerting About Child Users in Virtual Spaces</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-nokia-g42-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Nokia G42 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/mastering-iphone-xs-identity-verification-face-id-repair/"><u>Mastering iPhone X's Identity Verification Face ID Repair</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconsidering-ties-unfriending-someone-from-fb/"><u>Reconsidering Ties: Unfriending Someone From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/reject-the-auto-suggestions-on-social-platforms/"><u>Reject the Auto-Suggestions on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-mastery-nurturing-professional-client-relations-on-fb/"><u>Social Media Mastery: Nurturing Professional Client Relations on FB</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-whispers-predicting-facebooks-woes/"><u>The Silent Whispers Predicting Facebook's Woes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-strategy-for-departing-facebook-communities/"><u>The Strategy for Departing Facebook Communities</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/twilight-tactics-capturing-the-best-in-low-light-portraits/"><u>Twilight Tactics Capturing the Best in Low Light Portraits</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/zestful-user-sign-up-routine/"><u>Zestful User Sign-Up Routine</u></a></li>
+</ul></div>
 

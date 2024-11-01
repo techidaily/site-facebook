@@ -1,7 +1,7 @@
 ---
 title: WhatsApp Multi-Device Support Is Coming, Zuckerberg Confirms
-date: 2024-09-10T14:51:06.734Z
-updated: 2024-09-11T14:51:06.734Z
+date: 2024-10-31T16:06:07.332Z
+updated: 2024-11-01T16:59:01.678Z
 tags:
   - facebook
 categories:
@@ -17,27 +17,10 @@ thumbnail: https://thmb.techidaily.com/230adad01721806c33e8b8bec3c60db44af37ad23
 
  WhatsApp has acknowledgd that it's working on letting you link up to four different devices to the same account, a feature that could finally pave the way to a native iPad app.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## WhatsApp and Facebook CEOs Confirm New Messaging Features Are in the Works
 
@@ -49,19 +32,12 @@ One of the messages from Zuckerberg reads as follows:
 
  WABetaInfo has made a name for itself by reverse engineering WhatsApp's beta releases in order to unearth evidence of unannounced and unreleased features. This has got to be the first time Zuckerberg has reached out to a blog to share what's coming to WhatsApp.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## WhatsApp to Gain Multi-Device Support Soon
 
@@ -75,19 +51,12 @@ One of the messages from Zuckerberg reads as follows:
 
  Multi-device support will be rolled out in a public WhatsApp beta within two months so people will be able to try out the feature ahead of launch. Zuckerberg has said that Facebook will consider opening up the WhatsApp beta to some more iOS users soon.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Is WhatsApp Working on an iPad App?
 
@@ -100,14 +69,11 @@ One of the messages from Zuckerberg reads as follows:
 
 [WhatsApp recently rolled out disappearing messages](https://www.makeuseof.com/whatsapp-disappearing-mode-test/) in any chat thread on the iOS and Android app. With the new disappearing mode, Zuckerberg says, the WhatsApp experience "basically becomes ephemeral" as it turns on disappearing messages in all chat threads.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -116,12 +82,26 @@ One of the messages from Zuckerberg reads as follows:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-ultimate-budget-friendly-gopro-adds/"><u>[New] In 2024, Ultimate Budget-Friendly GoPro Adds</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-epic-sound-stories-and-dialogues/"><u>[Updated] Epic Sound Stories and Dialogues</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-building-a-brand-on-fb-covers-that-speak-volumes/"><u>[Updated] In 2024, Building a Brand on FB Covers that Speak Volumes</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-htc-u23-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-messaging-experience-with-new-sounds-on-messenger/"><u>Elevating Messaging Experience with New Sounds on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-social-sweep-effective-tools-to-manage-your-online-communities/"><u>Facebook's Social Sweep: Effective Tools to Manage Your Online Communities</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-itel-p40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/gaming-enthusiasts-guide-samsung-q60r-series-qled-4k-smart-tv-comprehensive-review/"><u>Gaming Enthusiasts' Guide: Samsung Q60R Series QLED 4K Smart TV - Comprehensive Review</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/image-guide-to-install-and-connect-canon-printers/"><u>Image Guide to Install and Connect Canon Printers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-ideal-strategies-for-noiseless-filming/"><u>In 2024, Ideal Strategies for Noiseless Filming</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/learn-to-record-save-and-share-youtube-content-a-cost-free-approach/"><u>Learn to Record, Save, & Share YouTube Content A Cost-Free Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/leverage-key-meta-tools-to-succeed-in-your-business/"><u>Leverage Key META Tools to Succeed in Your Business</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-the-social-network-a-data-tale/"><u>Life without The Social Network: A Data Tale</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-visuals-vault-assembling-your-artistic-facebook-display/"><u>Online Visuals Vault: Assembling Your Artistic Facebook Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/retracing-steps-my-initial-leap-into-social-media/"><u>Retracing Steps: My Initial Leap Into Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-evolution-facebooks-new-approach-to-business-marketing/"><u>Social Media Evolution: Facebook's New Approach to Business Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-fortunes-5-innovative-revenue-ideas-for-ig-and-facebook/"><u>Social Media Fortunes: 5 Innovative Revenue Ideas for IG & Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/update-alert-simplify-how-you-engage-on-facebook-feed/"><u>Update Alert! Simplify How You Engage on Facebook Feed</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/vypravienie-s-ziskom-najlepsich-napojov-klic-aktivity-provideoeditace-zretelne-otvorene/"><u>Vyprávienie S Ziskom Najlepších Nápojov: Klíč Aktivity ProVideoEditace Zreteľne Otvorene</u></a></li>
+</ul></div>
 

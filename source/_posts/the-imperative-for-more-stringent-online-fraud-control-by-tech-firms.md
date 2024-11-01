@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2024-10-21T21:06:26.369Z
-updated: 2024-10-26T18:16:44.324Z
+date: 2024-10-25T17:05:26.496Z
+updated: 2024-11-01T16:46:39.789Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -78,20 +78,17 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-10-indispensable-instagram-video-editing-apps-for-marketers/"><u>[Updated] 10 Indispensable Instagram Video Editing Apps for Marketers</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-transcribing-spoken-words-in-minutes-using-auto-transcribe-and-office-suite-tools/"><u>[Updated] In 2024, Transcribing Spoken Words in Minutes Using Auto-Transcribe and Office Suite Tools</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-capture-every-click-essential-screen-recorders-for-modern-browsers/"><u>2024 Approved Capture Every Click Essential Screen Recorders for Modern Browsers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-how-to-shoot-vertical-panorama-photos-with-your-mobile-phone/"><u>2024 Approved How to Shoot Vertical Panorama Photos with Your Mobile Phone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-mastering-the-art-of-live-cricket-livestreams/"><u>2024 Approved Mastering the Art of Live Cricket Livestreams</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-benefits-of-sleep-mode-in-messenger-kids/"><u>Deciphering the Benefits of Sleep Mode in Messenger Kids</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-fortune-unites-with-who-in-health-crisis-funding/"><u>Digital Fortune Unites with WHO in Health Crisis Funding</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-realities-await-3-concerns-of-facebooks-metaverse/"><u>Digital Realities Await - 3 Concerns of Facebook's Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/does-shunning-facial-identification-compromise-facebook-user-protection/"><u>Does Shunning Facial Identification Compromise Facebook User Protection?</u></a></li>
-<li><a href="https://facebook.techidaily.com/double-tap-deception-verifying-profiles-authenticity/"><u>Double-Tap Deception: Verifying Profiles' Authenticity</u></a></li>
-<li><a href="https://facebook.techidaily.com/earn-prestige-point-paid-metas-badge/"><u>Earn Prestige Point: Paid Metas Badge</u></a></li>
-<li><a href="https://facebook.techidaily.com/effortless-integration-of-new-users-in-fb-chat/"><u>Effortless Integration of New Users in FB Chat</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-lava-blaze-2-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Lava Blaze 2 | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-peculiar-pratfalls-memes-tailored-for-the-perfect-moment/"><u>In 2024, Peculiar Pratfalls Memes Tailored for the Perfect Moment</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/quick-fixes-restoring-internet-access-to-your-microsoft-surface-computing-device/"><u>Quick Fixes: Restoring Internet Access to Your Microsoft Surface Computing Device</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-preserving-the-pixels-how-to-download-animated-tweets-from-twitter/"><u>[New] In 2024, Preserving the Pixels How To Download Animated Tweets From Twitter</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-simplify-your-tech-life-capture-and-store-youtube-streaming-effortlessly/"><u>[New] Simplify Your Tech Life Capture and Store YouTube Streaming Effortlessly</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-swift-searches-for-abandoned-reddit-discussions/"><u>[Updated] Swift Searches for Abandoned Reddit Discussions</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-precision-videoplayers-for-high-definition-on-android/"><u>2024 Approved Precision Videoplayers for High Definition on Android</u></a></li>
+<li><a href="https://win11.techidaily.com/accelerated-action-overcoming-wwe-2k23-freezes-in-windows/"><u>Accelerated Action: Overcoming WWE 2K23 Freezes in Windows</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-realme-12-pro-5g-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Realme 12 Pro 5G to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-choices-at-the-click-of-a-button-for-fb-feeds/"><u>Making Choices at the Click of a Button for FB Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/post-deletion-reality-check-on-fb/"><u>Post-Deletion Reality Check on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-advent-of-advanced-moderation-systems-by-facebook/"><u>The Advent of Advanced Moderation Systems by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-vanishing-presence-in-messaging-apps/"><u>The Impact of Vanishing Presence in Messaging Apps</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-majority-of-french-users-top-five-francophone-states-analyzed/"><u>The Majority of French Users: Top Five Francophone States Analyzed</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-location-services-on-facebook-messenger/"><u>Unlock Location Services on Facebook Messenger</u></a></li>
 </ul></div>
 

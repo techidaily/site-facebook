@@ -1,7 +1,7 @@
 ---
 title: "Redefining Connectivity: From Facebook to Meta Horizon"
-date: 2024-10-24T17:56:58.355Z
-updated: 2024-10-26T18:13:18.342Z
+date: 2024-10-30T16:28:06.702Z
+updated: 2024-11-01T16:18:24.590Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
  By December 2005, Facebook had six million users. It also had several new features, including the infamous Facebook Wall and News Feed. In April 2006, Facebook was out on mobile, and in September, they made the platform available to everyone on the internet of age 13 or above.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2007–2009: The Inception of the Facebook Like Button
@@ -63,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2013–2015: Facebook Enters New Territories
 
 ![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
@@ -76,10 +83,10 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
  On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know[how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2016–2018: Controversies and Scandals
@@ -87,10 +94,10 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
@@ -107,13 +114,6 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
 
  Throughout 2019, Facebook paid several fines to various governments. And the year ended with yet another major security breach. In December,[Forbes](https://www.forbes.com/sites/johnbbrandon/2019/12/19/267-million-names-and-phone-numbers-leaked-online---and-theyre-all-from-facebook/?sh=3733ada35a6b) reported that account info of over 267 million Facebook users was leaked, including phone numbers and email addresses.
@@ -128,6 +128,13 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
 
  Fast-forward to 2022, and Meta has already spent billions of dollars trying to build the metaverse and make its VR headsets as technologically advanced as possible—all while eroding more than 70% of its stock value amid a global recession.
@@ -135,19 +142,6 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 What comes next? Massive layoffs.
 
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
-
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Meta Is in a Rough Place, But When Is It Not?
 
@@ -170,18 +164,22 @@ What comes next? Massive layoffs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-leveraging-zoom-for-high-quality-facebook-live-streams-for-2024/"><u>[Updated] Leveraging Zoom for High-Quality Facebook LIVE Streams for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-practices-for-bilingualmultilingual-content-on-fb/"><u>Best Practices for Bilingual/Multilingual Content on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/boost-your-brands-presence-8-superior-reasons-to-opt-for-a-business-page/"><u>Boost Your Brand's Presence: 8 Superior Reasons to Opt for a Business Page</u></a></li>
-<li><a href="https://facebook.techidaily.com/covid-fables-influencers-among-most-perpetuators/"><u>Covid Fables: Influencers Among Most Perpetuators</u></a></li>
-<li><a href="https://blog-min.techidaily.com/discover-the-13-leading-free-video-trimmers-how-to-effortlessly-edit-videos-online-today/"><u>Discover the 13 Leading Free Video Trimmers - How to Effortlessly Edit Videos Online Today!</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-the-issue-how-to-stop-beat-saber-from-continuously-crashing/"><u>Fixing the Issue: How to Stop Beat Saber From Continuously Crashing</u></a></li>
-<li><a href="https://article-posts.techidaily.com/from-novice-to-pro-expert-tips-for-spotifys-advertisers/"><u>From Novice to Pro Expert Tips for Spotify's Advertisers</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-infinix-hot-40i-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Infinix Hot 40i Phones? | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/overcoming-absence-of-color-in-game-recordings/"><u>Overcoming Absence of Color in Game Recordings</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/step-by-step-vsco-image-enhancement-for-2024/"><u>Step-by-Step VSCO Image Enhancement for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719145303400-stream-spotify-via-miniplayer-within-facebook/"><u>Stream Spotify via Miniplayer Within Facebook</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-motorola-edge-40-neo-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Motorola Edge 40 Neo IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unraveling-the-itunes-radio-download-process/"><u>Unraveling the iTunes Radio Download Process</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-1st-place-video-saver-download-anywhere-anytime/"><u>[New] In 2024, 1St Place Video Saver - Download Anywhere, Anytime</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-aviary-creator-searching-for-affordable-filters/"><u>[Updated] 2024 Approved Aviary Creator Searching for Affordable Filters</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-video-length-limit-every-details-you-need-to-know/"><u>[Updated] Instagram Video Length Limit - Every Details You Need to Know</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-replay-rare-relationship-recaps/"><u>[Updated] Replay Rare Relationship Recaps</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/easy-routines-for-preventing-vscode-freeze-on-w11/"><u>Easy Routines for Preventing VSCode Freeze on W11</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-social-networks-facebook-tests-b2b-news-feed-modifications/"><u>Enhancing Social Networks: Facebook Tests B2B News Feed Modifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-champions-worldwide-covid-19-relief-effort/"><u>Facebook Champions Worldwide COVID-19 Relief Effort</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-redefines-social-spaces-with-portable-portal-go/"><u>Facebook Redefines Social Spaces with Portable Portal Go</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-download-private-facebook-videos/"><u>How to Download Private Facebook Videos</u></a></li>
+<li><a href="https://win-forum.techidaily.com/how-to-enable-lan-magic-remotely-in-windows-10-and-11-a-comprehensive-guide/"><u>How To Enable LAN Magic Remotely in Windows 10 & 11: A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-best-iphone-selfie-gear-the-ultimate-compilation-8/"><u>In 2024, Best iPhone Selfie Gear - The Ultimate Compilation (#8)</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-switch-to-a-dimmer-interface-on-facebook/"><u>Instant Switch to a Dimmer Interface on Facebook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/macbook-pro-vs-ipad-pro-an-in-depth-comparison/"><u>MacBook Pro Vs. IPad Pro: An In-Depth Comparison</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-subtle-like-game-online/"><u>Navigating the Subtle Like Game Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/scoping-out-social-network-supporters/"><u>Scoping Out Social Network Supporters</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-email-communications-easy-guide-to-two-factor-authentication-methods/"><u>Secure Your Email Communications: Easy Guide to Two-Factor Authentication Methods</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlock-more-potential-in-ai-the-fourfold-advantage-of-choosing-claude-3-over-chatgpt/"><u>Unlock More Potential in AI: The Fourfold Advantage of Choosing Claude 3 Over ChatGPT</u></a></li>
 </ul></div>
 

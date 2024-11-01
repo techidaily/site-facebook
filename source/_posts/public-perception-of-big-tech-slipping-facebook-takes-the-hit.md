@@ -1,7 +1,7 @@
 ---
 title: Public Perception of Big Tech Slipping; Facebook Takes the Hit?
-date: 2024-09-10T14:50:07.186Z
-updated: 2024-09-11T14:50:07.186Z
+date: 2024-10-31T17:05:47.107Z
+updated: 2024-11-01T16:37:35.362Z
 tags:
   - facebook
 categories:
@@ -19,37 +19,9 @@ thumbnail: https://thmb.techidaily.com/59f91e855b8da924b2a0ba83734da21e4ed3929e8
 
  Now a joint poll by the Washington Post and the Schar School of Government and Policy at the George Mason University shows people do not trust many big tech companies. Most would also like governments to regulate big tech more. Let's find out some more details about the poll, and why Facebook in particular is most distrusted.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## What Does the Poll Say?
 
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
 
@@ -61,19 +33,12 @@ thumbnail: https://thmb.techidaily.com/59f91e855b8da924b2a0ba83734da21e4ed3929e8
 
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Facebook Is the Least Trusted
 
@@ -83,37 +48,23 @@ thumbnail: https://thmb.techidaily.com/59f91e855b8da924b2a0ba83734da21e4ed3929e8
 
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Why Is Facebook So Distrusted?
 
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
 
@@ -129,19 +80,12 @@ thumbnail: https://thmb.techidaily.com/59f91e855b8da924b2a0ba83734da21e4ed3929e8
 
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Regulation Is Coming
 
@@ -153,14 +97,11 @@ thumbnail: https://thmb.techidaily.com/59f91e855b8da924b2a0ba83734da21e4ed3929e8
 
  For now, users are taking matters into their own hands. Nearly 80% take precautions to limit the information that big tech gathers about them. These precautions include disallowing tracking, deleting web history, and Virtual Private Networks (VPN).
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,4 +110,24 @@ thumbnail: https://thmb.techidaily.com/59f91e855b8da924b2a0ba83734da21e4ed3929e8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-backlink-journey-paving-a-path-to-youtube-success/"><u>[Updated] 2024 Approved The Backlink Journey Paving a Path to YouTube Success</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-ideal-audio-transformer-devices-for-youtube-experts-for-2024/"><u>[Updated] Ideal Audio Transformer Devices for YouTube Experts for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-swift-snapshots-on-the-social-network/"><u>[Updated] In 2024, Swift Snapshots on the Social Network</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-easiest-way-to-shorten-youtube-links-here-are-the-top-5-choices/"><u>[Updated] In 2024, The Easiest Way to Shorten YouTube Links? Here Are the Top 5 Choices</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-xs-max-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone XS Max</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/decoding-the-latest-on-tesla-phone-when-is-it-coming-out-what-will-it-cost-and-the-advanced-tech-specs-that-make-heads-turn/"><u>Decoding the Latest on 'Tesla Phone': When Is It Coming Out? What Will It Cost? And The Advanced Tech Specs That Make Heads Turn</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-portable-portal-now-traveling-at-your-fingertips/"><u>Facebook's Portable Portal, Now Traveling at Your Fingertips</u></a></li>
+<li><a href="https://facebook.techidaily.com/fix-for-inaccessible-verification-codes-on-social-media-platforms-fb/"><u>Fix for Inaccessible Verification Codes on Social Media Platforms (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-fixing-facebook-security-code-delivery-issue/"><u>Guide to Fixing Facebook Security Code Delivery Issue</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On OnePlus Nord N30 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-evasive-language-within-fbc-discussions/"><u>Interpreting Evasive Language Within FBC Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivating-trumps-virtual-footprint/"><u>Reactivating Trumps' Virtual Footprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sites-converging-facebook-meets-instagram/"><u>Social Sites Converging: Facebook Meets Instagram</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-6-drfone-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-storytelling-weaving-a-captivating-online-narrative/"><u>The Power of Storytelling: Weaving a Captivating Online Narrative</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-4-tricks-for-finding-exciting-online-communities/"><u>Top 4 Tricks for Finding Exciting Online Communities</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-guide-how-to-fix-failed-updates-on-the-official-minecraft-installer/"><u>Troubleshooting Guide: How to Fix Failed Updates on the Official Minecraft Installer</u></a></li>
+</ul></div>
 

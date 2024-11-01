@@ -1,7 +1,7 @@
 ---
 title: Tips for Crafting Descriptive Facebook Posts
-date: 2024-10-19T16:28:23.702Z
-updated: 2024-10-26T17:26:03.595Z
+date: 2024-10-25T17:37:31.465Z
+updated: 2024-11-01T17:20:53.805Z
 tags:
   - facebook
 categories:
@@ -41,10 +41,16 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Add Alt Text to Images on the Facebook App
@@ -54,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
 ![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -72,13 +85,6 @@ Here’s how you add alt text to images while uploading them:
 
 ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Here’s how to add alt text to your photos on Facebook's web browser.
 
 1. Log in to[Facebook](https://www.facebook.com) on your browser.
@@ -96,22 +102,22 @@ Here’s how you add alt text to images while uploading them:
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
-![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
 
 Close
 
@@ -147,24 +153,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-discover-efficient-methods-for-compiling-songs-on-youtube/"><u>[New] 2024 Approved Discover Efficient Methods for Compiling Songs on YouTube</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-scooping-strategies-review-rundown/"><u>[New] 2024 Approved SCOOPING STRATEGIES Review Rundown</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-how-to-preserve-your-gaming-moments-with-windows-10-for-2024/"><u>[New] How to Preserve Your Gaming Moments with Windows 10 for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-youtube-creators-guide-15-unrestricted-music-archives/"><u>[New] In 2024, YouTube Creators' Guide 15 Unrestricted Music Archives</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-multi-lens-modifiers-for-creative-video-effects/"><u>[New] Multi-Lens Modifiers for Creative Video Effects</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unraveling-image-mysteries-the-triple-tactic-fb-backward-search/"><u>[Updated] Unraveling Image Mysteries The Triple-Tactic FB Backward Search</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-heaviest-airborne-haulers-drone-selection-insights/"><u>2024 Approved Heaviest Airborne Haulers Drone Selection Insights</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-oppo-k11x-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Oppo K11x | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-coding-capabilities-through-facebook-rust-alliance/"><u>Enhancing Coding Capabilities Through Facebook-Rust Alliance</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensuring-teen-social-media-security-on-facebook/"><u>Ensuring Teen Social Media Security on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-spends-5-million-attracting-journalists-to-its-substack-rival/"><u>Facebook Spends $5 Million Attracting Journalists to Its Substack Rival</u></a></li>
-<li><a href="https://facebook.techidaily.com/fighting-fib-facebook-bolsters-its-penalty-power-against-lies/"><u>Fighting Fib: Facebook Bolsters Its Penalty Power Against Lies</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-honor-x7b-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Honor X7b</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-the-future-web-decoding-facebooks-metaverse-concepts/"><u>Inside The Future Web: Decoding Facebook’s Metaverse Concepts</u></a></li>
-<li><a href="https://facebook.techidaily.com/predictive-more-cryptos-more-social-ads/"><u>Predictive: More Cryptos, More Social Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/remain-vigilant-hidden-messages-on-facebook-app/"><u>Remain Vigilant: Hidden Messages on Facebook App</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/request-for-full-media-sharing-viewability-via-messaging-platforms-for-2024/"><u>Request for Full Media Sharing Viewability via Messaging Platforms for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-6-forces-that-dethroned-forums-in-digital-spaces/"><u>The 6 Forces That Dethroned Forums in Digital Spaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-image-ownership-on-web-platforms/"><u>Understanding Image Ownership on Web Platforms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-efficient-mp4-conversion-software-facebook-targeted/"><u>[New] 2024 Approved Efficient MP4 Conversion Software (Facebook Targeted)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-infographic-forecast-the-2023-social-landscape/"><u>[Updated] 2024 Approved Infographic Forecast The 2023 Social Landscape</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-arctic-acrobatics-2022s-olympians-for-2024/"><u>[Updated] Arctic Acrobatics 2022'S Olympians for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/8-apps-for-changing-the-createdmodified-date-on-a-file-on-windows/"><u>8 Apps for Changing the Created/Modified Date on a File on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-find-yourself-lost-facebook-posts-against-all-odds/"><u>How to Find Yourself Lost Facebook Posts Against All Odds</u></a></li>
+<li><a href="https://facebook.techidaily.com/january-hearing-trumps-facebook-prohibition/"><u>January Hearing: Trump's Facebook Prohibition</u></a></li>
+<li><a href="https://facebook.techidaily.com/re-establishing-fb-passcode-for-increased-safety/"><u>Re-Establishing FB Passcode for Increased Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giant-supports-pandemic-effort-with-5-million-gift/"><u>Social Media Giant Supports Pandemic Effort with $5 Million Gift</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-surge-in-telegram-users-following-facebook-downtime/"><u>The Surge in Telegram Users Following Facebook Downtime</u></a></li>
+<li><a href="https://some-skills.techidaily.com/transform-your-visual-storytelling-with-luts-in-ae-for-2024/"><u>Transform Your Visual Storytelling with LUTs in AE for 2024</u></a></li>
+<li><a href="https://solve-help.techidaily.com/ultime-tutoriel-facile-dinstallation-pour-le-cloneur-nvme-samsung-plus-guide-pratique-et-rapide-pour-les-ssds-mk-a3000p-avec-la-famille-pm981/"><u>Ultime Tutoriel Facile D'Installation Pour Le Cloneur NVMe Samsung Plus : Guide Pratique Et Rapide Pour Les SSDs MK A3000P Avec La Famille PM981</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-top-mac-video-editors-similar-to-vsdc-for-2024/"><u>Updated Top Mac Video Editors Similar to VSDC for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-you-need-to-know-about-facebooks-user-interface-makeover/"><u>What You Need to Know About Facebook's User Interface Makeover</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mastering Teen FB Privacy Safeguards: A Step-by-Step Guide"
-date: 2024-10-22T19:37:35.312Z
-updated: 2024-10-26T19:07:26.254Z
+date: 2024-10-29T16:23:14.947Z
+updated: 2024-11-01T16:20:49.462Z
 tags:
   - facebook
 categories:
@@ -32,13 +32,6 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
@@ -52,10 +45,10 @@ Close
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Privacy Setting Basics
@@ -89,25 +82,19 @@ Close
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -117,6 +104,13 @@ Close
  To check the kinds of ads your teen can see on their news feed, you will need to go back to**Settings** . Scroll down to**Ads** and click on**Ad preferences** .
 
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Online Safety Is More Important Than Ever
 
@@ -139,20 +133,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-videos-start-with-top-youtube-intro-tips/"><u>[New] In 2024, Elevate Your Video's Start with Top YouTube Intro Tips</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-from-mono-to-vivid-blades-transformation-into-the-4k-era-for-2024/"><u>[Updated] From Mono to Vivid Blade's Transformation Into the 4K Era for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-peeling-back-sharex-critical-analysis-and-alternatives/"><u>[Updated] In 2024, Peeling Back ShareX Critical Analysis & Alternatives</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-best-starter-accessories-to-elevate-your-gopro-capture/"><u>[Updated] The Best Starter Accessories to Elevate Your GoPro Capture</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-the-ultimate-guide-to-affordable-cloud-space-best-of-the-20/"><u>2024 Approved The Ultimate Guide to Affordable Cloud Space Best of the 20</u></a></li>
-<li><a href="https://extra-information.techidaily.com/360-degree-panoramic-stands/"><u>360-Degree Panoramic Stands</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/choosing-between-macbook-air-and-macbook-pro-a-comprehensive-guide-to-finding-the-perfect-apple-laptop-for-your-needs-insights/"><u>Choosing Between MacBook Air and MacBook Pro: A Comprehensive Guide to Finding the Perfect Apple Laptop for Your Needs Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/debunking-disinformation-enhanced-penalties-by-social-media/"><u>Debunking Disinformation: Enhanced Penalties by Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/decision-delayed-facebook-watchdogs-withhold-verdict/"><u>Decision Delayed: Facebook Watchdogs Withhold Verdict</u></a></li>
-<li><a href="https://facebook.techidaily.com/declining-connectivity-top-4-user-loss-indicators-on-fb/"><u>Declining Connectivity: Top 4 User Loss Indicators on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-privacy-concerns-expressed-in-60-minutes-report/"><u>Decoding Privacy Concerns Expressed in 60 Minutes Report</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/delving-into-vimeo-your-ultimate-video-partner/"><u>Delving Into Vimeo Your Ultimate Video Partner</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-deception-detectors-for-high-tech-hoaxes/"><u>Digital Deception Detectors for High-Tech Hoaxes</u></a></li>
-<li><a href="https://facebook.techidaily.com/e2ee-update-for-facebook-messenger-when-expected/"><u>E2EE Update for Facebook Messenger – When Expected?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/unlock-your-oppo-a1-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Oppo A1 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-premium-free-power-players-ranking-the-top-10-free-luts-for-2024/"><u>[New] Premium-Free Power Players Ranking the Top 10 Free LUTs for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-comprehensive-guide-to-multitasking-audience-interactions-via-fb-live/"><u>2024 Approved Comprehensive Guide to Multitasking Audience Interactions via FB Live</u></a></li>
+<li><a href="https://facebook.techidaily.com/flawless-music-playback-directly-from-facebook-to-spotify/"><u>Flawless Music Playback Directly From Facebook to Spotify</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-speed-control-on-your-netflix-streams/"><u>In 2024, Mastering Speed Control on Your Netflix Streams</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-receiving-messages-late-here-are-9-proven-methods-to-improve-sms-timing/"><u>IPhone Receiving Messages Late? Here Are 9 Proven Methods to Improve SMS Timing</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-confidential-content-concealed-metas-plan-online/"><u>Keeping Confidential Content Concealed: Meta's Plan Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-impact-crafting-stellar-fb-gatherings-and-meetings/"><u>Maximizing Impact: Crafting Stellar FB Gatherings and Meetings</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-the-sanctity-of-your-social-network-why-stranger-connections-arent-ideal/"><u>Protecting the Sanctity of Your Social Network: Why Stranger Connections Aren't Ideal</u></a></li>
+<li><a href="https://discover-community.techidaily.com/quick-solutions-for-overcoming-the-0x80eruption-of-windows-update-error-code/"><u>Quick Solutions for Overcoming the 0X80eruption of Windows Update Error Code</u></a></li>
+<li><a href="https://facebook.techidaily.com/see-how-many-like-you-on-fb/"><u>See How Many Like You on FB</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/riber-surge-strategy-on-flexible-budget/"><u>Subscriber Surge Strategy on Flexible Budget</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-6-how-social-media-overtook-traditional-forum-spaces/"><u>Top 6: How Social Media Overtook Traditional Forum Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-doesnt-apple-join-the-metaverse-wave-like-facebook/"><u>Why Doesn't Apple Join the Metaverse Wave Like Facebook?</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210655599-9781454941101-wicca-year-of-magic/"><u>Wicca Year of Magic | Free Book</u></a></li>
 </ul></div>
 

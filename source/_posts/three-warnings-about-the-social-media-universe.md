@@ -1,7 +1,7 @@
 ---
 title: Three Warnings About the Social Media Universe
-date: 2024-10-22T22:07:20.018Z
-updated: 2024-10-26T16:37:21.901Z
+date: 2024-10-25T17:35:35.022Z
+updated: 2024-11-01T17:23:50.181Z
 tags:
   - facebook
 categories:
@@ -44,16 +44,16 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
  Here are some reasons why a Meta-led metaverse is something we should be worried about.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. A Privacy Nightmare
 
 ![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Facebook's poor privacy practices](http://www.makeuseof.com/tag/facebook-security-privacy-nightmare/) have always been a subject of concern. One of the most high-profile examples was the Cambridge Analytica scandal of 2018.
 
@@ -67,15 +67,22 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Another Digital Addiction for Gen Z
 
 ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
@@ -90,23 +97,9 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
@@ -117,6 +110,13 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  A Meta-dominated metaverse could also spell the death of independent innovation within the metaverse. Meta's business strategies are rooted in scaling and muscling out competitors. It acquired WhatsApp and Instagram, copied Snapchat features (after failing to buy it), and[launched Instagram Reels](https://www.makeuseof.com/tag/what-is-instagram-reels/) to put a check on TikTok.
 
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Meta's Vision of the Metaverse
 
@@ -141,19 +141,22 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-synchronize-your-calendars-for-smooth-video-calls/"><u>[Updated] 2024 Approved Synchronize Your Calendars for Smooth Video Calls</u></a></li>
-<li><a href="https://facebook.techidaily.com/17-motivating-reasons-to-take-a-social-media-vacation-now/"><u>17 Motivating Reasons to Take a Social Media Vacation Now</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-eye-appeal-the-top-3-ways-to-increase-instagram-visibility/"><u>2024 Approved Eye Appeal The Top 3 Ways to Increase Instagram Visibility</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-micro-musings-video-characters-and-sounds/"><u>2024 Approved Micro Musings Video Characters & Sounds</u></a></li>
-<li><a href="https://facebook.techidaily.com/augment-reality-in-daily-conversations-via-messenger/"><u>Augment Reality in Daily Conversations via Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-practices-for-facebook-image-alt-text/"><u>Best Practices for Facebook Image Alt-Text</u></a></li>
-<li><a href="https://facebook.techidaily.com/checking-historical-facebook-connections/"><u>Checking Historical Facebook Connections</u></a></li>
-<li><a href="https://network-issues.techidaily.com/empty-vram-no-graphic-support/"><u>Empty VRAM, No Graphic Support</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/excellent-quality-hd-video-preservers/"><u>Excellent Quality HD Video Preservers</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719145917232-fortify-your-online-communications-facebooks-newly-launched-encrypted-chat-features-enhance-privacy/"><u>Fortify Your Online Communications: Facebook's Newly Launched Encrypted Chat Features Enhance Privacy.</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-augment-visuals-incorporating-black-box-and-letterboxing-in-social-media/"><u>In 2024, Augment Visuals Incorporating Black Box & Letterboxing in Social Media</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-choice-top-mp4-players-unveiled/"><u>In 2024, Ultimate Choice Top MP4 Players Unveiled</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/wasteland-2-directors-cut-evaluation-engaging-strategy-and-tactics-in-a-renowned-roleplaying-game/"><u>Wasteland 2 Director's Cut Evaluation: Engaging Strategy and Tactics in a Renowned Roleplaying Game</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719153500304-zuckerbergs-litecoin-louie-innovative-pet-nomenclature/"><u>Zuckerberg's 'Litecoin Louie': Innovative Pet Nomenclature</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-posting-videos-on-instagram-easy/"><u>[Updated] 2024 Approved Posting Videos on Instagram Easy</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-digital-delights-8-most-watched-movies/"><u>[Updated] Digital Delights 8 Most Watched Movies</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-nokia-c02-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Nokia C02 Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-content-push-understanding-its-staying-power/"><u>Facebook’s Content Push: Understanding Its Staying Power</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-obscurity-to-opportunity-instagrams-remake/"><u>From Obscurity to Opportunity: Instagram's Remake</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-clearing-your-facebook-notification-history/"><u>Guide to Clearing Your Facebook Notification History</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-ipod-and-apple-iphone-15-the-right-way-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock On iPod and Apple iPhone 15 The Right Way</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-expert-guide-to-initiate-video-calls-using-whatsapp-web-for-laptops/"><u>In 2024, Expert Guide to Initiate Video Calls Using WhatsApp Web for Laptops</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-xiaomi-redmi-k70-pro-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Xiaomi Redmi K70 Pro Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-oppo-a59-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Oppo A59 5G Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-a-blockage-friends-on-facebook-again/"><u>Overcoming a Blockage: Friends on Facebook Again?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/prime-tiktok-tools-for-impeccable-video-creation/"><u>Prime TikTok Tools for Impeccable Video Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-you-rely-on-social-networks-for-your-digital-security-footprint-across-multiple-apps/"><u>Should You Rely on Social Networks for Your Digital Security Footprint Across Multiple Apps?</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-time-management-for-a-healthy-social-media-diet/"><u>Tailoring Time Management for a Healthy Social Media Diet</u></a></li>
+<li><a href="https://os-tips.techidaily.com/the-iphones-dominance-in-my-gaming-life-reasons-im-sticking-with-mobile-play/"><u>The iPhone's Dominance in My Gaming Life - Reasons I'm Sticking with Mobile Play!</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-my-virtual-scoreboard-stay-unchanged/"><u>Will My Virtual Scoreboard Stay Unchanged?</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-confirms-enhanced-whatsapp-on-multiple-devices/"><u>Zuckerberg Confirms Enhanced WhatsApp on Multiple Devices</u></a></li>
 </ul></div>
 

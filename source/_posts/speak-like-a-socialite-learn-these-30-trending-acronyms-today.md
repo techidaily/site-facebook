@@ -1,7 +1,7 @@
 ---
 title: "Speak Like a Socialite: Learn These 30 Trending Acronyms Today"
-date: 2024-10-21T21:58:08.328Z
-updated: 2024-10-26T19:45:14.641Z
+date: 2024-10-26T16:50:32.303Z
+updated: 2024-11-01T17:32:40.104Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  For example, a video saying "POV: You have no more chores to do" indicates that you should imagine a person in that position for the context of the video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. FYP
 
  FYP is short for "For You Page", which is TikTok's personal recommendations feed. It shows you what it thinks you'll like based on the content you already enjoy. Every TikTok creator wants their videos to be featured on the FYP. In fact, the #FYP hashtag on TikTok had 49,775.4 billion views at the time of writing.
@@ -38,22 +45,15 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  IYKYK stands for "if you know, you know". This abbreviation is used to refer to an inside joke or something that only certain people would understand. It's typically used without an explanation.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. GRWM
 
  GRWM means "get ready with me". The term is most popular on TikTok for videos showing creators getting ready for the day. This could be in preparation for running errands, attending an event, or going on a date.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. DM
@@ -82,73 +82,60 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  ATM is short for "at the moment". Similar to ATP, ATM simply means right now.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 11\. FW
 
  FW stands for "f\*\*\* with". If someone says they f\*\*\* with something, they mean they cosign it. Conversely, if they say they don't FW with something, it means they don't associate with it.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 12\. IKTR
 
  IKTR means "I know that's right". This term is used when you agree with something or can relate to the situation. For example, someone may post that doing their nails is a form of self-care. Another user may comment "IKTR".
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 13\. ICYMI
 
  Popular on X, ICYMI stands for "in case you missed it". It's used to bring your audience up to speed about something that happened while they were away or that they missed on their timeline.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 14\. IJS
 
  IJS means "I'm just saying". The IJS abbreviation is often added to the end of a post about an unpopular opinion or differing view.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 15\. IMO/IMHO
 
  IMO and IMHO stand for "in my opinion" and "in my honest opinion", respectively. These abbreviations are used when someone expresses their opinion on social media. People may feel the need to add it as a disclaimer when they anticipate that other users may disagree with them.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 16\. OOMF
 
  OOMF means "one of my followers". You'll most likely see this abbreviation on X. It's used when a user refers to someone who follows them but doesn't want to reveal their name or handle.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 17\. TBH/TBQH
 
  TBH and TBQH stand for "to be honest" and "to be quite hones"t, respectively. These informal abbreviations are used in different contexts, including opinions, hot takes, and admissions.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 18\. FRFR
@@ -183,16 +170,16 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  OOTN means "outfit of the night". Like OOTD, OOTN is used to show off one's outfit for the night.​​​​​​​
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 26\. HT
 
  HT stands for "hat tip". HT is used to thank or credit someone who is the source of particular information you're sharing. So you might see HT shared with their username (HT @username). It's a way to acknowledge them and point your audience to their page.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 27\. IG
 
@@ -209,6 +196,13 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 ## 30\. FOMO
 
  FOMO means "fear of missing out". The acronym FOMO is used in two contexts: to express that you don't want to miss out on something, or that you're missing out on something at the time. The feeling is often triggered by what you see others talking about online. Fortunately, there are[ways to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) .
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Never Get Left Behind
 
@@ -229,21 +223,20 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-unleashing-your-contents-potential-journey-towards-gaining-sponsorship-revenue/"><u>[New] In 2024, Unleashing Your Content's Potential Journey Towards Gaining Sponsorship Revenue</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-premier-sustainable-cinematography-gear-for-2024/"><u>[New] Premier Sustainable Cinematography Gear for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-a-vloggers-dream-exploring-the-best-12-video-capture-devices/"><u>[Updated] 2024 Approved A Vlogger's Dream Exploring the Best 12 Video Capture Devices</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-esports-news-and-analysis-from-top-vloggers/"><u>[Updated] Esports News and Analysis From Top Vloggers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-unveiling-creative-possibilities-anime-subscribe-buttons-for-your-youtube-channel-filmora/"><u>2024 Approved Unveiling Creative Possibilities Anime Subscribe Buttons for Your YouTube Channel (Filmora)</u></a></li>
-<li><a href="https://facebook.techidaily.com/december-closes-door-on-instagram-threads/"><u>December Closes Door on Instagram Threads</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-use-cases-of-fb-assistance-hub/"><u>Deciphering the Use Cases of FB Assistance Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphraning-the-advantages-and-pitfalls-of-using-facebook-as-a-cross-platform-login-mechanism/"><u>Deciphraning the Advantages and Pitfalls of Using Facebook as a Cross-Platform Login Mechanism</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-facebooks-approved-content-list/"><u>Demystifying Facebook's Approved Content List</u></a></li>
-<li><a href="https://facebook.techidaily.com/direct-access-strategy-for-managing-fbinsta-user-hub/"><u>Direct Access Strategy for Managing FB/Insta User Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/dive-into-the-depths-with-facebooks-new-policy-on-oculus-go-root-access/"><u>Dive Into the Depths with Facebook's New Policy on Oculus Go Root Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/effortless-musical-journey-with-spotify-in-facebooks-mini-panel/"><u>Effortless Musical Journey with Spotify in Facebook's Mini-Panel</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/expert-reviews-by-tom-top-tier-computer-gear-insight/"><u>Expert Reviews by Tom - Top-Tier Computer Gear Insight</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/expert-tips-for-boosting-iphone-efficiency-with-advanced-siri-sounds-and-commands-zdnet-insights/"><u>Expert Tips for Boosting iPhone Efficiency with Advanced Siri Sounds and Commands | ZDNET Insights</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-a-disable-iphone-13-mini-using-icloud-website-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock a disable iPhone 13 mini using icloud website</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/streamline-your-conversations-chromes-best-tool-for-masterful-chatgpt-engagements/"><u>Streamline Your Conversations: Chrome's Best Tool for Masterful ChatGPT Engagements</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-incorporating-time-features-into-youtube-video-formats/"><u>[New] In 2024, Incorporating Time Features Into YouTube Video Formats</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-transform-your-tiktok-experience-with-new-user-numbers/"><u>[New] In 2024, Transform Your TikTok Experience with New User Numbers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aximizing-profits-the-ultimate-guide-to-youtube-revenue/"><u>[New] Maximizing Profits The Ultimate Guide to YouTube Revenue</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-motorola-razr-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/affordable-easy-to-use-video-capture-tools-for-windows-for-2024/"><u>Affordable, Easy-to-Use Video Capture Tools for Windows for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enriching-online-spaces-channels-and-group-connectivity/"><u>Enriching Online Spaces: Channels and Group Connectivity</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-iphone-13-pro-drfone-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-oneplus-12-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock OnePlus 12 Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-it-confidential-implementing-restricted-user-access-on-facebook/"><u>Keep It Confidential: Implementing Restricted User Access on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/procedure-for-alerting-underage-account-use-online/"><u>Procedure for Alerting Underage Account Use Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-operations-uncover-8-crowdflower-capabilities/"><u>Streamlining Operations: Uncover 8 CrowdFlower Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-12-catalysts-of-covid-19-misinformation/"><u>The 12 Catalysts of Covid-19 Misinformation</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/350758-9781440636936-the-evolution-angel/"><u>The Evolution Angel | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-next-big-thing-facebook-and-spotifys-boombox-initiative/"><u>Unveiling the Next Big Thing: Facebook & Spotify's Boombox Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-use-meta-ai-on-instagram-and-facebook-but-should-you/"><u>You Can Now Use Meta AI on Instagram and Facebook, but Should You?</u></a></li>
 </ul></div>
 

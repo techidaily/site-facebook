@@ -1,7 +1,7 @@
 ---
 title: The Significance of FBCTA in Digital World
-date: 2024-09-10T14:51:47.324Z
-updated: 2024-09-11T14:51:47.324Z
+date: 2024-10-25T16:14:57.011Z
+updated: 2024-11-01T16:18:59.957Z
 tags:
   - facebook
 categories:
@@ -21,51 +21,14 @@ thumbnail: https://thmb.techidaily.com/42d888d9431637ab1388aeb276d6888b24b9d1d85
 
  This article will outline how Congress wants Facebook and other tech giants to change their algorithms. Keep reading to find out more about how this proposed bill could affect you.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## What Is the Filter Bubble Transparency Act?
 
 ![courtroom gavel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/courtroom-gavel-judge.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  US Congress is taking aim at social media algorithms with new legislation it's calling the Filter Bill Transparency Act (FBTA). The bill would require companies like Meta (Facebook's parent company) to give users an option to opt out of algorithmic content feeds informed by users' personal data.
 
@@ -87,43 +50,23 @@ thumbnail: https://thmb.techidaily.com/42d888d9431637ab1388aeb276d6888b24b9d1d85
 
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How the Filter Bubble Transparency Act Could Affect You
 
 ![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  The bill means that instead of a personalized news feed, you could have the option to choose between that and a feed showing you posts as they appear on apps like Facebook and Instagram—much like on Twitter.
 
@@ -131,19 +74,12 @@ thumbnail: https://thmb.techidaily.com/42d888d9431637ab1388aeb276d6888b24b9d1d85
 
  This, and giving users an option to opt out of a personalized algorithm, sounds more realistic, at least for now until tech giants can improve their algorithms.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Will Personalized Algorithms Become a Thing of the Past?
 
@@ -151,14 +87,11 @@ thumbnail: https://thmb.techidaily.com/42d888d9431637ab1388aeb276d6888b24b9d1d85
 
  Facebook is known to push back against lawmakers and defending its business, so it will be interesting to see how this plays out. For now though, don't hold your breath on Facebook overhauling its algorithm.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,12 +100,24 @@ thumbnail: https://thmb.techidaily.com/42d888d9431637ab1388aeb276d6888b24b9d1d85
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://blog-min.techidaily.com/aacmpeg/"><u>AACとMPEGファイルを無料で簡単に変換: オンラインツールのトップ選手</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-poco-x5-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Poco X5 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/does-pokegoplusplus-still-work-on-apple-iphone-14-proipad-drfone-by-drfone-virtual-ios/"><u>Does PokeGo++ still work on Apple iPhone 14 Pro/iPad? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/elevate-video-storytelling-adding-music-to-instareels/"><u>Elevate Video Storytelling Adding Music to InstaReels</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-with-ease-learn-the-top-30-smart-words-and-abbreviations-in-social-media/"><u>Engage with Ease: Learn the Top 30 SMART Words and Abbreviations in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-new-facebook-insights-for-smarter-business-ads/"><u>Exploring New Facebook Insights for Smarter Business Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-in-plain-sight-locating-privatized-social-media-files/"><u>Hidden in Plain Sight: Locating Privatized Social Media Files</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-realme-note-50-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Realme Note 50 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-honor-x50i-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Honor X50i Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-content-curation-insights-from-user-experiences-survey/"><u>Personalizing Content Curation: Insights From User Experiences Survey</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/schnelles-und-kostenloses-verfahren-fur-den-download-von-youtube-inhalten-unter-macos-eine-einfache-anleitung/"><u>Schnelles Und Kostenloses Verfahren Für Den Download Von YouTube-Inhalten Unter macOS: Eine Einfache Anleitung</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-dynamics-redefined-identifying-4-platform-driven-societal-alterations/"><u>Social Dynamics Redefined: Identifying 4 Platform-Driven Societal Alterations</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dominance-trio-that-terrifies-us/"><u>The Dominance Trio That Terrifies Us</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-tutorial-for-creating-stunning-image-collages-with-iphones-photo-cutout-feature/"><u>The Ultimate Tutorial for Creating Stunning Image Collages with iPhone's Photo Cutout Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-everyone-in-messenger-chats/"><u>Turn Off @Everyone in Messenger Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-messengers-ar-capabilities-by-facebook/"><u>Unveiling Messenger's AR Capabilities by Facebook</u></a></li>
+</ul></div>
 

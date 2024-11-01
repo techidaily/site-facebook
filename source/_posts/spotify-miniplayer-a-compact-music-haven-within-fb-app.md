@@ -1,7 +1,7 @@
 ---
 title: "Spotify Miniplayer: A Compact Music Haven Within FB App"
-date: 2024-10-20T21:29:26.106Z
-updated: 2024-10-26T17:08:22.155Z
+date: 2024-10-25T17:19:22.719Z
+updated: 2024-11-01T16:16:36.161Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
  Spotify’s miniplayer has already launched in the US, Canada, Australia, and in 25 other countries. Spotify is planning to expand this feature to more countries over the following months.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Listen to Spotify Songs Through the Facebook Miniplayer
@@ -60,19 +60,19 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -82,10 +82,10 @@ Close
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## More Audio Features Are Coming Soon
@@ -109,21 +109,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-effective-thumbnails-the-secret-to-video-success/"><u>[New] 2024 Approved Effective Thumbnails The Secret to Video Success</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-valheims-optimal-seed-selection-strategies/"><u>[New] In 2024, Valheim's Optimal Seed Selection Strategies</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-step-into-the-spotlight-on-instagram-with-these-tricks/"><u>[New] Step Into the Spotlight on Instagram with These Tricks</u></a></li>
-<li><a href="https://facebook.techidaily.com/12-adverse-impacts-social-medias-influence-on-society/"><u>12 Adverse Impacts: Social Media's Influence on Society</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-internet-comments-eternal-markers/"><u>Are Internet Comments Eternal Markers?</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-users-trust-fb-messenger-encryption/"><u>Can Users Trust FB Messenger Encryption?</u></a></li>
-<li><a href="https://facebook.techidaily.com/clean-slate-strategies-banishing-negative-posts-online/"><u>Clean Slate Strategies: Banishing Negative Posts Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/controlling-who-sees-your-active-status-on-fb/"><u>Controlling Who Sees Your Active Status on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-viral-videos-a-comprehensive-guide-to-facebook-reels/"><u>Creating Viral Videos: A Comprehensive Guide to Facebook Reels</u></a></li>
-<li><a href="https://facebook.techidaily.com/cutting-edge-chatting-integrating-facebooks-sounds-in-messages/"><u>Cutting-Edge Chatting: Integrating Facebook’s Sounds in Messages</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-energy-efficiency-activating-low-power-mode-on-macos-monterey-a-guide-by-zdnet/"><u>Mastering Energy Efficiency: Activating Low Power Mode on macOS Monterey - A Guide by ZDNet</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/tecnicas-expertas-para-controlar-tu-cuenta-aomei-con-exito/"><u>Técnicas Expertas Para Controlar Tu Cuenta AOMEI Con Éxito</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/value-meets-innovation-in-our-apple-watch-se-assessment-the-smart-choice-for-cost-conscious-consumers/"><u>Value Meets Innovation in Our Apple Watch SE Assessment: The Smart Choice for Cost-Conscious Consumers</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/visual-transformation-techniques-for-creative-edits/"><u>Visual Transformation Techniques for Creative Edits</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/visual-virtuosity-unveiled-a-close-look-at-the-z32x-4k-monitor/"><u>Visual Virtuosity Unveiled A Close Look at the Z32X 4K Monitor</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/windowspxe/"><u>Windows上PXEブートサーバのセットアップ:安全且び簡易手順ガイド</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-a-guide-to-navigating-instagrams-new-updates-for-2024/"><u>[New] A Guide to Navigating Instagram's New Updates for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-online-presence-facebooks-security-wisdom/"><u>Enhancing Your Online Presence: Facebook's Security Wisdom</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-marketplace-a-guide-to-secure-shopping-habits/"><u>FB Marketplace: A Guide to Secure Shopping Habits</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-erratic-facebook-notification-loading-speed/"><u>Fixing Erratic Facebook Notification Loading Speed</u></a></li>
+<li><a href="https://facebook.techidaily.com/friend-or-foe-how-to-tell-if-your-fb-is-compromised/"><u>Friend or Foe? How to Tell if Your FB Is Compromised</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-activate-and-use-facebooks-mtfc-for-security/"><u>How to Activate and Use Facebook's MTFC for Security</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-vivo-t2x-5g-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Vivo T2x 5G</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-talk-turned-type-essential-apps-for-offline-speech-recognition/"><u>In 2024, Talk Turned Type Essential Apps for Offline Speech Recognition</u></a></li>
+<li><a href="https://win-answers.techidaily.com/joint-venture-update-united-force-still-in-development/"><u>Joint Venture Update: 'United Force' Still in Development</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-memory-how-to-delete-facebook-watch-history/"><u>Mastery Over Memory: How to Delete Facebook Watch History</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/ntegrating-the-ebook-format-since-space-may-be-limited-for-physical-books-in-urban-areas-offering-an-e-book-version-could-appeal-to-tech-savvy-city-dwellers4/"><u>Ntegrating the eBook Format: Since Space May Be Limited for Physical Books in Urban Areas, Offering an E-Book Version Could Appeal to Tech-Savvy City Dwellers Who Prefer Digital over Paper Copies</u></a></li>
+<li><a href="https://facebook.techidaily.com/postponement-in-play-facebook-oversight-body-rests/"><u>Postponement in Play: Facebook Oversight Body Rests</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-restoring-your-lost-facebook-account-access/"><u>Steps for Restoring Your Lost Facebook Account Access</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-mac-masterclass-eliminating-stale-dns-records-effectively/"><u>The Mac Masterclass: Eliminating Stale DNS Records Effectively</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/the-strategic-pathway-to-podcast-popularity-with-effective-seo-techniques/"><u>The Strategic Pathway to Podcast Popularity with Effective SEO Techniques</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/ultimate-guide-dealing-with-dead-by-daylights-error-8014-issue/"><u>Ultimate Guide: Dealing with Dead by Daylight's Error 8014 Issue</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/understanding-the-technology-how-chatbots-mimic-human-dialogue/"><u>Understanding the Technology: How Chatbots Mimic Human Dialogue</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-the-eyes-opening-disclosures-in-recent-fb-papers/"><u>What Are The Eyes-Opening Disclosures in Recent FB Papers?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/world-of-warcraft-chat-issue-resolved-restoring-your-games-voice-features/"><u>World of Warcraft Chat Issue Resolved: Restoring Your Game’s Voice Features</u></a></li>
 </ul></div>
 

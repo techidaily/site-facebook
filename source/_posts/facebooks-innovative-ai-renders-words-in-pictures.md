@@ -1,7 +1,7 @@
 ---
 title: Facebook's Innovative AI Renders Words in Pictures
-date: 2024-09-10T14:51:36.564Z
-updated: 2024-09-11T14:51:36.564Z
+date: 2024-10-31T16:45:10.444Z
+updated: 2024-11-01T17:30:37.715Z
 tags:
   - facebook
 categories:
@@ -19,33 +19,10 @@ thumbnail: https://thmb.techidaily.com/d04a298cb4efeef55fca68d7eaf14aa0f3c43f69f
 
  From identity theft to fake news, we've seen all the bad side of this tech. But Facebook's one company that wants to use it for future innovations instead.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## What Is TextStyleBrush?
 
@@ -54,20 +31,6 @@ thumbnail: https://thmb.techidaily.com/d04a298cb4efeef55fca68d7eaf14aa0f3c43f69f
  The tool works on both handwritten text and text in real-word scenes. It's an impressive feat, because—as Facebook itself notes—the AI has to understand "unlimited" text styles.
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-textstylebrush-examples.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Not only is there all sorts of different kinds of typography and calligraphy out there, but there's so many stylistic details that need to be taken into consideration. What if someone writes on a slant or a curve? Or the surface that the text is on makes it hard to read? What about background clutter or image noise?
 
@@ -81,19 +44,12 @@ thumbnail: https://thmb.techidaily.com/d04a298cb4efeef55fca68d7eaf14aa0f3c43f69f
 
  Related: [Google Translate Mobile Features You Must Know](https://www.makeuseof.com/tag/google-translate-mobile-features/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Faces Aren't the Only Thing That Can Be Deepfaked
 
@@ -103,14 +59,11 @@ thumbnail: https://thmb.techidaily.com/d04a298cb4efeef55fca68d7eaf14aa0f3c43f69f
 
  If AI researchers and practitioners can get ahead of bad actors, Facebook says, then it'll be easier to detect when deepfakes are used maliciously, and to build systems to combat them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,12 +72,26 @@ thumbnail: https://thmb.techidaily.com/d04a298cb4efeef55fca68d7eaf14aa0f3c43f69f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-discovering-the-benefits-of-personalized-asmr-sounds/"><u>[New] 2024 Approved Discovering the Benefits of Personalized ASMR Sounds</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/direct-download-of-nvidia-quadro-graphics-drivers-optimized-for-windows-10-systems/"><u>Direct Download of NVIDIA Quadro Graphics Drivers: Optimized for Windows 10 Systems</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/engaging-with-notable-figures-on-snapchat/"><u>Engaging with Notable Figures on Snapchat</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/enhancing-twitter-posts-via-facebook-connection/"><u>Enhancing Twitter Posts via Facebook Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-steps-into-podcasting-arena-challenges-clubhouse/"><u>Facebook Steps Into Podcasting Arena, Challenges Clubhouse</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-gathering-grounds-social-platforms-that-unite-us/"><u>Global Gathering Grounds: Social Platforms That Unite Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-enhance-your-facebook-account-safety-via-2fa/"><u>Guide to Enhance Your Facebook Account Safety via 2FA</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-digital-legacy-on-facebook/"><u>Mastering Your Digital Legacy on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-of-online-romance-your-facebook-guide/"><u>Navigating the Nuances of Online Romance: Your Facebook Guide</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/1714925137654-new-alice-johnson-and-ethan-smith-phd-department-of-musicology-university-of-harmonia-open-access-copyright-2023-by-dr-johnson-and-prof-smith-this-work-is-l/"><u>New Alice Johnson and Ethan Smith, Ph.D., Department of Musicology, University of Harmonia (Open Access). Copyright © 2023 by Dr. Johnson and Prof. Smith. This Work Is Licensed Under a Creative Commons Attribution-Share Alike 4.0 License for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/pushing-boundaries-my-quest-to-overcome-app-guard-censorship/"><u>Pushing Boundaries: My Quest to Overcome App Guard Censorship</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-screens-the-day-without-social-networking/"><u>Silent Screens: The Day Without Social Networking</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solve-non-functional-usb-audio-device-issue-in-win10/"><u>Solve Non-Functional USB Audio Device Issue in WIN10</u></a></li>
+<li><a href="https://facebook.techidaily.com/sticking-to-old-whatsapp-rules-functionality-remains-full/"><u>Sticking to Old WhatsApp Rules: Functionality Remains Full</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/tech-icons-predicting-ais-impact-worldwide/"><u>Tech Icons Predicting AI’s Impact Worldwide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-cautious-collectors-compendium-for-social-media-scraps/"><u>The Cautious Collector’s Compendium for Social Media Scraps</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-tecno-phantom-v-fold-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Tecno Phantom V Fold Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://facebook.techidaily.com/upgrading-your-visual-presence-on-mobile-fb-platform/"><u>Upgrading Your Visual Presence on Mobile Fb Platform</u></a></li>
+</ul></div>
 

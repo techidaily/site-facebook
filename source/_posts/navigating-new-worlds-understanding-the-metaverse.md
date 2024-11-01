@@ -1,7 +1,7 @@
 ---
 title: "Navigating New Worlds: Understanding the Metaverse"
-date: 2024-10-23T19:01:18.987Z
-updated: 2024-10-26T21:18:30.883Z
+date: 2024-10-31T16:23:49.264Z
+updated: 2024-11-01T16:23:00.163Z
 tags:
   - facebook
 categories:
@@ -38,16 +38,22 @@ So, what is the metaverse?
 
  Nonetheless, after the arrival of the World Wide Web, people started to use the term cyberspace as a synonym of the internet in its present state. By the time Stephenson’s Snow Crash hit the shelves, the term “metaverse” caught on, and common use established it as the concept’s signifier.
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Is the Metaverse?
 
 ![Girl wearing glasses lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Girl-wearing-glasses-neon-lights.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Stephenson, on his part, describes his metaverse in Snow Crash, instead of as a hallucination, but as “graphic representations—the user interfaces—of a myriad different pieces of software that have been engineered by major corporations” and as “made available to the public over the worldwide fiber-optics network.” This is science fiction talking, of course. The metaverse doesn’t really exist.
 
@@ -61,15 +67,28 @@ Yet.
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Internet vs. Metaverse
 
 ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
@@ -85,22 +104,15 @@ Yet.
  The metaverse is a collection of information and software linked together and made available to the public through a worldwide network, either as 3D shared persistent virtual spaces or in the form of 2D images.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Far Off Are We From the Metaverse?
 
 ![Guy wearing AR glasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-AR-glasses.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Ever since the internet was conceived, both science fiction writers and technologists have envisioned it to be much more than just a telecommunications network.
 
@@ -144,19 +156,19 @@ Yet.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-disguised-user-figures/"><u>Decoding Facebook's Disguised User Figures</u></a></li>
-<li><a href="https://facebook.techidaily.com/defending-discretion-meta-against-image-sharing/"><u>Defending Discretion: Meta Against Image Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/delving-into-the-digital-dissonance-against-facebook-like-platforms/"><u>Delving Into the Digital Dissonance Against Facebook-Like Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dynamics-making-friends-without-feuds/"><u>Digital Dynamics: Making Friends without Feuds</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-methods-to-retract-online-tales-on-fb/"><u>Efficient Methods to Retract Online Tales on FB</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/guffaw-on-your-phone-hysterical-site-listings-for-2024/"><u>Guffaw on Your Phone Hysterical Site Listings for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-obtain-the-latest-insignia-bluetooth-dongle-driver-on-windows-os/"><u>How to Obtain the Latest Insignia Bluetooth Dongle Driver on Windows OS</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/huaweis-future-processor-strategy-drawing-inspiration-from-apples-m-series-and-intels-lunar-lake-for-next-gen-kirin-cpu/"><u>Huawei's Future Processor Strategy: Drawing Inspiration From Apple's M-Series & Intel's Lunar Lake for Next-Gen Kirin CPU</u></a></li>
-<li><a href="https://win-dash.techidaily.com/mp3youtube-music/"><u>MP3への変換：パソコンからYoutube Musicの曲をダウンロードする詳しいガイド</u></a></li>
-<li><a href="https://win11.techidaily.com/1719325122258-overcome-your-win11-chrome-freeze-effective-fix-strategies/"><u>Overcome Your Win11 Chrome Freeze: Effective Fix Strategies</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/select-selections-ideal-pages-for-acquiring-snapalert-tunes-for-2024/"><u>Select Selections Ideal Pages for Acquiring SnapAlert Tunes for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/snapshots-of-life-compreenasive-guide-to-capturing-the-journey-of-playing-sims-4/"><u>Snapshots of Life Compreenasive Guide to Capturing the Journey of Playing Sims 4</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Sony Xperia 10 V? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-behind-closed-doors-of-youtube-a-discovery-manual/"><u>[New] 2024 Approved Behind Closed Doors of YouTube A Discovery Manual</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-mycams-journey-from-concept-to-reality-explored/"><u>[Updated] In 2024, MyCam's Journey From Concept to Reality Explored</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/1-enhanced-video-quality-achieving-superior-dvd-display-beyond-800x600-on-your-samsung-dvd-player/"><u>1. Enhanced Video Quality: Achieving Superior DVD Display Beyond 800X600 on Your Samsung DVD Player</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726029794604-capcut/"><u>CapCutアプリを使って簡単にビデオのオーディオ部分を取得するガイド</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-shatters-boundaries-in-online-shopping-fridays/"><u>Facebook Shatters Boundaries in Online Shopping Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-pause-to-playback-a-new-era-for-instagram/"><u>From Pause to Playback: A New Era for Instagram</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-combine-wmv-videos-for-free-top-5-tools/"><u>In 2024, Combine WMV Videos for Free Top 5 Tools</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-nubia-red-magic-8s-pro-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Nubia Red Magic 8S Pro online without jailbreak</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-privacy-on-display-in-every-push-notification/"><u>Is Your Privacy on Display in Every Push Notification?</u></a></li>
+<li><a href="https://facebook.techidaily.com/national-survey-on-sns-more-harm-than-good/"><u>National Survey on SNS: More Harm Than Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/reasons-for-the-decline-social-vs-forum-dynamics/"><u>Reasons for the Decline: Social vs Forum Dynamics</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-pages-with-strategic-admins/"><u>Securing Your Pages with Strategic Admins</u></a></li>
+<li><a href="https://win-help.techidaily.com/troubleshooting-guide-fixing-a-non-functional-download-button-on-flipbuildercom/"><u>Troubleshooting Guide: Fixing a Non-Functional Download Button on FlipBuilder.com</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/understanding-instagrams-reverse-video-phenomenon/"><u>Understanding Instagram's Reverse Video Phenomenon</u></a></li>
 </ul></div>
 

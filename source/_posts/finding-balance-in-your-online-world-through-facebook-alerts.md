@@ -1,7 +1,7 @@
 ---
 title: Finding Balance in Your Online World Through Facebook Alerts
-date: 2024-09-10T14:50:06.786Z
-updated: 2024-09-11T14:50:06.786Z
+date: 2024-10-30T17:30:01.069Z
+updated: 2024-11-01T16:54:01.238Z
 tags:
   - facebook
 categories:
@@ -21,20 +21,6 @@ thumbnail: https://thmb.techidaily.com/7a63e0844da70bd2c7ec7a4a482b4a25c9f48b524
 
  If you're tired of spending too much time on Facebook, we'll show you how to limit it by setting up a daily time reminder alert using the Facebook app.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to Set a Daily Time Reminder Alert on Facebook
 
 To set a daily time reminder alert on Facebook, follow these steps:
@@ -47,57 +33,9 @@ To set a daily time reminder alert on Facebook, follow these steps:
 
 ![Settings Menu in Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Settings-Menu-in-Facebook-App.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Your Time on Facebook Option in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Your-Time-on-Facebook-Option-in-Facebook-Settings.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Manage Your Time Option in Facebook's Your Time on Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Manage-Your-Time-Option-in-Facebooks-Your-Time-on-Facebook-Settings.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Close
 
@@ -109,41 +47,7 @@ Then:
 
 ![Turning On Daily Time Reminder Option in Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Turning-On-Daily-Time-Reminder-Option-in-Facebook-App.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Choosing the Timeframe for Daily Time Reminder in Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Choosing-the-Timeframe-for-Daily-Time-Reminder-in-Facebook-App.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Close
 
@@ -153,18 +57,22 @@ Close
 
  With the Facebook app, you can[switch between multiple Facebook accounts](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) and easily set a time limit for each.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Use Daily Time Reminder Alert to Limit Your Facebook Usage
 
  Use Facebook's daily time reminder feature to limit your time on Facebook for the day, and the app will notify you when you cross that limit. Having a reminder alert will help you stop scrolling through your feed and boost your productivity.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +81,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-color-mastery-simple-steps-in-photoshop/"><u>[New] Color Mastery Simple Steps in Photoshop</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-strategies-for-efficiently-configuring-facebooks-instream-ads/"><u>[Updated] 2024 Approved Strategies for Efficiently Configuring Facebook's Instream Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/empowering-users-transforming-the-way-you-handle-privacy-on-facebook/"><u>Empowering Users: Transforming the Way You Handle Privacy on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-for-events-advantages-and-pitfalls-explored/"><u>Facebook for Events? Advantages & Pitfalls Explored</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-realme-11-pro-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Realme 11 Pro to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-significant-concepts-in-interactive-tale-design/"><u>In 2024, Significant Concepts in Interactive Tale Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/martial-arts-circles-cut-off-digital-ties/"><u>Martial Arts Circles Cut Off Digital Ties</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-fb-groups-the-power-of-channels/"><u>Navigating FB Groups: The Power of Channels</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-the-best-translator-to-translate-videos-online/"><u>New The Best Translator to Translate Videos Online</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/quick-fix-how-to-clear-and-reboot-network-settings-on-your-mac/"><u>Quick Fix: How to Clear and Reboot Network Settings on Your Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-digital-persona-changing-your-name-in-the-virtual-world/"><u>Revamping Digital Persona: Changing Your Name in the Virtual World</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-evolution-from-twitter-to-facebooks-informed-posts/"><u>Social Media Evolution: From Twitter to Facebook's Informed Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-uninterrupted-how-to-turn-off-facebook-responses/"><u>Stay Uninterrupted: How to Turn Off Facebook Responses</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-metaverse-and-vr-at-a-crossroads-six-key-differences-demystified/"><u>The Metaverse and VR at a Crossroads: Six Key Differences Demystified</u></a></li>
+<li><a href="https://common-error.techidaily.com/the-ultimate-solution-resolving-issues-with-windows-feature-update-to-may-2020-build-1903/"><u>The Ultimate Solution: Resolving Issues with Windows Feature Update to May 2020 (Build 1903)</u></a></li>
+<li><a href="https://media-tips.techidaily.com/ultimate-guide-to-choosing-the-perfect-ipad-screen-recording-software-quality-tips-and-reviews/"><u>Ultimate Guide to Choosing the Perfect iPad Screen Recording Software: Quality Tips & Reviews</u></a></li>
+</ul></div>
 

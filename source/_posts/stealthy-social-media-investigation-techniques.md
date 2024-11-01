@@ -1,7 +1,7 @@
 ---
 title: Stealthy Social Media Investigation Techniques
-date: 2024-10-19T19:09:30.121Z
-updated: 2024-10-26T21:26:47.827Z
+date: 2024-10-25T17:06:34.075Z
+updated: 2024-11-01T17:17:17.271Z
 tags:
   - facebook
 categories:
@@ -48,9 +48,29 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
  There are a few methods people will use to get into a locked Facebook profile. Here's what you need to watch out for because even if you know the techniques below, someone else may try to use them against you.
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Fake Facebook Friends
 
 ![facebook logo with dislike thumbs surrounding](https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d6070583d2a1a451841876e1401.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: TY Lim/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-10-2018-facebook-1065601421)
 
@@ -66,6 +86,13 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
  You can[take control of your Facebook friend settings](https://www.makeuseof.com/tag/facebook-friend-requests-unwritten-rules-hidden-settings-weekly-facebook-tips/) , including hiding your Friends list and restricting who can send you a friend request.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Spyware Apps
 
  Once Facebook finally made it genuinely difficult to view a private Facebook profile, those desperate to view private Facebook profiles turned to more extreme options.
@@ -78,22 +105,16 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
  Check out our[complete malware removal guide](https://www.makeuseof.com/tag/download-operation-cleanup-complete-malware-removal-guide/) or the[steps you should take when you discover malware](https://www.makeuseof.com/tag/10-steps-to-take-when-you-discover-malware-on-your-computer/) . They will help you discover if your device is hiding any spyware or malware and explain how to remove it.
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Password Theft
 
 ![password entry image with padlock facebook color background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/password-entry-image-with-padlock-facebook-color-background.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The third method for accessing a private Facebook profile is straight-up password theft. Facebook password creation rules are decent enough. You need a minimum of eight characters, including upper and lowercase letters, numbers, and symbols.
 
@@ -105,44 +126,17 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
  Otherwise, start using stronger passwords, possibly using one of these[online password generators](https://www.makeuseof.com/tag/5-websites-to-generate-a-safe-and-strong-password/) to get you started. Another thing you can do is take proactive steps before a breach happens. There are several ways you can[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , making it easier to get it back if it's breached.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Phishing and Social Engineering
 
  Another last resort someone might use to access your private Facebook account is to socially engineer one of your friends into giving up their account. Sure, it sounds far-fetched, and like it would be a tremendous amount of effort just to view a private Facebook account. But if you're a high-worth individual or someone really wants to see what your cat looks like, they might go all the way and attempt to scam one of your friends to see your locked account.
 
  If you have friends that constantly seem to have their Facebook accounts breached, you might consider[adding them to a Facebook restriction list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) or[even blocking them entirely](https://www.makeuseof.com/how-to-block-facebook/) .
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What Is a Facebook Locked Profile Viewer?
 
  A Facebook locked profile viewer is as it sounds: a tool that promises to unlock any Facebook account and reveal its contents to you. While the idea of using a free online tool to unlock a private Facebook account sounds tempting, these websites are typically filled with all kinds of scams and other nasties, and you could end up doing real harm to your computer. The threat of malware is an issue, and you could lose more than your Facebook data in an attempt to see someone's locked Facebook profile.
 
  Furthermore, there are also Android APKs that promise to reveal a private Facebook account. An Android APK is[an Android app installation file](https://www.makeuseof.com/tag/what-is-apk-file/) , but you'll likely have to turn off your device security settings to install it. Now, there are places you can[download safe APK files from](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , but a random website promising to reveal private Facebook data isn't one of them. Apps promising to unlock a Facebook account, private or not, are highly likely to be malware and will steal your data instead of granting you access to a private Facebook account.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Facebook Is a Security and Privacy Nightmare
 
@@ -167,19 +161,24 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/updated-quick-fix-for-background-removal-in-figma-projects/"><u>[Updated] Quick Fix for Background Removal in Figma Projects</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/academic-savings-on-tech-navigating-through-lenovos-student-price-cuts/"><u>Academic Savings on Tech: Navigating Through Lenovo's Student Price Cuts</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-the-pitfalls-of-indiscriminate-online-networking/"><u>Avoid the Pitfalls of Indiscriminate Online Networking</u></a></li>
-<li><a href="https://facebook.techidaily.com/awaiting-the-unknown-when-will-oculus-quest-iii-arrive/"><u>Awaiting the Unknown: When Will Oculus Quest III Arrive?</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-practices-addressing-young-users-on-facebook/"><u>Best Practices: Addressing Young Users on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-barriers-in-digital-dialogue-with-facebook-sounds/"><u>Breaking Barriers in Digital Dialogue with Facebook Sounds</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-a-smarter-social-media-networking-strategy/"><u>Building a Smarter Social Media Networking Strategy</u></a></li>
-<li><a href="https://tools.techidaily.com/digisigner/products/"><u>Digisigner's Products</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/from-tweets-to-tomes-the-full-year-in-video-for-2024/"><u>From Tweets to Tomes The Full Year in Video for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-x-to-other-iphone-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone X To Other iPhone devices? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-vivo-y27s-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Vivo Y27s</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-essential-list-of-religious-ringing-sounds/"><u>In 2024, The Essential List of Religious Ringing Sounds</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719151873699-share-fb-content-embrace-transfers-to-top-3-platforms/"><u>Share FB Content: Embrace Transfers to Top 3 Platforms!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/understanding-the-basics-of-audio-crossfading/"><u>Understanding the Basics of Audio Crossfading</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-bridging-content-creators-how-to-join-youtube-and-tiktok-for-2024/"><u>[New] Bridging Content Creators How to Join YouTube & TikTok for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-must-have-top-8-wallpapers-and-themes-for-mbp-users/"><u>[Updated] In 2024, Must-Have Top 8 Wallpapers & Themes for MBP Users</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-uncovering-expert-video-making-talents/"><u>[Updated] Uncovering Expert Video Making Talents</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-virtual-venue-vaults-users/"><u>[Updated] Virtual Venue Vaults Users</u></a></li>
+<li><a href="https://games-able.techidaily.com/does-market-size-equate-to-quality-aaa-publishers-audio-opinion-piece/"><u>Does Market Size Equate to Quality, AAA Publishers? [Audio Opinion Piece]</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722954366044-easy-access-freshly-updated-wireless-adapter-drivers-ready-for-download/"><u>Easy Access: Freshly Updated Wireless Adapter Drivers Ready for Download</u></a></li>
+<li><a href="https://facebook.techidaily.com/experience-seamless-file-retrieval-stellar-releases-redesigned-user-friendly-data-rescue-application/"><u>Experience Seamless File Retrieval: Stellar Releases Redesigned, User-Friendly Data Rescue Application</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-y28-5g-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-tecno-spark-20-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Tecno Spark 20 Data? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/infinite-options-universal-game-availability/"><u>Infinite Options: Universal Game Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-social-bonds-impacts-of-facebooks-redesigned-dating/"><u>New Social Bonds: Impacts of Facebook's Redesigned Dating</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamp-your-online-persona-with-a-new-fb-profile-picture/"><u>Revamp Your Online Persona with a New FB Profile Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/reverse-deletion-restoring-past-facebook-activity/"><u>Reverse Deletion: Restoring Past Facebook Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-strategies-surge-in-popularity-for-online-clans/"><u>Social Strategies: Surge in Popularity for Online Clans</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-your-social-network-with-effective-rule-making/"><u>Steering Your Social Network with Effective Rule-Making</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-efficiently-exiting-social-network-groups/"><u>The Art of Efficiently Exiting Social Network Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-functions-of-facebooks-troubleshooters/"><u>The Essential Functions of Facebook's Troubleshooters</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-future-of-customer-relationships-on-facebooks-newsfeed/"><u>Unveiling the Future of Customer Relationships on Facebook's Newsfeed</u></a></li>
 </ul></div>
 

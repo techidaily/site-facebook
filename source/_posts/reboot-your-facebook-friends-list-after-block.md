@@ -1,7 +1,7 @@
 ---
 title: Reboot Your Facebook Friends List After Block
-date: 2024-10-21T22:13:30.336Z
-updated: 2024-10-26T16:55:44.598Z
+date: 2024-10-26T17:14:19.425Z
+updated: 2024-11-01T17:30:08.902Z
 tags:
   - facebook
 categories:
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
  Use the right option for the situation and you shouldn't have to worry about unblocking and refriending people in the future. Follow our[guide to Facebook blocking](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) for more help.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Refriend Someone on Facebook After Unblocking Them
@@ -58,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 ![Facebook Send Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/Facebook-Send-Friend-Request.png)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Click that to send them a new friend request; if they accept, you'll be friends again. However, keep in mind that if you've had a bad interaction with this person, they may delete your request. If they do, Facebook provides the**Mark as Spam** option to them, which prevents you from sending more friend requests.
@@ -75,16 +75,10 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
  Finally, there's also a chance that your former friend deactivated their Facebook account while you had them blocked. To find out if this is the case, try asking a mutual friend if they're still friends with the person you had blocked. If they aren't using Facebook anymore, you'll have to connect with them elsewhere.
 
 <!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Refriending on Facebook Is Possible, Even After Blocking
@@ -108,17 +102,22 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://howto.techidaily.com/app-wont-open-on-your-lava-storm-5g-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Lava Storm 5G? Here Are All Fixes | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-hidden-meanings-on-facebook-messenger/"><u>Decoding Hidden Meanings on Facebook Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/delay-in-whatsapps-may-15-policy-adjustment-announcement/"><u>Delay in WhatsApp's May 15 Policy Adjustment Announcement</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-the-metaverse-who-really-holds-power/"><u>Demystifying the Metaverse: Who Really Holds Power?</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-the-lifeline-of-your-digital-world-fb-uptime-insights/"><u>Discover the Lifeline of Your Digital World: FB Uptime Insights</u></a></li>
-<li><a href="https://program-issues.techidaily.com/elevate-your-experience-expert-tips-for-eliminating-stutter-and-improving-frame-rates-in-gaming/"><u>Elevate Your Experience: Expert Tips for Eliminating Stutter and Improving Frame Rates in Gaming</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-enhancing-social-media-presence-with-professional-slideshow-making/"><u>In 2024, Enhancing Social Media Presence with Professional Slideshow Making</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/mastery-over-airwaves-recording-techniques-for-live-sounds-for-2024/"><u>Mastery Over Airwaves Recording Techniques for Live Sounds for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/streamlining-gameplay-remote-dualsense-sync-up/"><u>Streamlining Gameplay: Remote DualSense Sync-Up</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/top-4-ways-to-trace-apple-iphone-11-pro-location-drfone-by-drfone-virtual-ios/"><u>Top 4 Ways to Trace Apple iPhone 11 Pro Location | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/virtual-ventures-dive-into-wins11s-game-selection/"><u>Virtual Ventures Dive Into Wins11's Game Selection</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/what-is-triller-a-platform-that-challenges-traditional-video-sites/"><u>What Is Triller? A Platform That Challenges Traditional Video Sites</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-edit-away-bloat-organizing-your-overflow-of-tiktok-saves/"><u>[New] In 2024, Edit Away Bloat Organizing Your Overflow of TikTok Saves</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/closure-of-new-chatgpt-sign-ups-explained-what-to-expect-next/"><u>Closure of New ChatGPT Sign-Ups Explained – What to Expect Next?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-fixes-how-to-recover-forgotten-icloud-password-from-your-apple-iphone-15-pro-max-by-drfone-ios/"><u>Easy Fixes How To Recover Forgotten iCloud Password From your Apple iPhone 15 Pro Max</u></a></li>
+<li><a href="https://techtrends.techidaily.com/eias-are-mandated-by-nepa-for-all-major-federal-actions-that-significantly-affect-the-environment/"><u>EIAs Are Mandated by NEPA for All Major Federal Actions that Significantly Affect the Environment.</u></a></li>
+<li><a href="https://facebook.techidaily.com/ending-general-user-tagging-effect/"><u>Ending General User Tagging Effect</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-quickly-and-discreetly-delete-a-facebook-story/"><u>How to Quickly and Discreetly Delete a Facebook Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-poll-games-on-messenger-to-learn-more-about-your-friends/"><u>How to Use Poll Games on Messenger to Learn More About Your Friends</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-tecno-spark-20-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Tecno Spark 20 Is Unlocked</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-rectify-fb-video-anomaly-with-personal-visage/"><u>In 2024, Rectify FB Video Anomaly with Personal Visage</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/invite-with-a-click-broadening-your-facebook-chats/"><u>Invite with a Click: Broadening Your Facebook Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-it-smart-to-tie-all-your-app-access-through-a-single-social-sign-in/"><u>Is It Smart to Tie All Your App Access Through a Single Social Sign-In?</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/pubg-2024-how-to-overcome-and-resolve-game-launch-failures-quickly-and-easily/"><u>PUBG 2024 - How to Overcome and Resolve Game Launch Failures Quickly & Easily</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/top-microsd-cards-ranked-buyers-guide/"><u>Top MicroSD Cards Ranked : Buyer's Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-facebooks-latest-community-connections/"><u>Unraveling Facebook's Latest Community Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwelcome-websites-the-3-places-without-access-to-facebook/"><u>Unwelcome Websites: The 3 Places Without Access to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-you-need-to-know-about-your-data-post-social-unfollow/"><u>What You Need to Know About Your Data Post-Social Unfollow</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "IOS 14.5: A Blow for Facebook's Data Collection?"
-date: 2024-10-19T17:26:40.163Z
-updated: 2024-10-26T16:36:49.502Z
+date: 2024-10-29T17:30:13.116Z
+updated: 2024-11-01T16:56:04.608Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Does Facebook Make Money?
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
@@ -57,22 +64,15 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Many Users Allow App Tracking?
 
@@ -82,16 +82,16 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
 
@@ -104,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's Likely Response
@@ -135,19 +135,19 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-navigating-the-auditory-waves-of-iphones-podcast-streaming/"><u>[New] Navigating the Auditory Waves of iPhone's Podcast Streaming</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-comprehensive-fb-messenger-recordings-explained/"><u>[Updated] In 2024, Comprehensive FB Messenger Recordings Explained</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-top-8-youtube-ranks-tracker-essentials-guide/"><u>2024 Approved Top 8 YouTube Ranks Tracker Essentials Guide</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/convert-your-web-pages-to-pdf-without-cost-a-step-by-step-guide/"><u>Convert Your Web Pages to PDF without Cost – A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-detox-implementing-facebooks-break-notifications/"><u>Digital Detox: Implementing Facebook's Break Notifications</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-how-facebook-opens-up-with-new-transparency-hub/"><u>Discover How Facebook Opens Up with New Transparency Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/distance-desired-ending-facebook-connections/"><u>Distance Desired: Ending Facebook Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/easy-steps-for-enabling-and-using-sleep-mode-on-messenger-kids/"><u>Easy Steps for Enabling and Using Sleep Mode on Messenger Kids</u></a></li>
-<li><a href="https://facebook.techidaily.com/effortless-music-discovery-integrating-spotify-with-facebook/"><u>Effortless Music Discovery: Integrating Spotify with Facebook</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-master-commanders-unleashed-ranking-7-total-war-champions/"><u>In 2024, Master Commanders Unleashed Ranking 7 Total War Champions</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-step-by-step-download-vimeo-to-mp4-files/"><u>In 2024, Step-by-Step Download Vimeo to MP4 Files</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/music-to-video-seamless-audio-import-for-inshot/"><u>Music to Video Seamless Audio Import for InShot</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/ultimate-guide-resolving-adobe-after-effects-freezingcrash-problems-in-windows-11-and-10/"><u>Ultimate Guide: Resolving Adobe After Effects Freezing/Crash Problems in Windows 11 & 10</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-solutions-for-when-dnssd-dll-files-are-not-found/"><u>Ultimate Solutions for When DNSSD DLL Files Are Not Found</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-complete-code-of-conduct-for-youtube-creators/"><u>[New] 2024 Approved Complete Code of Conduct for YouTube Creators</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-drone-visual-spectrum-20-first-time-free-luts-included-for-2024/"><u>[New] Drone Visual Spectrum - 20 First-Time FREE LUTS Included for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/cookiebot-enabled-sites-enhance-user-experience-and-tracking/"><u>Cookiebot-Enabled Sites: Enhance User Experience & Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/hide-and-seek-in-the-social-media-universe/"><u>Hide-and-Seek in the Social Media Universe</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-get-the-latest-asus-laptop-graphics-card-driver/"><u>How to Get the Latest ASUS Laptop Graphics Card Driver</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-kick-start-your-digital-broadcast-today-for-2024/"><u>How to Kick-Start Your Digital Broadcast Today for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-lava-blaze-2-5g-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Lava Blaze 2 5G by Name | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-visionary-entry-critique-and-dissection/"><u>In 2024, Visionary Entry Critique and Dissection</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-why-watch-hd-switch-to-av1-codec-on-youtube/"><u>In 2024, Why Watch HD? - Switch to AV1 Codec on YouTube</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-5-best-online-mp3-tag-editor-websites-that-you-cant-miss/"><u>New 5 Best Online MP3 Tag Editor Websites That You Cant Miss</u></a></li>
+<li><a href="https://facebook.techidaily.com/post-hack-habits-social-network-headsets-and-user-spending-patterns/"><u>Post-Hack Habits: Social Network Headsets and User Spending Patterns</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryl-sandbergs-influence-on-corporate-culture/"><u>Sheryl Sandberg's Influence on Corporate Culture</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dichotomy-of-utilizing-facebook-for-event-planning-success/"><u>The Dichotomy of Utilizing Facebook for Event Planning Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-the-facebook-papers-everyone-is-talking-about/"><u>What Are The Facebook Papers Everyone Is Talking About?</u></a></li>
 </ul></div>
 

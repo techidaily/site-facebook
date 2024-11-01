@@ -1,7 +1,7 @@
 ---
 title: "Enter the Virtual Domain: Facebook's Pathway to Metaverse"
-date: 2024-10-24T19:14:30.709Z
-updated: 2024-10-26T19:32:10.026Z
+date: 2024-10-26T16:02:40.210Z
+updated: 2024-11-01T16:03:04.229Z
 tags:
   - facebook
 categories:
@@ -36,25 +36,18 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
  With most acquisitions done in private, it’s likely that this number is even higher. But why would Facebook want to spend so much to acquire companies from a variety of industries? While we don't know for sure, what we do know is that they can benefit from knowing customers, unlike other companies.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Effects of a Granular Customer Profile
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
 
- You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
 
 ### Data Brokering and Targeted Ads
 
@@ -65,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Algorithmic Biases
@@ -78,6 +71,13 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
  As a social media platform, Facebook has a long history of racist, sexist, and other morally ambiguous implications of its complex algorithm. While these algorithmic biases don’t appear so critical at first, they do work to shift public perception and rhetoric that can be damaging to societies as a whole.
 
  When it comes to social media, it’s important to remember that access to information on a curated newsfeed always comes with an agenda, even if it wasn’t the original intention.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Security Risks of Granular Data
 
@@ -91,18 +91,18 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
 ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  In 2021, Apple declared war on Facebook and other tech giants by significantly reducing their ad revenue by enabling consumers to opt out of data collection from third-party providers. While this doesn’t mean that no one has access to your data, it did significantly hamper the effectiveness of ads everywhere, especially Facebook.
 
  For this reason, the Facebook Metaverse is stepping up and expanding to other methods of data collection. It’s no longer enough to simply rely on the various data brokers it is affiliated with. As much as possible, Facebook wants to go head-to-head with the other giants in every sense of the word, especially because the war will be won by who can collect the most data from the customers and monetize it.
 
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Perils of Being an Ordinary Person
 
@@ -127,19 +127,19 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-essential-tips-for-vlc-based-online-streaming-for-2024/"><u>[Updated] Essential Tips for VLC-Based Online Streaming for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-free-mindfulness-melodies/"><u>[Updated] In 2024, Free Mindfulness Melodies</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-privacy-leaked-facebook-secrets-exposed/"><u>Decoding Privacy: Leaked Facebook Secrets Exposed</u></a></li>
-<li><a href="https://facebook.techidaily.com/delete-fb-view-records-a-guide-to-a-cleaner-profile/"><u>Delete FB View Records: A Guide to a Cleaner Profile</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/delving-into-sns-hdr-pros-merits-and-peer-comparisons-for-2024/"><u>Delving Into SNS HDR Pro's Merits & Peer Comparisons for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-identity-shift-step-by-step-guide-to-renaming-fb-profile/"><u>Digital Identity Shift: Step-by-Step Guide to Renaming FB Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/digitized-dilemminas-the-complex-costs-of-social-media/"><u>Digitized Dilemminas: The Complex Costs of Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/direct-access-to-groups-with-facebooks-channels-feature/"><u>Direct Access to Groups with Facebook's Channels Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/dont-give-strangers-access-to-your-social-profile/"><u>Don't Give Strangers Access to Your Social Profile</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/get-ai-to-its-peak-with-zero-cost-free-copilot-and-turbo-synergy/"><u>Get AI to Its Peak with Zero Cost: Free Copilot and Turbo Synergy</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-cartoonize-your-memories-a-simple-guide-to-converting-videos-for-2024/"><u>New Cartoonize Your Memories A Simple Guide to Converting Videos for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/precision-driving-devices-steering-wheel-versus-screen/"><u>Precision Driving Devices: Steering Wheel Versus Screen</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Thinking About Changing Your Netflix Region Without a VPN On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/wireless-driver-updates-for-windows-10-and-11-ensuring-your-network-connectivity/"><u>Wireless Driver Updates for Windows 10 & 11: Ensuring Your Network Connectivity</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-future-vistas-in-the-metaverse-top-30-encouraging-quotes/"><u>[New] 2024 Approved Future Vistas in the Metaverse Top 30 Encouraging Quotes</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-watcher-to-writer-how-to-set-up-a-sports-channel-on-macos/"><u>[New] In 2024, From Watcher to Writer How to Set Up a Sports Channel on macOS</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovating-visual-stories-mastering-photo-distortions-in-ps/"><u>[New] Innovating Visual Stories Mastering Photo Distortions in PS</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unlocking-youtube-subtitles-srt-3-steps-guide/"><u>[New] Unlocking YouTube Subtitles (SRT) - 3 Steps Guide</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-honor-x50i-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Honor X50i</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/breaking-down-instagrams-hashtag-system-tips-and-techniques-for-2024/"><u>Breaking Down Instagram's Hashtag System Tips and Techniques for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/demystifying-hp-bios-settings-essential-tips-for-recognizing-and-utilizing-bootable-usb-drives-successfully/"><u>Demystifying HP BIOS Settings: Essential Tips for Recognizing and Utilizing Bootable USB Drives Successfully</u></a></li>
+<li><a href="https://games-able.techidaily.com/explore-and-master-your-way-through-youtubes-mini-gaming/"><u>Explore & Master Your Way Through YouTube's Mini Gaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-decision-temporary-ban-on-trump-proves-prudent/"><u>Facebook's Decision: Temporary Ban on Trump Proves Prudent</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-post-anonymously-in-a-facebook-group/"><u>How to Post Anonymously in a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-meta-verification-a-prudent-expense/"><u>Is Meta Verification a Prudent Expense?</u></a></li>
+<li><a href="https://facebook.techidaily.com/its-not-just-you-facebook-whatsapp-and-instagram-are-down-right-now/"><u>It's Not Just You: Facebook, WhatsApp, and Instagram Are Down Right Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/path-to-regain-lost-fb-access-without-previous-keys/"><u>Path to Regain Lost FB Access without Previous Keys</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-cut-off-removing-someone-from-your-network/"><u>Social Cut-Off: Removing Someone From Your Network</u></a></li>
 </ul></div>
 

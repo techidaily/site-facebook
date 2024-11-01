@@ -1,7 +1,7 @@
 ---
 title: How to Disable Broadcast Message (@Everyone)
-date: 2024-09-10T14:50:06.302Z
-updated: 2024-09-11T14:50:06.302Z
+date: 2024-10-28T16:28:36.576Z
+updated: 2024-11-01T16:43:13.990Z
 tags:
   - facebook
 categories:
@@ -19,71 +19,15 @@ thumbnail: https://thmb.techidaily.com/f852052f5f905f2c87144be9d0c46cf8e36314379
 
  If you don't want to receive these batch notifications, we've got you covered. Read on to learn how to turn off the annoying @everyone tag on Facebook.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to Turn Off the @everyone Tag on Facebook
 
  Here's how to turn off the pesky notifications without[leaving a Facebook group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) :
 
 ![screenshot showing facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/screenshot-showing-facebook-settings-menu.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![screenshot showing facebook notification settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/screenshot-showing-facebook-notification-settings-page.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![screenshot showing facebook tag page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/screenshot-showing-facebook-tag-page.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Close
 
@@ -94,19 +38,12 @@ Close
 
  That's all there is to it. You'll no longer receive notifications when someone uses the @everyone tag in a group post. You can further customize the notifications you receive on the**Notifications Settings** page to receive even fewer notifications.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Why You Should Turn Off @everyone Tags on Facebook
 
@@ -116,19 +53,12 @@ Close
 
  Turning off the Batch @everyone mentions toggle can be a great way to take control of your notifications and stop getting spammed by overzealous group admins. You will still get notified of personal tags, so you won't miss any vital conversations.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Take Control of Your Facebook Tags
 
@@ -136,14 +66,11 @@ Close
 
  You don't have to leave the group or mute the conversation if you don't want to—just turn off the Batch @everyone mentions toggle and be done with it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -152,4 +79,23 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-mastering-the-mechanics-perfecting-every-snaps-boomerang-effect-for-2024/"><u>[New] Mastering the Mechanics Perfecting Every Snap's Boomerang Effect for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-preventing-virtual-reality-queasiness/"><u>[New] Preventing Virtual Reality Queasiness</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-revealing-the-best-in-class-splitcams-videography-edge-for-2024/"><u>[New] Revealing the Best in Class SplitCam's Videography Edge for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-prime-mobile-capture-the-ultimate-10-video-friendly-phones/"><u>2024 Approved Prime Mobile Capture The Ultimate 10 Video-Friendly Phones</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-the-benefits-of-claude-artificial-intelligence-an-in-depth-guide/"><u>Exploring the Benefits of Claude Artificial Intelligence: An In-Depth Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-flagging-minors-facebook-page/"><u>Guidelines for Flagging Minor's Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/hack-proofing-your-life-on-social-platform-fb-with-these-7-rules/"><u>Hack-Proofing Your Life on Social Platform (FB) with These 7 Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-facebooks-new-soundmojis-on-messenger/"><u>How to Use Facebook's New Soundmojis on Messenger</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-vivo-y100i-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Vivo Y100i Phone? Unlock It Now</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-samsung-galaxy-f04-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Samsung Galaxy F04 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-threat-to-facebooks-data-gathering/"><u>IOS 14.5: Threat to Facebook's Data Gathering?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leading-picks-unlimited-photo-sharing-platforms/"><u>Leading Picks Unlimited Photo Sharing Platforms</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/masterful-ai-prompt-crafting-with-these-top-5-revolutionary-ai-assistant-tools/"><u>Masterful AI Prompt Crafting with These Top 5 Revolutionary AI Assistant Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-a-day-offline-from-fb-friends/"><u>Navigating a Day Offline From FB Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/refusing-new-whatsapp-policies-account-functionality-unchanged/"><u>Refusing New WhatsApp Policies: Account Functionality Unchanged</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-in-the-facebook-files-that-shocks-us/"><u>What’s in the Facebook Files That Shocks Us?</u></a></li>
+</ul></div>
 

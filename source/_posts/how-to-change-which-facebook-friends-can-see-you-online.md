@@ -1,7 +1,7 @@
 ---
 title: How to Change Which Facebook Friends Can See You Online
-date: 2024-10-22T18:59:25.781Z
-updated: 2024-10-26T18:19:32.846Z
+date: 2024-10-31T16:36:19.475Z
+updated: 2024-11-01T17:09:15.128Z
 tags:
   - facebook
 categories:
@@ -50,13 +50,6 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 
  But what if you don't want certain people to see you online or you don't want your online status reflected at all? Here's how to adjust your Active Status settings so that only certain people can see you online on Facebook...
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Change Who Can See You Online on Facebook (Web)
 
  To alter the specific people who can see you online on Facebook, you should adjust your Active Status settings on the browser version of the platform. If you really don't want people to see you online, we recommend switching off your Active Status on the website as well as the app.
@@ -73,6 +66,13 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Switch Off Facebook Online Status Completely
 
  So what if you don't want anyone to see you online on Facebook? You can appear offline or invisible on Facebook at all times if you want to.
@@ -83,29 +83,16 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 
 ![facebook chat settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-chat-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -139,13 +126,21 @@ This is different from a full Facebook block.
 3. Select**Block** .  
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
 4. Choose the option for**Block messages and calls** .  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
@@ -173,18 +168,22 @@ This is different from a full Facebook block.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-10-best-youtube-conversion-tools-for-webm-format-for-2024/"><u>[New] 10 Best YouTube Conversion Tools for WebM Format for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-blueprint-strategies-for-authentic-life-enrichment-videos/"><u>[New] 2024 Approved Blueprint Strategies for Authentic Life Enrichment Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/fostering-bonds-uncover-hidden-stories-in-chats/"><u>Fostering Bonds: Uncover Hidden Stories in Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-delete-a-story-on-facebook/"><u>How to Delete a Story on Facebook</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-resolve-itel-p40plus-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Itel P40+ Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-mastering-quadcopter-power-5-premium-engine-choices/"><u>In 2024, Mastering Quadcopter Power 5 Premium Engine Choices</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-teenagers-facebook-settings-for-privacy-control/"><u>Navigating Teenager's Facebook Settings for Privacy Control</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/peeking-into-mondlys-instructional-design/"><u>Peeking Into Mondly’s Instructional Design</u></a></li>
-<li><a href="https://facebook.techidaily.com/rumored-ban-for-transparent-commerce-on-facebook/"><u>Rumored Ban for Transparent Commerce on Facebook</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/seamless-visuals-on-screen-zooming-into-clarity/"><u>Seamless Visuals on Screen Zooming Into Clarity</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-art-of-crafting-impactful-documentary-stories/"><u>The Art of Crafting Impactful Documentary Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-crossroads-personal-security-concerns-with-using-facebook-as-an-account-access-point/"><u>The Crossroads: Personal Security Concerns with Using Facebook as an Account Access Point</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-as-a-gateway-for-instagrams-2fa-messages/"><u>WhatsApp as a Gateway for Instagram's 2FA Messages</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-prime-free-enhancement-tool-for-pics-onlineapp/"><u>[New] In 2024, Prime Free Enhancement Tool for Pics Online/App</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-unveiling-youtubes-hidden-gems-the-comment-space/"><u>[New] Unveiling YouTube's Hidden Gems The Comment Space</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-optimizing-video-saving-a-guide-to-pc-mac-and-mobile-devices-for-2024/"><u>[Updated] Optimizing Video Saving A Guide to PC, Mac & Mobile Devices for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1154025-9781577319535-christian-mystics/"><u>Christian Mystics | Free Book</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/eliminate-overworked-cpus-with-wmi/"><u>Eliminate Overworked CPUs with WMI</u></a></li>
+<li><a href="https://facebook.techidaily.com/fast-track-guide-modifying-your-age-and-birthdate-in-fb-settings/"><u>Fast-Track Guide: Modifying Your Age & Birthdate in FB Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/guardrails-for-gaining-safely-in-the-social-sphere/"><u>Guardrails for Gaining Safely in the Social Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-pitfalls-solutions-for-11-troublesome-mistakes/"><u>Mastering Facebook's Pitfalls: Solutions for 11 Troublesome Mistakes</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-whatsapp-dialogue-with-social-media-photos/"><u>Personalizing Your WhatsApp Dialogue With Social Media Photos</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolving-visual-glitches-and-stutter-in-warzone-gameplay/"><u>Resolving Visual Glitches and Stutter in Warzone Gameplay</u></a></li>
+<li><a href="https://facebook.techidaily.com/supercharge-your-social-media-with-these-top-fb-app-configs/"><u>Supercharge Your Social Media with These Top FB App Configs</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ethics-behind-virtual-dissension-tools/"><u>The Ethics Behind Virtual Dissension Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-foundation-of-robust-online-communities-rules-and-modifications/"><u>The Foundation of Robust Online Communities: Rules & Modifications</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-walkthrough-for-iphone-backups-on-ios-devices-and-macs-via-icloud/"><u>The Ultimate Walkthrough for iPhone Backups on iOS Devices & Macs via iCloud</u></a></li>
+<li><a href="https://facebook.techidaily.com/toggle-facebooks-nighttime-display-setting/"><u>Toggle Facebook's Nighttime Display Setting</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/ultimate-guide-moving-your-iphoneipad-videos-onto-an-exterior-hard-drive/"><u>Ultimate Guide: Moving Your iPhone/iPad Videos Onto an Exterior Hard Drive</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlocking-access-royalty-free-clip-art-tips-for-2024/"><u>Unlocking Access Royalty-Free Clip Art Tips for 2024</u></a></li>
 </ul></div>
 

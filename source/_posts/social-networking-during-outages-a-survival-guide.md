@@ -1,7 +1,7 @@
 ---
 title: "Social Networking During Outages: A Survival Guide"
-date: 2024-09-10T14:50:22.416Z
-updated: 2024-09-11T14:50:22.416Z
+date: 2024-10-26T16:52:42.449Z
+updated: 2024-11-01T16:55:13.098Z
 tags:
   - facebook
 categories:
@@ -19,45 +19,14 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
 
  We'll help you get to the bottom of this. Let's look at how to find out if Facebook is down and how to know when it's working again if so.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Is Facebook Down? Here's How to Find Out
 
  First, let's cover how to figure out if Facebook is down for everyone, or if it's just a problem for you.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 1\. Try Opening Other Websites
 
@@ -73,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
 
  In case you can't open any websites on your network, see[how to troubleshoot your home internet connection](https://www.makeuseof.com/tag/7-simple-steps-diagnose-network-problem/) for help.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Check an Outage Detector Website
 
  Once you've confirmed that your network connection is working properly, you should next check to see if other people have reported a problem accessing Facebook. There are plenty of websites to do this, such as[Downdetector](https://downdetector.com/) .
@@ -87,45 +63,12 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
 
 ![Down For Everyone Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Down-For-Everyone-Facebook.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 3\. See What People Say on Twitter
 
@@ -135,35 +78,7 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
 
 ![Twitter Facebook Down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Twitter-Facebook-Down.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  If you've seen strong evidence that Facebook is down from both outage detectors and Twitter, chances are that Facebook is indeed down for everyone and not just you.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to Find Out When Facebook Comes Back Online
 
@@ -189,27 +104,34 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
 
  Keeping an article open in a separate tab and checking over that every once in a while is more efficient than refreshing Facebook over and over.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Get Alerts When Facebook Goes Down in the Future
 
  If you're a heavy Facebook user and want to know quickly next time it goes down, you can use a free service like[DownNotifier.com](https://www.downnotifier.com/) . Just enter**<www.facebook.com>** into its URL bar, along with your email address for notification, and choose**When the site is offline** .
 
 ![DownNotifier Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/DownNotifier-Facebook.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
-
  You'll get an email when Facebook goes down, clueing you into the issue before you even check the site yourself.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## When Facebook Is Down, This Is What You Do
 
@@ -217,14 +139,11 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
 
  In this case, don't despair; there's plenty you can do online to kill time, even without Facebook. It could even be an excuse to go outside and get away from your devices for a while.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -233,12 +152,23 @@ thumbnail: https://thmb.techidaily.com/cdf4d7c5a6e11bc2ecb600573fb51d6d46dc48a05
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-reverse-video-order-on-your-ios-gadget/"><u>[New] In 2024, Reverse Video Order on Your iOS Gadget</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-from-novice-to-expert-your-pathway-in-instagram-reels/"><u>[Updated] In 2024, From Novice to Expert Your Pathway in Instagram Reels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-essential-user-manual-for-music-licensing-on-insta/"><u>2024 Approved The Essential User Manual for Music Licensing on Insta</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/advanced-bootstrap-form-building-guide-with-creative-tims-expert-tips/"><u>Advanced Bootstrap Form Building Guide with Creative Tim's Expert Tips</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-infinix-zero-5g-2023-turbo-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Infinix Zero 5G 2023 Turbo Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/comprehensive-guide-to-websites-for-text-alteration-for-2024/"><u>Comprehensive Guide to Websites for Text Alteration for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/digital-dilemma-unexpectedly-barred-content-for-2024/"><u>Digital Dilemma Unexpectedly Barred Content for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/high-tech-hustle-your-guide-to-evasion-strategies/"><u>High-Tech Hustle: Your Guide to Evasion Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/increasing-visibility-of-jobs-with-facebook-posts/"><u>Increasing Visibility of Jobs with Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-photodna-process-for-identifying-forged-images/"><u>Insight Into PhotoDNA: Process for Identifying Forged Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-the-new-language-of-facebooks-updated-page-titles/"><u>Interpreting The New Language of Facebook's Updated Page Titles</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/painless-percussions-reduction-in-garageband/"><u>Painless Percussions Reduction in Garageband</u></a></li>
+<li><a href="https://facebook.techidaily.com/perfecting-facebook-photo-selections/"><u>Perfecting Facebook Photo Selections</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-tech-titans-meet-zucks-pet-the-crypto-goat/"><u>The Tech Titans Meet: Zuck's Pet, the Crypto-Goat</u></a></li>
+<li><a href="https://facebook.techidaily.com/unavailable-zones-the-3-countries-without-facebook/"><u>Unavailable Zones: The 3 Countries Without Facebook</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/w64-mp3-wav/"><u>무료 W64 오디오 파일 MP3에서 WAV으로 변환 - 모바이비</u></a></li>
+</ul></div>
 

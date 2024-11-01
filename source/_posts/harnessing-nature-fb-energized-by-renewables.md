@@ -1,7 +1,7 @@
 ---
 title: "Harnessing Nature: FB Energized by Renewables"
-date: 2024-10-20T19:23:13.585Z
-updated: 2024-10-26T19:06:57.696Z
+date: 2024-10-27T16:53:40.339Z
+updated: 2024-11-01T17:00:41.707Z
 tags:
   - facebook
 categories:
@@ -41,10 +41,16 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Has Already Set Its Next Environmental Target
@@ -52,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
@@ -83,18 +89,24 @@ So, things may, finally, be moving in the right direction.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-choreographing-a-stellar-tiktok-wrap-up-for-2024/"><u>[New] Choreographing a Stellar TikTok Wrap-Up for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-boost-views-top-10-free-tools-for-custom-youtube-thumbnails-for-2024/"><u>[Updated] Boost Views Top 10 Free Tools for Custom YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-ensuring-effective-monetization-strategies-for-yt-channels/"><u>[Updated] Ensuring Effective Monetization Strategies for YT Channels</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-unlocking-the-potential-of-vocal-talent-for-engaging-videos-for-2024/"><u>[Updated] Unlocking the Potential of Vocal Talent for Engaging Videos for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/10-must-have-apps-for-effective-social-media-timing/"><u>10 Must-Have Apps for Effective Social Media Timing</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-secure-steps-to-regain-lost-fb-account-control/"><u>8 Secure Steps to Regain Lost FB Account Control</u></a></li>
-<li><a href="https://facebook.techidaily.com/alternative-social-networks-unpacked/"><u>Alternative Social Networks Unpacked</u></a></li>
-<li><a href="https://facebook.techidaily.com/android-tv-synergy-a-modern-setup-guide/"><u>Android-TV Synergy: A Modern Setup Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-push-notifications-predicting-your-choices-truth-or-chance/"><u>Are Push Notifications Predicting Your Choices? Truth or Chance?</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-an-engaging-social-network-circle/"><u>Crafting an Engaging Social Network Circle</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/essential-tips-transferring-reclaimed-inboxes-to-exchange/"><u>Essential Tips: Transferring Reclaimed Inboxes to Exchange</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/revive-your-ps5-controller-solutions-when-it-refuses-to-charge/"><u>Revive Your PS5 Controller: Solutions When It Refuses to Charge</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/toms-tech-reviews-in-depth-insights-on-the-latest-hardware/"><u>Tom's Tech Reviews: In-Depth Insights on the Latest Hardware</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-from-content-creator-to-cash-magnet-instagrams-guide/"><u>[New] From Content Creator to Cash Magnet Instagram's Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-depth-walkthrough-editing-youtube-videos-in-wmm/"><u>[New] In-Depth Walkthrough Editing YouTube Videos in WMM</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-removing-unneeded-podcast-advice-from-spotify/"><u>[New] Removing Unneeded Podcast Advice From Spotify</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-a-comprehensive-guide-to-locating-and-creating-superb-instagram-alarms/"><u>[Updated] A Comprehensive Guide to Locating and Creating Superb Instagram Alarms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-disrupted-beats-best-mobile-music-distortors/"><u>[Updated] In 2024, Disrupted Beats Best Mobile Music Distortors</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-techniques-for-gh-video-logging/"><u>[Updated] In 2024, Techniques for GH Video Logging</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-core-framework-concept/"><u>Exploring Facebook's Core Framework Concept</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/global-scope/"><u>Global Scope</u></a></li>
+<li><a href="https://facebook.techidaily.com/hot-off-the-press-fbs-latest-videos/"><u>Hot Off The Press: FB's Latest Videos</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-successfully-start-your-mass-effect-legendary-journey-tips-and-solutions/"><u>How to Successfully Start Your Mass Effect Legendary Journey - Tips & Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-access-to-fb-content-download-tips-and-tricks/"><u>Instant Access to Fb Content: Download Tips & Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-images-under-lock-and-key-on-facebook/"><u>Keeping Your Images Under Lock and Key on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/linked-lives-online-8-approaches-to-digital-kinship/"><u>Linked Lives Online: 8 Approaches to Digital Kinship</u></a></li>
+<li><a href="https://facebook.techidaily.com/mysterious-disappearance-feature-in-social-chatting-app/"><u>Mysterious Disappearance Feature in Social Chatting App</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-stability-problems-six-ways-to-enhance-your-playtime-with-call-of-duty-modern-warfare-2-on-pc/"><u>Overcoming Stability Problems – Six Ways to Enhance Your Playtime with Call of Duty Modern Warfare 2 on PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebranding-in-the-social-realm-update-your-profile-pic/"><u>Rebranding in the Social Realm: Update Your Profile Pic</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/tiny-tycoons-car-contests/"><u>Tiny Tycoons' Car Contests</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-collaborative-efforts-8-must-have-facebook-tools/"><u>Transforming Collaborative Efforts: 8 Must-Have Facebook Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-whitelisting/"><u>What Is Facebook Whitelisting?</u></a></li>
 </ul></div>
 

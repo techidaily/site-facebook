@@ -1,7 +1,7 @@
 ---
 title: Steering Clear of Unwanted Facebook Screenshots
-date: 2024-10-21T22:14:07.502Z
-updated: 2024-10-26T18:57:21.444Z
+date: 2024-10-31T17:20:23.178Z
+updated: 2024-11-01T17:27:22.667Z
 tags:
   - facebook
 categories:
@@ -37,16 +37,16 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 * **Location:** Does your photo reveal where you are? If you're at home, have you just revealed your home address to the world?
 * **Embarrassment:** Has someone posted a snap of you in a compromising position? You probably don't want your family or your boss to see it.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook and Photo Privacy
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Inline Privacy Controls
 
@@ -60,6 +60,19 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Old Photos
 
  OK, so making sure your new photos are private is quite straightforward, but what about your old photos?[Depending on your addiction level](https://www.makeuseof.com/tag/social-media-detox/) , we could be talking about thousands of images.
@@ -67,6 +80,13 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  Luckily, it is possible to change the privacy level of your old snaps. You have three methods open to you:
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
@@ -84,39 +104,19 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Pro Tip: Use the Activity Log
 
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Photos You're Tagged In
@@ -158,21 +158,24 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-premier-collection-top-10-audio-capturers-on-spotify-for-2024/"><u>[New] Premier Collection Top 10 Audio Capturers on Spotify for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unlock-iphones-full-video-loop-potential/"><u>[New] Unlock iPhone's Full Video Loop Potential</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-filmmakers-companion-the-finest-15-gopro-cine-luts-unveiled/"><u>2024 Approved Filmmaker's Companion The Finest 15 GOPRO Cine LUTs Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/apple-and-facebook-charting-two-unrelated-futures/"><u>Apple and Facebook: Charting Two Unrelated Futures</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/are-video-selfies-on-instagram-really-genuine-for-2024/"><u>Are Video Selfies on Instagram Really Genuine for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/beat-blizzards-wow-lags-tips-for-a-smooth-gaming-experience/"><u>Beat Blizzard's WoW Lags: Tips for a Smooth Gaming Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/brands-gain-foothold-with-instagram-and-facebook-ad-integrations/"><u>Brands Gain Foothold with Instagram and Facebook Ad Integrations</u></a></li>
-<li><a href="https://facebook.techidaily.com/connectivity-cash-flow-the-online-money-mechanics/"><u>Connectivity Cash Flow: The Online Money Mechanics</u></a></li>
-<li><a href="https://facebook.techidaily.com/control-digital-overload-minimize-suggested-feeds/"><u>Control Digital Overload: Minimize Suggested Feeds</u></a></li>
-<li><a href="https://facebook.techidaily.com/current-shareholders-of-facebook/"><u>Current Shareholders of Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/cybernetic-cautionary-tales-decode-these-9-indicators-of-a-social-snatch/"><u>Cybernetic Cautionary Tales: Decode These 9 Indicators of a Social Snatch</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-defenders-guide-skip-three-snooping-apps/"><u>Data Defender's Guide: Skip Three Snooping Apps</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/engineers-rejoice-new-300-risc-v-laptop-by-innovative-chinese-company/"><u>Engineers Rejoice: New $300 RISC-V Laptop by Innovative Chinese Company</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/fixing-critical-system-failures-in-depth-solutions-for-the-infamous-blue-screen-and-kernel-data-errors-in-webpages/"><u>Fixing Critical System Failures: In-Depth Solutions for the Infamous Blue Screen and Kernel Data Errors in Webpages</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On OnePlus 12 | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722970862344-zero-cost-full-functionality-download-the-qualcomm-atheros-ar938x-driver-now/"><u>Zero Cost, Full Functionality - Download the Qualcomm Atheros AR938X Driver Now!</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-streamlining-your-social-space-stop-following-steps/"><u>[New] 2024 Approved Streamlining Your Social Space Stop Following Steps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-from-drafts-to-masterpieces-top-10-essential-graphic-design-tools-for-2024/"><u>[New] From Drafts to Masterpieces Top 10 Essential Graphic Design Tools for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-elite-filmmaking-tools-for-gopro/"><u>[Updated] Elite Filmmaking Tools for GoPro</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-tiktok-pfp-innovation-standout-techniques-to-notice-for-2024/"><u>[Updated] TikTok PFP Innovation Standout Techniques to Notice for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/best-2024-reviews-for-stronger-cell-phone-connectivity-solutions/"><u>Best 2024 Reviews for Stronger Cell Phone Connectivity Solutions</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effective-solutions-for-the-persistent-halo-e4ue4-crash-glitches-edition/"><u>Effective Solutions for the Persistent Halo E4UE4 Crash Glitches Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/group-features-face-off-casual-vs-career-focused-networking-spaces/"><u>Group Features Face-Off: Casual Vs. Career-Focused Networking Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-harmony-with-facebooks-modern-group-management-functionalities/"><u>Harnessing Harmony with Facebook's Modern Group Management Functionalities</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-oppo-find-n3-flip-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Oppo Find N3 Flip to iPad | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-realme-c55-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-leading-free-graphic-websites-for-quality-vectors/"><u>In 2024, Leading Free Graphic Websites for Quality Vectors</u></a></li>
+<li><a href="https://facebook.techidaily.com/pretender-on-linkedin-check-for-copycat-profiles/"><u>Pretender on LinkedIn: Check for Copycat Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-rankings-which-is-safer-meta-or-fb-for-rift-2/"><u>Privacy Rankings: Which Is Safer, Meta or FB for Rift 2?</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-digital-districts-with-facebook-written-content/"><u>Redefining Digital Districts with Facebook' Written Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-your-secrets-top-7-steps-for-fb-privacy/"><u>Safeguard Your Secrets: Top 7 Steps for FB Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamlessly-integrate-friends-on-facebook-messenger/"><u>Seamlessly Integrate Friends on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-who-sees-you-on-social-grids/"><u>Steering Who Sees You on Social Grids</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/uncovering-optimal-digital-patterns-for-learning-languages/"><u>Uncovering Optimal Digital Patterns for Learning Languages</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-numbers-facebook-users-leaving/"><u>Uncovering the Numbers: Facebook Users Leaving</u></a></li>
 </ul></div>
 

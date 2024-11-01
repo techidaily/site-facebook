@@ -1,7 +1,7 @@
 ---
 title: Frequent Digital Breaches on Social Platforms
-date: 2024-10-20T16:22:18.837Z
-updated: 2024-10-26T16:24:12.367Z
+date: 2024-10-28T17:11:08.513Z
+updated: 2024-11-01T16:42:36.652Z
 tags:
   - facebook
 categories:
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
 
 ![Woman in bedroom on bed lit by her laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-in-bed-in-dark-room-lit-by-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Certain things can make you more or less likely to experience a social media account hack.
 
  Fame or authority are two such characteristics. For example, pro-Syrian regime activists briefly broke into CNN’s social media accounts in 2014 to post content reflecting their ideals. The news network’s broad reach, respect in the industry, and large audience made it a prime target.
@@ -55,19 +62,6 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
  Sometimes, the fault lies with particular social media sites.[In one instance](https://journal.uptimeinstitute.com/too-big-to-fail-facebooks-global-outage/) , Facebook arguably had enough to deal with after a six-hour global outage cost it approximately $60 million in revenue. That issue occurred in October 2021.
 
  Several months earlier, information from a massive Facebook data leak in 2019 became public. That incident affected more than 530 million users worldwide, but Facebook representatives opted not to notify them individually.
-
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What Are the Risks Associated With a Social Media Hack?
 
@@ -84,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
  Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Handle a Social Media Hack
@@ -95,10 +89,16 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
 ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
@@ -110,10 +110,10 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
  And review any options for[strengthening your social media security](https://www.makeuseof.com/how-to-hack-facebook/) . Facebook’s Security Checkup walks you through suggested improvements to make. It’s a good starting point if you use that site.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## You Can Avoid a Social Media Hack
@@ -135,18 +135,19 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-chucklechamber-a-universe-of-comedy-creation-online-for-2024/"><u>[Updated] ChuckleChamber A Universe of Comedy Creation Online for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-combine-power-tweeting-and-snapping-with-snapchat-for-2024/"><u>[Updated] Combine Power Tweeting and Snapping with Snapchat for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-embedding-youtube-videos-tips-for-a-smooth-ppt-transition/"><u>[Updated] In 2024, Embedding YouTube Videos Tips for a Smooth PPT Transition</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-mastering-slomo-videography-comprehensive-review/"><u>[Updated] In 2024, Mastering SloMo Videography - Comprehensive Review</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-superior-architects-cutting-edge-instagram-hlv-makers/"><u>[Updated] Superior Architects Cutting-Edge Instagram HLV Makers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-transforming-your-twitter-feed-adding-custom-thumbnails-to-videos/"><u>2024 Approved Transforming Your Twitter Feed Adding Custom Thumbnails to Videos</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/8-ways-to-fix-external-hard-drive-not-showing-up-problem-in-mac/"><u>8 Ways to Fix External Hard Drive Not Showing Up Problem in Mac</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-veiled-world-of-shadowbanned-content/"><u>Deciphering the Veiled World of Shadowbanned Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebook-profiles-versus-usernames-in-digital-spaces/"><u>Decoding Facebook Profiles Versus Usernames in Digital Spaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-metas-choice-for-holding-back-default-encryption/"><u>Decoding Meta's Choice for Holding Back Default Encryption</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dynamics-4-social-medias-reshaped-landscapes/"><u>Digital Dynamics: 4 Social Media's Reshaped Landscapes</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-engineering-echoing-edits/"><u>In 2024, Engineering Echoing Edits</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-skype-capture-methods-seamless-transition-between-oses/"><u>In 2024, Skype Capture Methods Seamless Transition Between OSes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-superior-cameras-for-clear-smooth-podcast-sessions/"><u>[Updated] Superior Cameras for Clear, Smooth Podcast Sessions</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/diagnosing-and-fixing-the-problem-of-stopped-applicationexe/"><u>Diagnosing and Fixing the Problem of Stopped 'Application.exe'</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/different-methods-to-unlock-your-iphone-xr-by-drfone-ios/"><u>Different Methods To Unlock Your iPhone XR</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/il-meglio-dei-programmi-gratuiti-per-la-trasformazione-di-musica-e-audio-top-15-raccomandati/"><u>Il Meglio Dei Programmi Gratuiti per La Trasformazione Di Musica E Audio: Top 15 Raccomandati</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-oppo-a18-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Oppo A18 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-assets-in-nfts/"><u>Instagram Assets in NFTs</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-exorcism-how-to-delete-unwanted-images/"><u>Instagram Exorcism: How to Delete Unwanted Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-online-communities-fb-vs-linkedins-approach/"><u>Navigating Online Communities: FB Vs. LinkedIn's Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/savor-the-sounds-of-cocoa-chocolate-in-diverse-dialects/"><u>Savor the Sounds of Cocoa: Chocolate in Diverse Dialects</u></a></li>
+<li><a href="https://facebook.techidaily.com/security-alert-the-potential-hazards-of-facebook-games/"><u>Security Alert: The Potential Hazards of Facebook Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platforms-enlisted-in-joes-covid-19-quest/"><u>Social Platforms Enlisted in JOE'S COVID-19 Quest</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-chronicles-of-facebooks-5-fatal-errors-to-its-users/"><u>The Chronicles of Facebook's 5 Fatal Errors to Its Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-choosing-the-most-reliable-external-bd-drive-for-your-needs-2024-edition/"><u>Ultimate Guide to Choosing the Most Reliable External BD Drive for Your Needs, 2024 Edition</u></a></li>
 </ul></div>
 

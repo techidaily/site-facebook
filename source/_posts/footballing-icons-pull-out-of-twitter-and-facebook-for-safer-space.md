@@ -1,7 +1,7 @@
 ---
 title: Footballing Icons Pull Out of Twitter & Facebook for Safer Space
-date: 2024-09-10T14:51:24.317Z
-updated: 2024-09-11T14:51:24.317Z
+date: 2024-10-27T17:06:55.662Z
+updated: 2024-11-01T16:16:13.113Z
 tags:
   - facebook
 categories:
@@ -19,33 +19,10 @@ thumbnail: https://thmb.techidaily.com/6368130d53d4726baee2d761c0d301b46230227e2
 
  England's top soccer leagues are taking a social media stand against the ongoing abuse and discrimination experienced by players across all levels of the game. The English Football Association (The FA) is working closely with anti-discrimination charity Kick It Out and other organizations to coordinate the boycott.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## The Top English Soccer Teams Take a Social Media Stand
 
@@ -71,19 +48,12 @@ thumbnail: https://thmb.techidaily.com/6368130d53d4726baee2d761c0d301b46230227e2
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
@@ -103,14 +73,11 @@ thumbnail: https://thmb.techidaily.com/6368130d53d4726baee2d761c0d301b46230227e2
 
  Whatever your take on the social media regulation side of the issue, one thing is clear: online abuse, racism, and toxic behavior towards anyone is unacceptable, whether they're a highly paid soccer player or otherwise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,12 +86,24 @@ thumbnail: https://thmb.techidaily.com/6368130d53d4726baee2d761c0d301b46230227e2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-best-asmr-microphones/"><u>[New] Best ASMR Microphones</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xploring-the-world-of-youtube-where-are-my-comments-for-2024/"><u>[New] Exploring the World of YouTube Where Are My Comments for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevate-small-screen-experience-with-these-leading-and-affordable-tools-to-download-youtubes-tiny-videos/"><u>[Updated] Elevate Small Screen Experience with These Leading & Affordable Tools to Download YouTubes' Tiny Videos</u></a></li>
+<li><a href="https://win11.techidaily.com/averting-interruptions-with-solid-connections-in-windows/"><u>Averting Interruptions with Solid Connections in Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-gameplay-with-the-ultimate-asus-vg245h-gaming-monitor/"><u>Elevate Your Gameplay with The Ultimate Asus VG245H Gaming Monitor</u></a></li>
+<li><a href="https://facebook.techidaily.com/getting-acquainted-with-social-networkings-love-hub/"><u>Getting Acquainted with Social Networking's Love Hub</u></a></li>
+<li><a href="https://win11.techidaily.com/halt-unprompted-gaming-suggestions-on-windows-11/"><u>Halt Unprompted Gaming Suggestions on Windows 11</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unleash-the-power-of-online-livestreams-with-us-today/"><u>In 2024, Unleash the Power of Online Livestreams with Us Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-2030-the-anticipated-renaissance/"><u>Instagram 2030: The Anticipated Renaissance</u></a></li>
+<li><a href="https://howto.techidaily.com/nubia-z50s-pro-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Nubia Z50S Pro Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-samsung-galaxy-s23-ultra-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Samsung Galaxy S23 Ultra Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-puzzle-of-auto-detection-in-ai-writing-insights-into-why-chatgpt-cant-spot-its-output/"><u>The Puzzle of Auto-Detection in AI Writing: Insights Into Why ChatGPT Can't Spot Its Output</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-visuals-in-enhancing-facebook-engagement/"><u>The Role of Visuals in Enhancing Facebook Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-significance-of-being-on-the-verified-list/"><u>The Significance of Being on the 'Verified' List</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-redefining-your-fb-profile-name/"><u>The Ultimate Guide to Redefining Your FB Profile Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-hidden-disclosures/"><u>Unveiling Facebook's Hidden Disclosures</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-scares-us-threefold-in-society/"><u>Why Meta Scares Us Threefold in Society</u></a></li>
+</ul></div>
 

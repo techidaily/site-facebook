@@ -1,7 +1,7 @@
 ---
 title: Handling Late Friends' Online Presence with Sensitivity and Care
-date: 2024-10-24T17:08:19.481Z
-updated: 2024-10-26T16:16:21.474Z
+date: 2024-10-26T17:18:54.511Z
+updated: 2024-11-01T17:18:10.977Z
 tags:
   - facebook
 categories:
@@ -50,10 +50,10 @@ To get a Facebook account memorialized, follow these steps:
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
@@ -69,10 +69,10 @@ To get a Facebook account memorialized, follow these steps:
 2. In the**Full Name** section, enter your official credentials.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3. Add your email address currently in use under the**Your** **Contact Email** section. Facebook might contact you and acquire more details if needed.
@@ -84,10 +84,16 @@ To get a Facebook account memorialized, follow these steps:
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
@@ -100,10 +106,10 @@ To get a Facebook account memorialized, follow these steps:
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
@@ -129,20 +135,20 @@ To get a Facebook account memorialized, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-navigating-the-best-mobile-asmr-worldwide/"><u>[New] Navigating the Best Mobile ASMR Worldwide</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-navigating-through-modern-cameras-complex-shooting-modes/"><u>[New] Navigating Through Modern Camera's Complex Shooting Modes</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-a-comprehensive-list-selecting-best-free-srt-translators-for-2024/"><u>[Updated] A Comprehensive List Selecting Best FREE SRT Translators for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-from-novice-to-pro-creating-snapchat-boomers/"><u>[Updated] From Novice to Pro Creating Snapchat Boomers</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-my-selection-in-fbs-custom-ads/"><u>Decoding My Selection in FB's Custom Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-sheryls-role-in-facebooks-evolution/"><u>Decoding Sheryl's Role in Facebook's Evolution</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-chamber-of-messages-essential-beginner-tricks/"><u>Decoding the Chamber of Messages: Essential Beginner Tricks</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-complexity-of-facebooks-operational-rules/"><u>Decoding the Complexity of Facebook's Operational Rules</u></a></li>
-<li><a href="https://facebook.techidaily.com/detaching-instagrams-footprint-from-fb-network/"><u>Detaching Instagram's Footprint From FB Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-discretion-dictate-evade-this-privacy-poachers-group/"><u>Digital Discretion Dictate: Evade This Privacy Poacher's Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/donald-trumps-legal-standoff-with-g-f-t-over-free-speech/"><u>Donald Trump's Legal Standoff with G-F-T Over Free Speech</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-infinix-zero-30-5g-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Infinix Zero 30 5G?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-realme-gt-5-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Realme GT 5 Phone? Unlock It Now</u></a></li>
-<li><a href="https://program-issues.techidaily.com/stop-gameplay-hiccups-now-expert-tips-for-boosting-fps-on-recent-titles/"><u>Stop Gameplay Hiccups Now! Expert Tips for Boosting FPS on Recent Titles</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-battle-between-chatgpt-and-huggingchat-which-conversational-ai-takes-the-lead/"><u>The Battle Between ChatGPT and HuggingChat: Which Conversational AI Takes the Lead?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-quick-and-reliable-mp4-file-capture-tool/"><u>[New] Quick & Reliable MP4 File Capture Tool</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-free-high-quality-youtube-banner-samples-inside/"><u>[Updated] Free High-Quality YouTube Banner Samples Inside</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-youtube-snippets-can-boost-your-financial-goals/"><u>[Updated] How YouTube Snippets Can Boost Your Financial Goals</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-masterclass-top-10-recorder-options-on-spotify/"><u>[Updated] Masterclass Top 10 Recorder Options on Spotify</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/capturing-cinematic-excellence-apple-introduces-final-cut-for-iphones-filmography-toolkit/"><u>Capturing Cinematic Excellence: Apple Introduces Final Cut for iPhone's Filmography Toolkit</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-independent-messaging-services-not-fb/"><u>Exploring Independent Messaging Services, Not FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-do-social-networks-make-money-explained/"><u>How Do Social Networks Make Money? Explained</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-samsung-galaxy-s23-ultra-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Samsung Galaxy S23 Ultra</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-maximizing-vimeo-video-watch-time/"><u>In 2024, Maximizing Vimeo Video Watch Time</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-the-perfect-resolution-for-immersive-vr/"><u>In 2024, The Perfect Resolution for Immersive VR</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-look-joining-facebooks-community-hubs/"><u>In-Depth Look: Joining Facebook's Community Hubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/tapping-into-the-payout-of-facebooks-class-action-lawsuit/"><u>Tapping Into the Payout of Facebook's Class Action Lawsuit</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-dislikes-on-digital-platforms/"><u>The Case for Dislikes on Digital Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-easy-path-to-backing-up-fb-photos-and-vids/"><u>The Easy Path to Backing Up FB Photos & Vids</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1726225283835-mkvmpeg-movavi/"><u>오픈 소스 내 아날로그에서 MKV/MPEG 영상 형식을 제공하는 무료 변환 도구 - Movavi</u></a></li>
 </ul></div>
 

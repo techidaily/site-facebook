@@ -1,7 +1,7 @@
 ---
 title: "The Antitrust War: Deconstructing Tech Giants' Monopolies"
-date: 2024-10-21T18:42:51.497Z
-updated: 2024-10-26T16:53:29.052Z
+date: 2024-10-29T16:29:44.708Z
+updated: 2024-11-01T17:38:40.403Z
 tags:
   - facebook
 categories:
@@ -56,22 +56,29 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
  A[Global Witness investigation](https://www.globalwitness.org/en/campaigns/digital-threats/tiktok-and-facebook-fail-detect-election-disinformation-us-while-youtube-succeeds/) showed such advertisements are a worldwide problem. The organization created experimental ads filled with hate speech and election misinformation about other countries’ political processes. All passed Facebook’s ad controls in the four countries showing them. Ads also nurtured people’s interest in COVID-19 “cures” and helped the anti-vaccine movement flourish.
 
  Ad-targeting isn’t all bad, though, provided there’s accurate content. If someone searches for all-natural house cleaning products on Google, they’ll usually see ads related to those items, which could assist people with their purchases. Similarly, Google and Apple collect information about how customers use their smart assistant services to increase future accuracy.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Big Tech Limits the Market Access of Smaller Companies
 
 ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Another argument against Big Tech is that such companies make it harder for smaller entities to enter and compete in the marketplace. Big businesses shape how people use the internet and the avenues they go through to get what they need.
 
@@ -83,19 +90,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
 
  However, Big Tech can also help smaller companies. The Google Play Store and Apple’s App Store give lesser-known developers a larger platform, making it easier for customers to find products. Also, Amazon’s Marketplace allows small companies to sell items on Amazon and let the e-commerce site fulfill those orders. As a result, products often reach customers faster than they otherwise would.
@@ -103,10 +97,10 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
  Furthermore, there are ways that you can[help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Big Tech Can Impact Government Decisions and Operations
@@ -114,10 +108,10 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
@@ -127,13 +121,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
  An[investigation from The Intercept](https://theintercept.com/2021/02/27/india-climate-activists-twitter-google-facebook/) suggests Big Tech companies aided the Indian government in targeting climate activists and curbing information access. People argue inaction in regulating Big Tech could limit expression and content distribution while putting citizens at risk.
 
  Big Tech companies’ interactions with the government can also create beneficial situations for everyone. For example, Google and Apple partnered to develop a privacy-focused contact-tracing solution during the COVID-19 pandemic.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Big Tech Companies Have Incredible Influence
 
@@ -154,6 +141,13 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
  As Big Tech companies exert power in more areas, positives become apparent, too. Increased technological investments and commitments to innovation are some examples. Facebook’s involvement in campaigns to broaden internet availability could decrease the digital divide.
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## No Easy Path Forward for Regulating Big Tech
 
@@ -178,24 +172,19 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-free-techniques-to-change-your-characters-voice-and-sound-identity-in-free-fire-gaming/"><u>[New] 2024 Approved Free Techniques to Change Your Character's Voice and Sound Identity in Free Fire Gaming</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ndroid-users-the-top-6-video-downloaders-for-easy-access/"><u>[New] Android Users The Top 6 Video Downloaders for Easy Access</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-top-20-budget-conscious-video-editing-applications-for-2024/"><u>[Updated] Top 20 Budget-Conscious Video Editing Applications for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-top-fifa-players-visualized-data-infographics-for-2024/"><u>[Updated] Top FIFA Players Visualized Data Infographics for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/a-filmmakers-guide-to-mastering-green-screen-technology/"><u>A Filmmaker's Guide to Mastering Green Screen Technology</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-hidden-message-shield-effectiveness/"><u>Facebook's Hidden Message Shield Effectiveness</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-does-facebook-ensure-fair-payment-for-artists/"><u>How Does Facebook Ensure Fair Payment for Artists?</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-tailored-techniques-for-thriving-on-igtv/"><u>In 2024, Tailored Techniques for Thriving on IGTV</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-gold-vs-twitter-silver-true-status-comparison/"><u>Meta Gold Vs. Twitter Silver: True Status Comparison</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/navigating-windows-11s-updating-mechanics/"><u>Navigating Windows 11'S Updating Mechanics</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/solving-the-windows-7-startup-repair-loop-4-effective-fixes/"><u>Solving the Windows 7 Startup Repair Loop - 4 Effective Fixes</u></a></li>
-<li><a href="https://facebook.techidaily.com/speed-boost-top-10-lightweight-android-apps/"><u>Speed Boost: Top 10 Lightweight Android Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotting-scams-in-social-swapping-platforms-protective-guidelines-revealed/"><u>Spotting Scams in Social Swapping Platforms – Protective Guidelines Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-tidbit-facebook-prototype-smartwatch-features-dual-lenses/"><u>Tech Tidbit: Facebook Prototype Smartwatch Features Dual Lenses?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/transformer-des-gif-en-mp4-gratuitement-avec-gifsmpeg-online-service-tire-comprend/"><u>Transformer Des GIF en MP4 Gratuitement Avec GifsMPEG Online - Service Tire-Comprend</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-home-entertainment-with-facebook-portals-for-videocalls/"><u>Transforming Home Entertainment with Facebook Portals for Videocalls</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/whats-the-maximum-text-output-size-for-chatgpt/"><u>What's the Maximum Text Output Size for ChatGPT?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-reinventing-user-interface-is-key-for-instagrams-future/"><u>Why Reinventing User Interface Is Key for Instagram’s Future</u></a></li>
-<li><a href="https://facebook.techidaily.com/wnb-in-your-feeds-facebook-twitter-join-forces/"><u>WNB in Your Feeds: Facebook, Twitter Join Forces</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-messenger-broadcasting-your-place/"><u>Facebook Messenger: Broadcasting Your Place</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/guide-overcoming-errors-when-attempting-to-open-amd-graphics-drivers/"><u>Guide: Overcoming Errors When Attempting to Open AMD Graphics Drivers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-oneplus-nord-ce-3-lite-5g-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of OnePlus Nord CE 3 Lite 5G Phone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Vivo Y200? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-superior-hd-recording-systems/"><u>In 2024, Superior HD Recording Systems</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/interactive-guide-to-microsofts-cutting-edge-surface-and-surface-pro-pcs-now-with-smart-copilotplus-features-for-elevated-computing-experience/"><u>Interactive Guide to Microsoft's Cutting-Edge Surface & Surface Pro PCs Now With Smart Copilot+ Features for Elevated Computing Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/methods-to-alert-about-minors-using-social-network/"><u>Methods to Alert About Minors Using Social Network</u></a></li>
+<li><a href="https://network-issues.techidaily.com/restoring-accessibility-to-nvidia-screen-configurations/"><u>Restoring Accessibility to NVIDIA Screen Configurations</u></a></li>
+<li><a href="https://facebook.techidaily.com/scam-free-web-a-call-for-more-robust-oversight-by-facebook-and-google/"><u>Scam-Free Web: A Call for More Robust Oversight by Facebook & Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-yourself-from-stings-identifying-and-evade-online-market-frauds-on-fb/"><u>Shielding Yourself From Stings: Identifying and Evade Online Market Frauds on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-entry-into-metas-centralized-user-command-center/"><u>Tactical Entry Into Meta’s Centralized User Command Center</u></a></li>
+<li><a href="https://driver-error.techidaily.com/troubleshooting-guide-resolving-detected-hardware-not-recognized-by-idt-software/"><u>Troubleshooting Guide: Resolving 'Detected Hardware Not Recognized' By IDT Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/tweeting-terminology-mastering-the-top-30-smarts/"><u>Tweeting Terminology: Mastering the Top 30 SMARTs</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/will-artificnial-intelligence-determine-the-fate-of-the-new-iphone-16-a-deep-dive-into-apples-tech-edge/"><u>Will Artificnial Intelligence Determine the Fate of the New iPhone 16? A Deep Dive Into Apple's Tech Edge.</u></a></li>
 </ul></div>
 

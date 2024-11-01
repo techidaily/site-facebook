@@ -1,7 +1,7 @@
 ---
 title: Major Stakeholders Owning Facebook
-date: 2024-10-19T20:27:32.547Z
-updated: 2024-10-26T20:57:55.505Z
+date: 2024-10-26T16:46:58.367Z
+updated: 2024-11-01T16:21:43.647Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Who Owns Facebook Now?
@@ -46,10 +46,16 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
@@ -63,10 +69,10 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Did Facebook Rebrand to Meta?
@@ -78,10 +84,16 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Zuckerberg Still (Largely) Owns Meta
@@ -105,19 +117,18 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-become-an-instagram-content-wizard-with-smart-cropping-practices-for-2024/"><u>[New] Become an Instagram Content Wizard with Smart Cropping Practices for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-gastronomic-glamour-top-7-ingredients-for-stunning-cooking-videos/"><u>[Updated] In 2024, Gastronomic Glamour Top 7 Ingredients for Stunning Cooking Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-securing-your-social-snapshot-instagram-edition-for-2024/"><u>[Updated] Securing Your Social Snapshot Instagram Edition for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/amazons-defensive-claims-against-10k-facebook-group-leaders/"><u>Amazon’s Defensive Claims Against 10K Facebook Group Leaders</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-regretful-tweets-be-undone/"><u>Can Regretful Tweets Be Undone?</u></a></li>
-<li><a href="https://facebook.techidaily.com/connect-and-conquer-why-a-group-matters-on-social-media/"><u>Connect and Conquer: Why a Group Matters on Social Media</u></a></li>
-<li><a href="https://win-able.techidaily.com/conquering-the-invisible-screen-a-comprehensive-strategy-to-restore-your-steam-gameplay/"><u>Conquering the Invisible Screen: A Comprehensive Strategy to Restore Your Steam Gameplay</u></a></li>
-<li><a href="https://facebook.techidaily.com/controversial-content-banned-elsewhere-yet-thrives-on-fb/"><u>Controversial Content Banned Elsewhere Yet Thrives on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-a-personalized-digital-id/"><u>Creating a Personalized Digital ID</u></a></li>
-<li><a href="https://facebook.techidaily.com/crossing-friendship-divides-after-a-ban/"><u>Crossing Friendship Divides After a Ban</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-locked-apple-iphone-7-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Forgot Locked Apple iPhone 7 Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/mastering-lenovo-legion-5-pro-maintennance-with-updated-drivers-and-system-software/"><u>Mastering Lenovo Legion 5 Pro Maintennance with Updated Drivers and System Software</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-entrepreneurs-ai-toolkit-necessary-innovations-to-know/"><u>The Entrepreneur's AI Toolkit: Necessary Innovations to Know</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-meizu-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Meizu FRP Bypass</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-essential-5-platforms-beyond-twitter/"><u>[Updated] 2024 Approved Essential 5 Platforms Beyond Twitter</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlock-the-best-top-9-gamers-hubs/"><u>[Updated] Unlock the Best Top 9 Gamers' Hubs</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-a-deep-dive-into-cutting-edge-vr-technology/"><u>2024 Approved A Deep Dive Into Cutting-Edge VR Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-dialogue-implementing-facebook-stories-surveys/"><u>Fostering Dialogue: Implementing Facebook Stories Surveys</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendship-finance-social-networks-money-story/"><u>Friendship Finance: Social Networks' Money Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/highlighting-googles-influential-2022-news/"><u>Highlighting Google's Influential 2022 News</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-navigating-file-extraction-from-youtube-browser-os-and-terminal-methods/"><u>In 2024, Navigating File Extraction From Youtube Browser, OS and Terminal Methods</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-core-dll-error-troubleshooting-techniques/"><u>Mastering Core DLL Error Troubleshooting Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-giants-gridlock-lasting-six-hours/"><u>Online Giants' Gridlock Lasting Six Hours</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-fixes-to-restore-battery-charging-functionality-on-your-laptop/"><u>Quick Fixes to Restore Battery Charging Functionality on Your Laptop</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210432855-9781684860081-satans-masterpiece-and-the-way-to-freedom/"><u>Satan's Masterpiece, And The Way To Freedom | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-solutions-to-privacy-concerns/"><u>Seeking Solutions to Privacy Concerns</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-daily-life-replay-facebook-guide/"><u>Unlocking Daily Life Replay: Facebook Guide</u></a></li>
 </ul></div>
 

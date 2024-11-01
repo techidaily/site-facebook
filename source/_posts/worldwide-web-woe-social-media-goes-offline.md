@@ -1,7 +1,7 @@
 ---
 title: "Worldwide Web Woe: Social Media Goes Offline"
-date: 2024-09-10T14:50:07.281Z
-updated: 2024-09-11T14:50:07.281Z
+date: 2024-10-25T17:25:14.260Z
+updated: 2024-11-01T17:10:11.900Z
 tags:
   - facebook
 categories:
@@ -19,20 +19,6 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
  Facebook has since provided an explanation and apology for this outage. Keep reading to find out why you couldn't use any of Facebook's apps for so long.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How Facebook Went Offline for Six Hours
 
  On October 4, 2021, users around the world noticed they were[having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
@@ -47,25 +33,12 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
  So, why were Facebook's apps down? And what caused this epic outage?
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Why Facebook Went Down for Six Hours
 
@@ -83,19 +56,12 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Is Your Facebook Data Safe After the Outage?
 
@@ -103,14 +69,11 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
  We have no other option than to trust Facebook on this, but given the company's history and reputation, that's a big ask.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +82,26 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-experience-freedom-in-viewing-free-movie-player-software/"><u>[New] 2024 Approved Experience Freedom in Viewing FREE MOVIE PLAYER Software</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-imageharmony-pro-8-version-visualizer/"><u>[New] 2024 Approved ImageHarmony Pro 8-Version Visualizer</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-honorable-5-quicktime-frame-recorder/"><u>[New] Honorable 5 Quicktime Frame Recorder</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-visualization-vanguards-battle-for-2024/"><u>[New] Visualization Vanguard's Battle for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-melodies-instantly-three-easy-techniques-from-any-website/"><u>Download Melodies Instantly: Three Easy Techniques From Any Website</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-experience-privacy-controls/"><u>Enhancing Your Facebook Experience: Privacy Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-future-dimensions-three-reasons-to-take-heed/"><u>Facebook's Future Dimensions - Three Reasons to Take Heed</u></a></li>
+<li><a href="https://facebook.techidaily.com/fine-tuning-visibility-a-facebook-photos-primer/"><u>Fine-Tuning Visibility: A Facebook Photos Primer</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-facebook-hit-its-share-of-market-saturation/"><u>Has Facebook Hit Its Share of Market Saturation?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-increase-engagement-on-your-facebook-posts-12-tips-and-tricks/"><u>How to Increase Engagement on Your Facebook Posts: 12 Tips and Tricks</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-huawei-nova-y71-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Huawei Nova Y71 Device</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/infinix-smart-8-pro-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Infinix Smart 8 Pro Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-choices-meta-ai-and-social-networking-appeal/"><u>Navigating the Choices: Meta AI & Social Networking Appeal?</u></a></li>
+<li><a href="https://facebook.techidaily.com/nft-revolution-meta-drops-on-popular-networks-tested/"><u>NFT Revolution: Meta Drops on Popular Networks Tested</u></a></li>
+<li><a href="https://win11.techidaily.com/opening-act-emailcalendar-troubles-in-w11-os/"><u>Opening Act: Email/Calendar Troubles in W11 OS</u></a></li>
+<li><a href="https://facebook.techidaily.com/second-life-revival-prospects-within-the-metaverse-era/"><u>Second Life Revival Prospects Within the Metaverse Era</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-resilience-in-the-wake-of-facebook-down-time/"><u>Telegram's Resilience in the Wake of Facebook Down Time</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-s-top-free-mkv-splitters-no-watermarks-or-trials/"><u>Updated 2024 Approved S Top Free MKV Splitters No Watermarks or Trials</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/winter-wonderland-spins-and-jumps/"><u>Winter Wonderland Spins and Jumps</u></a></li>
+</ul></div>
 

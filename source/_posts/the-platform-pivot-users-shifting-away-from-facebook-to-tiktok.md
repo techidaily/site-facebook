@@ -1,7 +1,7 @@
 ---
 title: "The Platform Pivot: Users Shifting Away From Facebook to TikTok"
-date: 2024-09-10T14:50:06.724Z
-updated: 2024-09-11T14:50:06.724Z
+date: 2024-10-27T16:17:51.150Z
+updated: 2024-11-01T16:23:05.670Z
 tags:
   - facebook
 categories:
@@ -17,20 +17,6 @@ thumbnail: https://thmb.techidaily.com/4fe1c562a7e3ab45c8b1f68d5fb5d836545aa7328
 
  Meta has published its second quarter (Q2) 2022 results, and things don't look good for Mark Zuckerberg and co. So, let’s look at what has happened to Facebook in Q2, 2022, and the potential causes of its dip in fortunes.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Facebook’s Revenues Are Down and User Growth Has Stalled
 
  If you look through[Meta’s press release](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Second-Quarter-2022-Results/default.aspx) , you’ll see that the social network's revenues have fallen since 2021\. According to[CNBC](https://www.cnbc.com/2022/07/27/meta-ceo-mark-zuckerberg-we-seem-to-have-entered-economic-downturn.html) , Mark Zuckerberg indicated that the economic conditions are worse than they were in Q2, 2021.
@@ -39,37 +25,16 @@ thumbnail: https://thmb.techidaily.com/4fe1c562a7e3ab45c8b1f68d5fb5d836545aa7328
 
 ![Facebook Q2 2022 User Statistics](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Facebook-Q2-2022-User-Statistics.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Image Credit:[Meta](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Second-Quarter-2022-Results/default.aspx)
 
  While Apple's privacy changes (as reported by[Business Insider](https://www.businessinsider.com/how-apple-att-privacy-plan-derailed-facebook-2022-7) ) could have contributed to upsetting Facebook’s advertising business, it is unlikely to be the primary cause for the dent.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## TikTok Is the Major Cause of Facebook’s Decline
 
@@ -77,25 +42,12 @@ thumbnail: https://thmb.techidaily.com/4fe1c562a7e3ab45c8b1f68d5fb5d836545aa7328
 
 ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  These statistics have led many to speculate that TikTok is the major reason for Facebook’s decline both in terms of revenue and user growth. And while correlation doesn't equal causation, the relative success and failure of both companies does appear to be connected.
 
@@ -111,35 +63,27 @@ thumbnail: https://thmb.techidaily.com/4fe1c562a7e3ab45c8b1f68d5fb5d836545aa7328
 
 ![TikTok Videos of Khaby Lame](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/TikTok-Videos-of-Khaby-Lame.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 [TikTok has been criticized for many reasons](https://www.makeuseof.com/is-tiktok-bad/) . However, there are[many positive aspects to TikTok](https://www.makeuseof.com/reasons-why-tiktok-is-actually-good/) , and all of these factors have played a significant part in its growth, leading users to switch from Facebook. While Facebook is trying to recover, at the moment, the stats are very much in TikTok’s favor.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Can Facebook Fight Back Against TikTok?
 
@@ -147,14 +91,11 @@ thumbnail: https://thmb.techidaily.com/4fe1c562a7e3ab45c8b1f68d5fb5d836545aa7328
 
  The best thing about the competition heating up between Facebook and TikTok is that you, the user, are getting new and improved services out of it. Which is particularly apparent if you look at the evolution of Facebook over the past decade.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,4 +104,26 @@ thumbnail: https://thmb.techidaily.com/4fe1c562a7e3ab45c8b1f68d5fb5d836545aa7328
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/-comprehensive-walkthrough-creating-channel-banners/"><u>[New] A Comprehensive Walkthrough Creating Channel Banners</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exploring-interconnected-digital-universes-meta-and-omni/"><u>[New] Exploring Interconnected Digital Universes Meta & Omni</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-digital-deck-of-cards-youtubes-milestone-challenges-for-2024/"><u>[Updated] Digital Deck of Cards YouTube's Milestone Challenges for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-convert-vimeo-hd-mp4-format-guide/"><u>[Updated] In 2024, Convert Vimeo HD MP4 Format Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-directly-delivering-tiktok-videos-to-twitters-feed/"><u>2024 Approved Directly Delivering TikTok Videos to Twitter's Feed</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/comprehensive-lookup-experience-the-world-in-virtual-reality-for-2024/"><u>Comprehensive Lookup Experience the World in Virtual Reality for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/essential-editing-software-for-horizontal-and-vertical-igtv/"><u>Essential Editing Software for Horizontal & Vertical IGTV</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-the-invisible-hand-of-shadowbanning-systems/"><u>Exposing the Invisible Hand of Shadowbanning Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-innovative-approach-for-enhanced-information-posting/"><u>Facebook's Innovative Approach for Enhanced Information Posting</u></a></li>
+<li><a href="https://common-error.techidaily.com/forza-horizon-4-players-rejoice-silent-gameplay-issue-now-fixed-with-crystal-clear-sounds/"><u>Forza Horizon 4 Players Rejoice! Silent Gameplay Issue Now Fixed with Crystal Clear Sounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-editing-your-childs-messenger-kids-info/"><u>Guide to Editing Your Child’s Messenger Kids Info</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-apple-paved-the-way-in-ai-resurgence-potential-and-challenges-explored-by-zdnet/"><u>How Apple Paved the Way in AI Resurgence - Potential and Challenges Explored by ZDNet</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/initiate-into-a-tiktok-live-with-ease-for-2024/"><u>Initiate Into a TikTok Live with Ease for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nets-nuances-top-9-social-benefits-explored/"><u>Navigating the Net's Nuances: Top 9 Social Benefits Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-business-facebook-client-partnerships/"><u>Navigating the World of Business-Facebook Client Partnerships</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-duality-of-using-facebook-for-event-organizing/"><u>The Duality of Using Facebook for Event Organizing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-and-significance-of-absent-users-in-messaging/"><u>The Impact and Significance of Absent Users in Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-sentinel-in-volatile-markets-understanding-stablecoin-principles/"><u>The Silent Sentinel in Volatile Markets: Understanding Stablecoin Principles</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-beneath-understanding-the-allure-of-indirectness-in-blogging/"><u>What Lies Beneath: Understanding the Allure of Indirectness in Blogging</u></a></li>
+</ul></div>
 

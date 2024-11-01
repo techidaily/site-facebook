@@ -1,7 +1,7 @@
 ---
 title: Ensuring Accurate Health Info in the Age of Viral Data
-date: 2024-09-10T14:50:49.123Z
-updated: 2024-09-11T14:50:49.123Z
+date: 2024-10-25T17:29:38.965Z
+updated: 2024-11-01T17:35:53.169Z
 tags:
   - facebook
 categories:
@@ -21,27 +21,10 @@ thumbnail: https://thmb.techidaily.com/545f7379c0befa5a44cab74ccb395e1f4653a53c6
 
 Here's what social media platforms can do to tackle the issue.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## The Spread of COVID-19 and Vaccine Misinformation on Social Media
 
@@ -59,25 +42,18 @@ Here's what social media platforms can do to tackle the issue.
 
  These include prominent public figures such as Children's Health Defense Chairman Robert F. Kennedy Jr. and the entrepreneur Joseph Mercola.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation
 
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
 
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -95,23 +71,23 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Read more: [Is Facebook Doing Enough to Tackle Misinformation?](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How Social Media Companies Can Protect Users From Harmful Misinformation
 
  In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Tap Into Celebrities and Religious and Community Leaders
 
@@ -129,63 +105,22 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  This would still allow the user to exercise their right to free speech while being moderated for the type of information they upload.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 4\. Display Corrective Posts to Users Exposed to Disinformation
 
  Social media platforms can show users who have been exposed to content in violation of the COVID-19 policy corrective posts from experts and trusted sources.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 5\. Add Warning Screens When Users Click Links to Misinformation Sites
 
  Companies should consider adding a warning screen in front of third-party websites or untrustworthy sources housing COVID-19-related misinformation.
 
  Related: [The Best Fact-Checking Sites for Finding Unbiased Truth](https://www.makeuseof.com/tag/true-5-factchecking-websites/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 6\. Ban Private and Secret Anti-Vaccine Facebook Groups
 
@@ -197,14 +132,11 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  In order to improve COVID-19 awareness and vaccine uptake, social media companies have a key role to play in ensuring that the correct information is presented to users on its platforms, while tackling misinformation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -213,12 +145,22 @@ YouTube also removes videos that violate its COVID-19 policy.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-honor-play-8t-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Honor Play 8T without App | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/discover-the-secrets-to-superior-scalability-in-roblox-worlds/"><u>Discover the Secrets to Superior Scalability in Roblox Worlds</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-wave-of-feed-personalization/"><u>Facebook's New Wave of Feed Personalization</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-accelerates-text-interaction-new-tools-transforming-user-experience-in-messenger-and-instagram-apps/"><u>FB Accelerates Text Interaction: New Tools Transforming User Experience in Messenger and Instagram Apps</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-honor-90-lite-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/instruzioni-dettagliate-per-sostituire-il-hard-disk-di-un-laptop-vaio-sony-con-una-memoria-ssd/"><u>Instruzioni Dettagliate per Sostituire Il Hard Disk Di Un Laptop Vaio Sony Con Una Memoria SSD</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/investigating-possible-aol-mail-service-interruptions-tips-for-users/"><u>Investigating Possible AOL Mail Service Interruptions: Tips for Users</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/island-impressions-a-blueprint-for-architectural-awesomeness/"><u>Island Impressions: A Blueprint for Architectural Awesomeness</u></a></li>
+<li><a href="https://facebook.techidaily.com/leak-exposed-decoding-the-underlying-patterns-of-facebook-data/"><u>Leak Exposed: Decoding the Underlying Patterns of Facebook Data</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/lenovo-x1-carbon-compatible-drivers-seamless-installation-guide-for-win-710-users/"><u>Lenovo X1 Carbon Compatible Drivers: Seamless Installation Guide for Win 7/10 Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-spotify-on-the-facebook-platform/"><u>Mastering Spotify on the Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-the-maze-delete-your-facebook-on-android/"><u>Navigate The Maze: Delete Your Facebook On Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracking-down-users-excluded-from-your-fb-circle/"><u>Tracking Down Users Excluded From Your FB Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-can-we-learn-from-sheryl-sandbergs-time-at-facebook/"><u>What Can We Learn From Sheryl Sandberg's Time at Facebook?</u></a></li>
+</ul></div>
 

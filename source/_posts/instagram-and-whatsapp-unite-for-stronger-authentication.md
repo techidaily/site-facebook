@@ -1,7 +1,7 @@
 ---
 title: Instagram and WhatsApp Unite for Stronger Authentication
-date: 2024-09-10T14:50:06.484Z
-updated: 2024-09-11T14:50:06.484Z
+date: 2024-10-26T17:27:12.390Z
+updated: 2024-11-01T16:57:24.830Z
 tags:
   - facebook
 categories:
@@ -17,39 +17,24 @@ thumbnail: https://thmb.techidaily.com/d273051a98d6681ad00d9eef8a0a1e7b14cf2a7e1
 
  Facebook is working on a way for Instagram users to receive two-factor authentication (2FA) codes through WhatsApp as a new option augmenting its existing 2FA methods.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Instagram 2FA Codes via WhatsApp?
 
  While Instagram hasn't made the feature official as of yet, mobile developer and reverse engineer Alessandro Paluzzi was able to unearth evidence that Facebook is working on it.
 
  He also shared some screenshots on Twitter showing the user interface around this new optional feature in Instagram's app for iOS and Android. Instagram users will be able to opt-in when---and if, for that matter---Facebook rolls out this option to everyone.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Using WhatsApp for Instagram 2FA Codes
 
@@ -63,25 +48,12 @@ thumbnail: https://thmb.techidaily.com/d273051a98d6681ad00d9eef8a0a1e7b14cf2a7e1
 
  For example,[Instagram is testing uploading post photos and videos via a web browser](https://www.makeuseof.com/instagram-web-posting-test/) , as well as accessing creator tools and creating stories using the web version of the service.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Which Instagram 2FA Method Should I Use?
 
@@ -99,14 +71,11 @@ thumbnail: https://thmb.techidaily.com/d273051a98d6681ad00d9eef8a0a1e7b14cf2a7e1
 
  Image Credit: Solen Feyissa/[Unsplash](https://unsplash.com/photos/KWZa42a1kds)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -115,4 +84,20 @@ thumbnail: https://thmb.techidaily.com/d273051a98d6681ad00d9eef8a0a1e7b14cf2a7e1
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-gameplay-revolution-elevating-ram-usage-for-minecraft/"><u>[New] 2024 Approved Gameplay Revolution Elevating Ram Usage for Minecraft</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/building-personalized-actions-with-net-an-intuitive-guide/"><u>Building Personalized Actions with .NET - An Intuitive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-reach-by-posting-in-many-facebook-gatherings/"><u>Enhancing Reach by Posting in Many Facebook Gatherings</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-nokia-g42-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Nokia G42 5G online without jailbreak</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/inside-look-why-rings-video-doorbell-2-stands-above-the-competition/"><u>Inside Look: Why Ring's Video Doorbell 2 Stands Above the Competition</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-new-features-unleash-creative-earner-potential/"><u>Instagram's New Features Unleash Creative Earner Potential</u></a></li>
+<li><a href="https://facebook.techidaily.com/intentionality-in-online-relationships-via-fb/"><u>Intentionality in Online Relationships via Fb</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-stream-movie-trailers-anywhere-best-ios-apps/"><u>New 2024 Approved Stream Movie Trailers Anywhere Best iOS Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/respectful-repartee-keeping-discussions-healthy/"><u>Respectful Repartee: Keeping Discussions Healthy</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/the-ultimate-guide-to-choosing-top-photo-restoration-services-of-2024-pros-vs-cons/"><u>The Ultimate Guide to Choosing Top Photo Restoration Services of 2024: Pros vs Cons</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-evasion-of-social-engineering-tricks/"><u>The Ultimate Guide to Evasion of Social Engineering Tricks</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Vivo Y100t? | Dr.fone</u></a></li>
+</ul></div>
 

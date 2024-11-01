@@ -1,7 +1,7 @@
 ---
 title: "Elevating Community Governance: Facebook Unveils New Admin Features"
-date: 2024-10-22T19:54:41.932Z
-updated: 2024-10-26T16:51:12.001Z
+date: 2024-10-28T16:16:26.191Z
+updated: 2024-11-01T17:11:18.251Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,16 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -48,16 +54,16 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<span id="1982570">
+<span id="1983551">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -67,16 +73,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -100,24 +100,18 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-cinematic-sequence-best-video-cameras-for-extended-slow-motion/"><u>[New] Cinematic Sequence Best Video Cameras for Extended Slow Motion</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-stealthy-speakers-sanctuary-discovering-quiet-voice-apps-androidios/"><u>[New] In 2024, Stealthy Speakers' Sanctuary Discovering Quiet Voice Apps (Android/iOS)</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/18-ways-to-record-internet-radio-comprehensive-tutorial-for-2024/"><u>18 Ways To Record Internet Radio- Comprehensive Tutorial for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-messenger-encryption-in-fb/"><u>Assessing Messenger Encryption in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-7-apps-for-streamlining-content-release-on-social-platforms/"><u>Best 7 Apps for Streamlining Content Release on Social Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/bracing-for-impact-expecting-tough-news-on-fb/"><u>Bracing for Impact: Expecting Tough News on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-the-barrier-of-a-frozen-account/"><u>Breaking the Barrier of a Frozen Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-a-foundation-of-trust-with-facebooks-open-network-portal/"><u>Building a Foundation of Trust with Facebook's Open Network Portal</u></a></li>
-<li><a href="https://facebook.techidaily.com/capturing-hearts-and-eyes-top-6-profile-pic-ideas/"><u>Capturing Hearts and Eyes: Top 6 Profile Pic Ideas</u></a></li>
-<li><a href="https://facebook.techidaily.com/cultivating-a-community-of-positivity-online/"><u>Cultivating a Community of Positivity Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-the-cord-a-step-by-step-guide-to-leaving-facebook-for-good/"><u>Cut the Cord: A Step-by-Step Guide to Leaving Facebook for Good</u></a></li>
-<li><a href="https://facebook.techidaily.com/cybersecurity-mantras-key-personal-details-to-keep-offline/"><u>Cybersecurity Mantras: Key Personal Details to Keep Offline</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/gaming-melodies-legal-downloadable-links/"><u>Gaming Melodies Legal, Downloadable Links</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-optimizing-youtube-presentations-with-precise-times/"><u>In 2024, Optimizing YouTube Presentations with Precise Times</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-pierce-through-darkness-essential-techniques-to-brighten-iphone-vids/"><u>In 2024, Pierce Through Darkness Essential Techniques to Brighten iPhone Vids</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolving-the-fatal-error-in-ghostrunner-game-on-windows-11-systems/"><u>Resolving the Fatal Error in GhostRunner Game on Windows 11 Systems</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/step-by-step-guide-to-securely-migrate-your-gpt-volume-from-hard-drive-to-solid-state-in-windows-11/"><u>Step-by-Step Guide to Securely Migrate Your GPT Volume From Hard Drive to Solid State in WIndows 11</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://network-issues.techidaily.com/windows-11-display-resolved-missing-full-screen/"><u>Windows 11 Display - Resolved Missing Full Screen</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-best-voice-modification-tools-for-mobile-devices/"><u>[New] 2024 Approved Best Voice Modification Tools for Mobile Devices</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-high-definition-film-equipment-roundup-2024-edition/"><u>[New] High-Definition Film Equipment Roundup, 2024 Edition</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-honor-magic5-ultimate-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Honor Magic5 Ultimate? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/foremost-companies-pioneering-vr-technology/"><u>Foremost Companies Pioneering VR Technology</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-razer-mamba-controller-drivers-instantly-a-fast-and-simple-download/"><u>Get Your Razer Mamba Controller Drivers Instantly: A Fast & Simple Download</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-lately-engaged-with-fb-content/"><u>Identifying Lately Engaged with FB Content</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-7-ways-to-lock-apps-on-iphone-13-pro-and-ipad-securely-by-drfone-ios/"><u>In 2024, 7 Ways to Lock Apps on iPhone 13 Pro and iPad Securely</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-elevate-speech-impact-accessibility-to-free-voice-modification-software/"><u>In 2024, Elevate Speech Impact Accessibility to Free Voice Modification Software</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/joe-vax-using-social-networks-in-his-strategy-against-coronavirus/"><u>JOE VAX: Using Social Networks in His Strategy Against Coronavirus</u></a></li>
+<li><a href="https://facebook.techidaily.com/listen-up-facebook-heres-your-take-on-clubhouse/"><u>Listen Up, Facebook! Here's Your Take on Clubhouse</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-stealthy-revenue-siege-on-facebooks-empire/"><u>TikTok's Stealthy Revenue Siege on Facebook’s Empire</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unveiling-windows-11s-foundation-an-analysis-of-its-registry-data/"><u>Unveiling Windows 11’S Foundation: An Analysis of Its Registry Data</u></a></li>
 </ul></div>
 

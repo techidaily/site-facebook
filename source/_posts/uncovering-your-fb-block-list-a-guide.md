@@ -1,7 +1,7 @@
 ---
 title: "Uncovering Your FB Block List: A Guide"
-date: 2024-10-22T17:56:25.833Z
-updated: 2024-10-26T16:02:56.693Z
+date: 2024-10-31T17:41:18.237Z
+updated: 2024-11-01T16:39:11.144Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ Close
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Your Blocked List on the Web
@@ -56,10 +56,10 @@ Close
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
@@ -72,10 +72,10 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can People Tell if You've Blocked Them on Facebook?
@@ -87,16 +87,10 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
@@ -118,24 +112,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/reak-down-the-essentials-of-youtube-sharing-on-facebook-for-2024/"><u>[New] Break Down The Essentials of YouTube Sharing on Facebook for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/inancial-insights-for-vids-how-much-do-youtubers-earn-per-sponsorship/"><u>[New] Financial Insights for Vids How Much Do YouTubers Earn Per Sponsorship?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-gopro-max-vs-hero-11-a-video-quality-showdown/"><u>[New] GoPro Max vs Hero 11 A Video Quality Showdown</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-jogging-beats-compile-your-ultimate-running-soundtrack/"><u>[New] Jogging Beats Compile Your Ultimate Running Soundtrack</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-seamless-video-tweaks-integrating-story-remix-into-windows-10-photos/"><u>[New] Seamless Video Tweaks Integrating Story Remix Into Windows 10 Photos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-mastering-twitter-promotions-essential-tips/"><u>[Updated] 2024 Approved Mastering Twitter Promotions Essential Tips</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-mastering-free-picture-quality-enhancement-techniques/"><u>[Updated] Mastering Free Picture Quality Enhancement Techniques</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-optimal-speech-recognition-for-silent-input/"><u>[Updated] Optimal Speech Recognition for Silent Input</u></a></li>
-<li><a href="https://facebook.techidaily.com/hidden-harmonies-securing-fb-friendships/"><u>Hidden Harmonies: Securing Fb Friendships</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-turn-off-the-screen-lock-on-my-c300-by-drfone-android-unlock-android-unlock/"><u>How to turn off the screen lock on my C300</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-guide-to-making-an-impression-with-your-apple-podcast-entry/"><u>In 2024, Guide to Making an Impression with Your Apple Podcast Entry</u></a></li>
-<li><a href="https://facebook.techidaily.com/initiating-facebooks-privacy-fortification-a-comprehensive-overview/"><u>Initiating Facebook’s Privacy Fortification: A Comprehensive Overview</u></a></li>
-<li><a href="https://facebook.techidaily.com/llifes-resurgence-chance-a-new-age-of-metaverse-exploration/"><u>LLife’s Resurgence Chance: A New Age of Metaverse Exploration?</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-protection-plan-reject-these-invasive-apps/"><u>Privacy Protection Plan: Reject These Invasive Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-virtual-world-meta-or-facebook-for-quest-2/"><u>Secure Your Virtual World: Meta or Facebook for Quest 2?</u></a></li>
-<li><a href="https://facebook.techidaily.com/sharpen-life-skills-not-social-media-6-reasons-to-delete/"><u>Sharpen Life Skills, Not Social Media – 6 Reasons to Delete</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-network-backs-world-health-organizations-fight/"><u>Social Network Backs World Health Organization's Fight</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-of-listening-on-facebook-new-audiovisual-hub/"><u>The Future of Listening on Facebook: New Audiovisual Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-your-phone-without-fbs-app-browser/"><u>Unlocking Your Phone Without FB's App Browser</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweeting-tides-the-rising-wave-of-viral-videos/"><u>[New] Tweeting Tides The Rising Wave of Viral Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-lenovo-simple-recording-techniques/"><u>2024 Approved Lenovo Simple Recording Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-transforming-your-facebook-history-a-look-back-video-guide/"><u>2024 Approved Transforming Your Facebook History A Look Back Video Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-nobody-else-taps-into-your-facebook-space/"><u>Ensuring Nobody Else Taps Into Your Facebook Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-copycat-scams-a-brief-overview/"><u>Facebook Copycat Scams: A Brief Overview</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-social-engagement-outgrew-traditional-forum-systems/"><u>How Social Engagement Outgrew Traditional Forum Systems</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-wevideo-your-go-to-platform-for-easy-video-creation-for-2024/"><u>New WeVideo Your Go-To Platform for Easy Video Creation for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/optimizing-ai-dialogue-the-ultimate-list-of-techniques/"><u>Optimizing AI Dialogue: The Ultimate List of Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/quick-start-uploading-your-videos-to-instagram-via-pcmac-for-2024/"><u>Quick Start Uploading Your Videos to Instagram via PC/Mac for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/shaping-your-digital-face-on-facebook/"><u>Shaping Your Digital Face on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-best-calendar-software-for-social-media-consistency/"><u>The Best Calendar Software for Social Media Consistency</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/the-insiders-guide-to-maximizing-ez-grabber-for-2024/"><u>The Insider’s Guide to Maximizing EZ Grabber for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-monetizing-machine-how-reels-and-revenue-are-revolutionized-by-meta/"><u>The Monetizing Machine: How Reels and Revenue Are Revolutionized by Meta</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-tips-resolving-issues-with-the-rundll32-in-windows-host-process/"><u>Troubleshooting Tips: Resolving Issues with the Rundll32 in Windows Host Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-recent-user-drop/"><u>Understanding Facebook's Recent User Drop</u></a></li>
 </ul></div>
 

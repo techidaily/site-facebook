@@ -1,7 +1,7 @@
 ---
 title: Premier League Players Pledge No More Social Networking for Harassment Purposes
-date: 2024-09-10T14:50:06.881Z
-updated: 2024-09-11T14:50:06.881Z
+date: 2024-10-30T17:23:00.763Z
+updated: 2024-11-01T16:22:28.274Z
 tags:
   - facebook
 categories:
@@ -18,20 +18,6 @@ thumbnail: https://thmb.techidaily.com/d04a298cb4efeef55fca68d7eaf14aa0f3c43f69f
  The English Premier League, English Football League, and Women's Super League are joining forces to complete a four-day social media blackout.
 
  England's top soccer leagues are taking a social media stand against the ongoing abuse and discrimination experienced by players across all levels of the game. The English Football Association (The FA) is working closely with anti-discrimination charity Kick It Out and other organizations to coordinate the boycott.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## The Top English Soccer Teams Take a Social Media Stand
 
@@ -57,19 +43,12 @@ thumbnail: https://thmb.techidaily.com/d04a298cb4efeef55fca68d7eaf14aa0f3c43f69f
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
@@ -89,14 +68,11 @@ thumbnail: https://thmb.techidaily.com/d04a298cb4efeef55fca68d7eaf14aa0f3c43f69f
 
  Whatever your take on the social media regulation side of the issue, one thing is clear: online abuse, racism, and toxic behavior towards anyone is unacceptable, whether they're a highly paid soccer player or otherwise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,4 +81,24 @@ thumbnail: https://thmb.techidaily.com/d04a298cb4efeef55fca68d7eaf14aa0f3c43f69f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-deep-review-scoops-of-chilled-treats-on-your-pc/"><u>[New] 2024 Approved Deep Review Scoops of Chilled Treats on Your PC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-delving-into-trending-video-exchange/"><u>[New] 2024 Approved Delving Into Trending Video Exchange</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-perfecting-skies-top-11-must-have-dji-accessories/"><u>[New] Perfecting Skies Top 11 Must-Have DJI Accessories</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-navigating-top-10-affordable-mobile-video-services/"><u>[Updated] In 2024, Navigating Top 10 Affordable Mobile Video Services</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-maximize-impact-with-professional-360-video-uploads-for-youtube-for-2024/"><u>[Updated] Maximize Impact with Professional 360° Video Uploads for YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-you-to-me-updating-your-social-network-identifier/"><u>From You to Me: Updating Your Social Network Identifier</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-triggers-behind-your-fb-ban/"><u>Hidden Triggers Behind Your Fb Ban</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Lava Blaze Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-analyzing-youtube-shorts-economic-impact/"><u>In 2024, Analyzing YouTube Shorts Economic Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/internet-leader-joins-forces-with-world-health-in-pandemic-battle/"><u>Internet Leader Joins Forces with World Health in Pandemic Battle</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-high-res-content-uploads-for-fb-app-users/"><u>Navigating High-Res Content Uploads for FB App Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/pay-for-verified-meta-user-status/"><u>Pay-for-Verified Meta User Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platform-security-vulnerabilities/"><u>Social Platform Security Vulnerabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-social-media-sponsored-feed-presentation/"><u>Streamline Social Media Sponsored Feed Presentation</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-rise-presents-new-headwinds-to-facebooks-profits/"><u>TikTok's Rise Presents New Headwinds to Facebook's Profits</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/top-picks-for-instant-recorder-performance-for-2024/"><u>Top Picks for Instant Recorder Performance for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/update-your-lenovo-ideapad-100-to-the-latest-drivers-compatible-with-windows-11/"><u>Update Your Lenovo IdeaPad 100 to the Latest Drivers Compatible with Windows 11</u></a></li>
+</ul></div>
 

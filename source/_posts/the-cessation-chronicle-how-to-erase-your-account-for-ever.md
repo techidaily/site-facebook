@@ -1,7 +1,7 @@
 ---
 title: "The Cessation Chronicle: How to Erase Your Account for Ever"
-date: 2024-10-23T20:12:25.514Z
-updated: 2024-10-26T21:42:00.082Z
+date: 2024-10-28T17:28:47.050Z
+updated: 2024-11-01T16:35:33.854Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 
  Before you remove your Facebook account forever, there are a few steps you need to take to ensure that the process runs smoothly and you don't have a burning feeling of regret later on.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Download Your Facebook Data
 
  Just because you've decided Facebook is no longer fit for purpose today, it doesn't mean you should disregard all the content you have amassed there over the years.
@@ -58,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 
  When you have made your selection, click on**Submit Request** . Depending on the amount of data you want to download, it could be several hours until the file is ready.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Check Your Third-Party Facebook Apps
 
  Many apps and services give you the option to sign in using your Facebook credentials, also known as Facebook Login.
@@ -68,23 +82,9 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 
 ![Apps and website section of Facebook settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/apps-and-website-section-of-facebook-settings.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  You can see which apps have access to your Facebook account by clicking your profile picture and going to **Settings & privacy > Settings > Apps and Websites** .
 
  You may need to approach the third-party app developer directly; you cannot make the necessary changes through Facebook.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Tell People You're Leaving Facebook
 
@@ -104,13 +104,6 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 4. Choose**Account ownership and control** .  
 ![Personal details section of the Accounts Center in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/personal-details-section-of-the-accounts-center-in-facebook.jpeg)
 5. On the next screen, select**Deactivation or deletion** and choose the profile you want to delete.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 6. Confirm you want to delete your account by choosing the**Delete account** toggle on the next screen.
 
@@ -137,15 +130,22 @@ Here's how to deactivate your Facebook account:
 ![Facebook account deactivation prompt in the account center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-account-deactivation-prompt-in-the-account-center.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You will be asked to confirm your decision. Once you do that, your account will be deactivated.
 
  You can toggle the option to continue using Messenger even though your Facebook account is disabled.
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Reactivate a Facebook Account
 
@@ -172,21 +172,22 @@ Here's how to deactivate your Facebook account:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/1719148392562-terra-trotter-a-tech-savvy-goats-new-identity/"><u>'Terra Trotter': A Tech-Savvy Goat's New Identity.</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-professional-photography-hacks-perfecting-motion-blur-with-adobe-tools-for-2024/"><u>[New] Professional Photography Hacks Perfecting Motion Blur with Adobe Tools for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-maximize-youtube-savvy-unified-streams-for-enthusiasts/"><u>2024 Approved Maximize YouTube Savvy Unified Streams for Enthusiasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-comparative-look-at-the-fall-of-online-communities-vs-social-networks/"><u>A Comparative Look at the Fall of Online Communities Vs. Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/apples-unique-vision-staying-away-from-metaverse-frenzy/"><u>Apple's Unique Vision: Staying Away From Metaverse Frenzy</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-likes-exploring-verified-metas-and-blue-statuses/"><u>Beyond Likes: Exploring Verified Metas and Blue Statuses</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/boost-your-efficiency-and-explore-with-enhanced-features-top-picks-for-the-best-xr-glasses-on-the-market-insights-from-zdnet/"><u>Boost Your Efficiency & Explore with Enhanced Features: Top Picks for the Best XR Glasses on the Market | Insights From ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/capture-every-interaction-download-tactics-for-facebook-history/"><u>Capture Every Interaction: Download Tactics for Facebook History</u></a></li>
-<li><a href="https://facebook.techidaily.com/clarifying-rights-to-your-social-media-photos/"><u>Clarifying Rights to Your Social Media Photos</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-connections-the-covert-evolution-of-facebooks-wrist-tech/"><u>Crafting Connections: The Covert Evolution of Facebook’s Wrist Tech</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-oppo-reno-11-pro-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Oppo Reno 11 Pro 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-reset-apple-id-and-apple-password-on-iphone-15-pro-by-drfone-ios/"><u>How to Reset Apple ID and Apple Password On iPhone 15 Pro</u></a></li>
-<li><a href="https://extra-support.techidaily.com/natures-canvas-a-variety-of-downloads-to-enhance-cinematic-work-for-2024/"><u>Nature’s Canvas A Variety of Downloads to Enhance Cinematic Work for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor Play 40C | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/samsungs-upcoming-model-the-galaxy-s25-rumored-details-on-cost-availability-and-technical-specs/"><u>Samsung's Upcoming Model - The Galaxy S25 Rumored Details on Cost, Availability & Technical Specs</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-tug-of-war-youtube-licensing-versus-cc-principles-for-2024/"><u>The Tug-of-War Youtube Licensing Versus CC Principles for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-image-illumination-choose-best-websites-with-photo-framing-features/"><u>2024 Approved Image Illumination Choose Best Websites with Photo Framing Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-foray-into-wearables-potential-for-dual-camera-smartwatches/"><u>Facebook's Foray Into Wearables: Potential for Dual Camera Smartwatches</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/from-celluloid-to-screen-adapting-your-vids-for-ig/"><u>From Celluloid to Screen Adapting Your Vids for IG</u></a></li>
+<li><a href="https://facebook.techidaily.com/fun-and-respect-keeping-social-media-clean/"><u>Fun & Respect: Keeping Social Media Clean</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-navigating-iphoneipad-uploads-to-youtube-platforms/"><u>In 2024, Navigating iPhone/iPad Uploads to YouTube Platforms</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-roadmap-to-free-cut-out-imagery/"><u>In 2024, The Roadmap to Free Cut-Out Imagery</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-samsung-galaxy-f14-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Samsung Galaxy F14 5G to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-vidsnapper-live-and-group-videos-fb/"><u>In 2024, VidSnapper Live and Group Videos, FB</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Vivo S18 Pro? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/innovative-approach-to-3d-text-in-photoediting-for-2024/"><u>Innovative Approach to 3D Text in PhotoEditing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-live-broadcasts-without-soundvideo/"><u>Instagram Live Broadcasts Without Sound/Video</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/perfect-audio-experience-with-oculus-quest-expert-advice-for-leveraging-its-built-in-microphone/"><u>Perfect Audio Experience with Oculus Quest: Expert Advice for Leveraging Its Built-In Microphone</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-social-space-the-definitive-guide-to-detection-9-tips/"><u>Secure Social Space: The Definitive Guide to Detection (9 Tips)</u></a></li>
+<li><a href="https://facebook.techidaily.com/tapping-into-messenger-fun-integrating-soundmojis/"><u>Tapping Into Messenger Fun: Integrating Soundmojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-tech-updates-that-have-been-underestimated-and-forgotten/"><u>The Biggest Tech Updates That Have Been Underestimated and Forgotten!</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-and-tricks-for-resurrecting-vanished-facebook-likes/"><u>Tips and Tricks for Resurrecting Vanished Facebook Likes</u></a></li>
+<li><a href="https://facebook.techidaily.com/whistle-on-the-wind-german-actions-put-a-stop-to-facebooks-whatsapp-data-collection-drive/"><u>Whistle on the Wind: German Actions Put a Stop to Facebook's WhatsApp Data Collection Drive</u></a></li>
 </ul></div>
 

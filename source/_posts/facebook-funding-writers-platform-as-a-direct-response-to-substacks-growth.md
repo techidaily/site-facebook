@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2024-10-19T21:03:29.569Z
-updated: 2024-10-26T20:26:15.150Z
+date: 2024-10-27T17:16:52.531Z
+updated: 2024-11-01T16:51:44.288Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -66,18 +66,17 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-resolve-instagram-video-glitches-today/"><u>[New] 2024 Approved Resolve Instagram Video Glitches Today</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-all-you-need-to-know-about-mobizens-screen-capture/"><u>[New] All You Need to Know About Mobizen's Screen Capture</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-to-excellent-cricket-broadcasting/"><u>[New] The Ultimate Guide to Excellent Cricket Broadcasting</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-the-clear-out-instructions-for-disabling-an-old-linkedin-profile/"><u>2024 Approved The Clear-Out Instructions for Disabling an Old LinkedIn Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/achieve-secure-email-engagement-mastery-of-2fa-on-popular-mail-services-like-google-and-microsoft/"><u>Achieve Secure Email Engagement: Mastery of 2FA on Popular Mail Services Like Google and Microsoft</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-secret-dialogues-on-facebook-well-guarded/"><u>Are Secret Dialogues on Facebook Well-Guarded?</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-free-from-excessive-fb-reel-watching/"><u>Breaking Free From Excessive FB Reel Watching</u></a></li>
-<li><a href="https://facebook.techidaily.com/browsing-back-through-personal-fb-history/"><u>Browsing Back Through Personal FB History</u></a></li>
-<li><a href="https://facebook.techidaily.com/curb-unexpected-people-proposals-on-facebook/"><u>Curb Unexpected People Proposals on Facebook</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/cutting-edge-introduction-editors-for-all-your-tech/"><u>Cutting-Edge Introduction Editors for All Your Tech</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-building-a-competitive-advantage-through-in-depth-industry-analysis/"><u>In 2024, Building a Competitive Advantage Through In-Depth Industry Analysis</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/powering-your-sites-personalization-features-with-modern-tech/"><u>Powering Your Site's Personalization Features With Modern Tech</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/reset-itunes-backup-password-of-apple-iphone-8-prevention-and-solution-drfone-by-drfone-ios/"><u>Reset iTunes Backup Password Of Apple iPhone 8 Prevention & Solution | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-gamers-quest-1000plus-game-adventures-unfolded/"><u>[New] 2024 Approved Gamer's Quest 1,000+ Game Adventures Unfolded</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-ascend-in-the-youtube-arena-through-creative-studio-mastery/"><u>[New] Ascend in the YouTube Arena Through Creative Studio Mastery</u></a></li>
+<li><a href="https://win-data.techidaily.com/excel-excel/"><u>自動でExcelデータをコピー保存する手順 - Excelファイル効率化ガイド</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-group-creation-in-social-media-landscape/"><u>Mastering Group Creation in Social Media Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-danger-zone-recognizing-and-evade-online-trading-scams/"><u>Navigating the Danger Zone: Recognizing & Evade Online Trading Scams</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/professionals-choice-leading-video-editors-for-sierra/"><u>Professional's Choice Leading Video Editors for Sierra</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-process-of-granting-access-in-facebook/"><u>The Process of Granting Access in Facebook</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-selecting-a-quality-projector-what-you-need-to-know/"><u>The Ultimate Guide to Selecting a Quality Projector – What You Need to Know</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/topmost-comfortable-ergonomic-keyboard-models/"><u>Topmost Comfortable Ergonomic Keyboard Models</u></a></li>
+<li><a href="https://blog-min.techidaily.com/understanding-the-winxdvd-eula-by-digiarty-software-key-points-revealed/"><u>Understanding the WinXDVD EULA by Digiarty Software - Key Points Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-power-of-photo-descriptions-on-social-media/"><u>Unveiling the Power of Photo Descriptions on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-ultimate-guide-to-fb-visual-privacy-control/"><u>Your Ultimate Guide to FB Visual Privacy Control</u></a></li>
 </ul></div>
 

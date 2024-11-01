@@ -1,7 +1,7 @@
 ---
 title: "Timing Your FB Friends: When to Follow & Unfollow?"
-date: 2024-10-20T18:48:51.206Z
-updated: 2024-10-26T17:34:10.148Z
+date: 2024-10-30T16:48:04.228Z
+updated: 2024-11-01T16:39:03.823Z
 tags:
   - facebook
 categories:
@@ -51,6 +51,13 @@ There are two reasons to use the follow feature.
 
 ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You automatically follow all your friends. Anyone else, you need to follow manually.
 
  To follow someone, go to their profile page and click on the three dots below the lower right-hand corner of the person's cover photo, then hit**Follow** .
@@ -64,20 +71,13 @@ There are two reasons to use the follow feature.
 ![facebook unfollow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-unfollow.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Do You See Who You're Following?
 
@@ -85,16 +85,16 @@ There are two reasons to use the follow feature.
 
  On the next screen, you'll see a new set of tabs. Choose**Following** . If you don't see the option, it means you're not following anyone who isn't also a friend.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Do You Let People Follow You?
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  So, following other people is straightforward enough, but how do you let other people follow your profile and posts?
 
@@ -106,16 +106,16 @@ This same page contains three other settings you need to be aware of:
 * **Public Post Notifications:** Do you wish to receive notifications for actions taken by individuals who aren't your friend?
 * **Public Profile Info:** Some of your profile---such as your profile picture, cover image, and short bio---is always public. This setting restricts who can comment on it.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Do Your Facebook Followers See?
 
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Followers can see any of your public content. Remember, this doesn't only refer to text-based posts, you can also choose to make pictures, albums, videos, and even your likes public knowledge.
 
@@ -125,14 +125,14 @@ This same page contains three other settings you need to be aware of:
 
 ![facebook see following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-see-following.png)
 
- To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
-
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
 
 ## How to See Who Follows You on Facebook
 
@@ -177,17 +177,22 @@ This same page contains three other settings you need to be aware of:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-mastering-the-art-of-crafting-engaging-spotify-promos-for-2024/"><u>[Updated] Mastering the Art of Crafting Engaging Spotify Promos for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-glimpse-into-the-inner-workings-of-social-media-giants/"><u>A Glimpse Into the Inner Workings of Social Media Giants</u></a></li>
-<li><a href="https://facebook.techidaily.com/advice-addressing-kids-presence-on-social-networks/"><u>Advice: Addressing Kids' Presence on Social Networks</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/audiovid-synergy-community-online-for-2024/"><u>AudioVid Synergy Community Online for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/become-a-new-personality-on-fb-editing-name-and-handle/"><u>Become a New Personality on FB: Editing Name and Handle</u></a></li>
-<li><a href="https://facebook.techidaily.com/claim-top-tier-paid-verification-from-meta/"><u>Claim Top Tier: Paid Verification From Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/cultivate-clarity-mastering-online-engagement-with-facebooks-enhanced-moderation-features/"><u>Cultivate Clarity: Mastering Online Engagement with Facebook's Enhanced Moderation Features</u></a></li>
-<li><a href="https://techtrends.techidaily.com/elevating-user-experience-the-positive-impact-of-googles-cleanup-on-android-app-selection/"><u>Elevating User Experience: The Positive Impact of Google's Cleanup on Android App Selection</u></a></li>
-<li><a href="https://driver-download.techidaily.com/expert-tips-for-successfully-updating-your-asus-wifi-driver-software/"><u>Expert Tips for Successfully Updating Your ASUS WiFi Driver Software</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-nubia-red-magic-8s-pro-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Nubia Red Magic 8S Pro Is Unlocked</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-the-ultimate-playlist-tweaking-on-youtube/"><u>In 2024, The Ultimate Playlist Tweaking on YouTube</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/solving-the-puzzle-compatible-software-for-mp4-file-viewing-on-macos-and-windows-operating-systems/"><u>Solving the Puzzle: Compatible Software for MP4 File Viewing on macOS and Windows Operating Systems</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-15-snapchat-mastery-techniques-you-cant-miss-for-2024/"><u>[New] 15 Snapchat Mastery Techniques You Can't Miss for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-social-media-symphony-composing-jake-pauls-youtube-success/"><u>[New] In 2024, The Social Media Symphony Composing Jake Paul's YouTube Success</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-essential-tips-for-cheap-gopro-shopping/"><u>[Updated] 2024 Approved Essential Tips for Cheap GoPro Shopping</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-proven-methods-for-logging-digital-audio-data/"><u>[Updated] In 2024, Proven Methods for Logging Digital Audio Data</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-comprehensive-strategies-for-windows-media-players-audio-operations/"><u>2024 Approved Comprehensive Strategies for Windows Media Player's Audio Operations</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-how-to-send-a-snap-from-memoriescamera-roll-on-snapchat/"><u>2024 Approved How to Send a Snap From Memories/Camera Roll on Snapchat</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-art-of-slow-motion-a-guide-for-instagrams-next-viral-reels/"><u>2024 Approved The Art of Slow-Motion A Guide for Instagram's Next Viral Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/intuitive-interface-for-the-modern-social-feed/"><u>Intuitive Interface for the Modern Social Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-giant-invests-in-global-battle-against-covid-1e/"><u>Online Giant Invests in Global Battle Against COVID-1e</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-branding-via-curated-social-media-chronicles/"><u>Personal Branding via Curated Social Media Chronicles</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-evasion-fb-enables-vaccine-skepticism-circles/"><u>Platform Evasion: FB Enables Vaccine Skepticism Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-threats-in-the-land-of-facebook-quiz-games/"><u>Potential Threats in the Land of Facebook Quiz Games?</u></a></li>
+<li><a href="https://facebook.techidaily.com/reality-check-metrics-and-money-metas-role-in-content-creation-earnings/"><u>Reality Check: Metrics and Money - Meta's Role in Content Creation Earnings</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-teens-social-network-fb-privacy-checklist/"><u>Securing Your Teen's Social Network: FB Privacy Checklist</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-intersection-of-friendship-and-commerce-facebooks-new-feature/"><u>The Intersection of Friendship and Commerce: Facebook’s New Feature</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-walkthrough-how-to-shut-down-facebook-app-on-android/"><u>The Ultimate Walkthrough: How to Shut Down Facebook App on Android</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-superior-performance-of-dji-air-2s-your-definitive-guide/"><u>Unveiling the Superior Performance of DJI Air 2S - Your Definitive Guide</u></a></li>
 </ul></div>
 

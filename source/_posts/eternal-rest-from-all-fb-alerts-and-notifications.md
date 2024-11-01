@@ -1,7 +1,7 @@
 ---
 title: Eternal Rest From All FB Alerts and Notifications
-date: 2024-10-23T17:27:16.140Z
-updated: 2024-10-26T18:54:47.031Z
+date: 2024-10-29T16:45:49.317Z
+updated: 2024-11-01T16:12:02.160Z
 tags:
   - facebook
 categories:
@@ -28,13 +28,6 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
 
  Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Less Stress
 
  Work, family time, and financial responsibilities can get so tiresome that people need some time away from everything. In such a scenario, a simple notification with some news or message can ruin your mood.
@@ -42,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
  That’s why people should turn off their notifications every couple of days to give themselves time to relax and refresh for the coming days. Releasing stress away from the screen can have a number of mental health and productivity benefits.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Better Concentration
@@ -53,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
  Let’s face it—we run to grab our mobile phone the second its screen brightens for a notification. This can be really distracting if you’re trying to work or study.
 
  By stopping Facebook notifications on your mobile and desktop, it is possible to concentrate on the task at hand.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Healthy Lifestyle
 
@@ -66,13 +66,6 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
 
 Users can block notifications from their desktops and mobile devices.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Blocking Mobile Notifications From Facebook
 
  First, let’s talk about blocking Facebook notifications from your mobile device. Since our phones are always at hand, it can be hard to avoid the notifications coming in.
@@ -81,18 +74,25 @@ Users can block notifications from their desktops and mobile devices.
 
 ![Go to Facebook settings and privacy mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-settings-and-privacy-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Tap Facebook notifications on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Tap-Facebook-notifications-on-mobile.jpg)
 
 ![What notifications you receive on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/What-notifications-you-receive.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Mute Facebook Push notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Mute-Facebook-Push-notifications.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -111,6 +111,13 @@ Close
 ![Go-to-apps-in-mobile-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-apps-in-mobile-settings.jpg)
 
 ![Facebook-app-notification-in-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-app-notification-in-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Turn-off-Facebook-notifications-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-mobile.jpg)
 
@@ -133,10 +140,10 @@ Close
 4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
@@ -147,13 +154,6 @@ Close
 8. Toggle the tab to turn off that particular setting. The changes are automatically applied to the device. Depending on your needs, you can block just one type of notification or all of them.  
 ![Turn off Facebook notifications on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-desktop.jpg)
 9. Close the app, and the notifications won't appear on your taskbar.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You can use the same method to block notifications using a Chromebook and the browser version of Facebook on mobile.
 
@@ -182,16 +182,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-champions-tech-the-ultimate-gaming-toolkit/"><u>[New] 2024 Approved Champion's Tech The Ultimate Gaming Toolkit</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-high-impact-imaging-our-favorite-7-4k-cameras/"><u>[New] High-Impact Imaging Our Favorite 7 4K Cameras</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-finding-your-ideal-display-ultrawide-vs-uhd-4k-edition/"><u>[New] In 2024, Finding Your Ideal Display UltraWide vs UHD 4K Edition</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-streamline-meeting-recording-on-devices-with-gotomeeting/"><u>[Updated] In 2024, Streamline Meeting Recording on Devices with GoToMeeting</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-harness-the-power-of-editing-for-fashion-hauls/"><u>2024 Approved Harness the Power of Editing for Fashion Hauls</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/8-useful-tool-to-pixelate-face-on-photo/"><u>8 Useful Tool to Pixelate Face on Photo</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-duty-dispute-whatsapp-sues-over-it-rule-impacts/"><u>Digital Duty Dispute: WhatsApp Sues Over IT Rule Impacts</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-if-facebooks-reels-can-rival-tiktok-writes/"><u>Discover if Facebook’s Reels Can Rival TikTok’ Writes</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-the-most-memorable-podcasts-of-2022/"><u>Discovering the Most Memorable Podcasts of 2022</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-reasons-for-facebooks-naming-shift/"><u>Dissecting the Reasons for Facebook's Naming Shift</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-itel-a05s-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Itel A05s to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-ultimate-guide-mastering-color-correction-and-grading/"><u>[New] Ultimate Guide Mastering Color Correction & Grading</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-capture-gifs-like-pro-on-any-mac-for-2024/"><u>[Updated] Capture GIFs Like Pro on Any Mac for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210882842-9781088161166-break-free-daily-revival-prayers-may-towards-national-transformation/"><u>Break-free - Daily Revival Prayers - MAY - Towards NATIONAL TRANSFORMATION | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-ban-rumored-on-fair-ad-posting-accusations/"><u>Facebook Ban Rumored on Fair Ad Posting Accusations</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-facebook-protection-email-from-securityfbcom-real/"><u>Is the Facebook Protection Email From @security@fb.com Real?</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalized-approach-to-limiting-fb-communications/"><u>Personalized Approach to Limiting Fb Communications</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-a-pleasant-digital-landscape-on-facebook/"><u>Securing a Pleasant Digital Landscape on Facebook</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-tecno-pova-5-pro-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Tecno Pova 5 Pro to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-your-facebook-relationship-trail/"><u>Understanding Your Facebook Relationship Trail</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-depth-review-of-ivona-text-to-speech-by-nextup-technologies-for-2024/"><u>Updated In-Depth Review of Ivona Text to Speech by NextUp Technologies for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: WhatsApp Extends Timeline for Privacy Update Announcement
-date: 2024-09-10T14:50:09.019Z
-updated: 2024-09-11T14:50:09.019Z
+date: 2024-11-03T17:45:29.722Z
+updated: 2024-11-06T19:11:14.372Z
 tags:
   - facebook
 categories:
@@ -19,20 +19,6 @@ thumbnail: https://thmb.techidaily.com/65e89fa5592e17a634309edf6fa4b1c7a4776f7c9
 
  In January this year, WhatsApp announced a controversial new privacy policy, which would allow the company to share data with Facebook. The policy initially stated that if one did not accept the changes, their WhatsApp account would be eventually deleted.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## WhatsApp's New Privacy Policy Has Been Heavily Criticized
 
  WhatsApp has updated its privacy policy many times in the past. However, this is the first time it announced that it would be limiting and deleting accounts that do not accept the changes.
@@ -45,67 +31,34 @@ thumbnail: https://thmb.techidaily.com/65e89fa5592e17a634309edf6fa4b1c7a4776f7c9
 
  For the past few weeks, WhatsApp has been showing a notification inside its app to provide more information about its privacy policy. It is also sending reminders if you have not accepted its new privacy policy. Eventually, if you don't accept the privacy policy, the reminder from WhatsApp will become persistent.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Your WhatsApp Account Functionality Will Be Limited
 
 ![WhatsApp running on an iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/india-investigating-whatsapp-featured.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Once a persistent reminder is shown, the functionality of your WhatsApp account will be limited. Initially, you'll only lose access to your chat list. You can, however, still answer incoming video or voice calls. You'll also be able to read and respond to messages or call back a missed voice or video call via notifications. In an[FAQ](https://faq.whatsapp.com/general/security-and-privacy/what-happens-when-our-terms-and-privacy-policy-updates-take-effect/?lang=en) , WhatsApp says the limitations will not apply to everyone at the same time.
 
  A few weeks after your WhatsApp account's functionality is limited, you will lose the ability to receive incoming calls and messages. At this point, your WhatsApp account will basically be of no use as you won't be able to send or receive messages.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Inactive WhatsApp Accounts Are Deleted After 120 Days
 
@@ -113,14 +66,11 @@ thumbnail: https://thmb.techidaily.com/65e89fa5592e17a634309edf6fa4b1c7a4776f7c9
 
  If you are not comfortable with WhatsApp's new privacy policy, you can check some[WhatsApp alternatives that do not share data with Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/) .
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -129,4 +79,26 @@ thumbnail: https://thmb.techidaily.com/65e89fa5592e17a634309edf6fa4b1c7a4776f7c9
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/updated-discovering-the-unmatched-quality-of-benq-sw320s-4k-screen/"><u>[Updated] Discovering the Unmatched Quality of BenQ SW320's 4K Screen</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-expertise-in-making-screen-captures-on-ios-easier-for-2024/"><u>[Updated] Expertise in Making Screen Captures on iOS Easier for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-audio-enabled-mac-video-recorder/"><u>[Updated] In 2024, Audio-Enabled Mac Video Recorder</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-avoid-ad-dollars-boost-your-view-count-for-free/"><u>[Updated] In 2024, Avoid Ad Dollars – Boost Your View Count for Free</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1-convert-png-and-jpg-images-with-ease-mastering-the-transition-using-movavi-image-converter/"><u>1. Convert PNG and JPG Images with Ease: Mastering the Transition Using Movavi Image Converter</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/converting-videos-on-macos-with-best-tools-guide/"><u>Converting Videos on macOS with Best Tools Guide</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-free-scarlett-solo-professional-recording-mic-preamp-for-windows-pcs/"><u>Get Your FREE Scarlett Solo - Professional Recording Mic Preamp for Windows PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-facebook-group-queries/"><u>Navigating the World of Facebook Group Queries</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-from-capture-to-share-mastering-gopro-quik-video-editing-on-macbook/"><u>New 2024 Approved From Capture to Share Mastering GoPro Quik Video Editing on MacBook</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-it-laws-face-off-in-court-with-whatsapp/"><u>New IT Laws Face Off in Court with WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/pondering-apples-decision-to-forego-metaverse-adventure/"><u>Pondering Apple's Decision to Forego Metaverse Adventure</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-a-facebook-purchase-reimbursement-process/"><u>Securing a Facebook Purchase Reimbursement Process</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ing-a-slot-in-youtube-finding-your-market-for-2024/"><u>Securing a Slot in YouTube Finding Your Market for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-titans-the-ultimate-battlefront-six/"><u>Tech Titans: The Ultimate Battlefront Six</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-writers-arena-beckons-facebook-spends-massive-5-million-to-enter-substack-race/"><u>The Writers’ Arena Beckons: Facebook Spends Massive $5 Million to Enter Substack Race</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-rated-family-wifi-protectors-the-ultimate-router-selection/"><u>Top-Rated Family WiFi Protectors: The Ultimate Router Selection</u></a></li>
+<li><a href="https://facebook.techidaily.com/tutorial-removing-fb-new-message-indicators/"><u>Tutorial: Removing Fb New Message Indicators</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-of-facebook-and-its-common-issues/"><u>Unlocking the Secrets of Facebook & Its Common Issues</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1725287716768-winxvideo-ai-ai/"><u>Winxvideo AI: 비디오 큐리어를 선보이고 최고 응답성을 향한 AI-기반 품질 향상</u></a></li>
+</ul></div>
 

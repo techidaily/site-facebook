@@ -1,7 +1,7 @@
 ---
 title: Revisit and Revive Past Online Encounters on Facebook
-date: 2024-09-05T09:31:22.950Z
-updated: 2024-09-06T09:31:22.950Z
+date: 2024-10-31T05:37:48.940Z
+updated: 2024-11-07T09:02:12.160Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,6 @@ keywords: Facebook Reconnect,Past Online Friendships,Reviving Old FB Conversatio
 thumbnail: https://thmb.techidaily.com/8f8ccde6a37994fbb46b3e6f7b726055988d6d039d40b57440a0147cb4ded38c.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Revisit and Revive Past Online Encounters on Facebook
 
 ### Quick Links
@@ -27,12 +21,6 @@ thumbnail: https://thmb.techidaily.com/8f8ccde6a37994fbb46b3e6f7b726055988d6d039
 * [Can You See the Friendship Between Any Two People on Facebook?](#can-you-see-the-friendship-between-any-two-people-on-facebook)
 * [Is There a Privacy Risk to Viewing Your Facebook Friendships?](#is-there-a-privacy-risk-to-viewing-your-facebook-friendships)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Key Takeaways
 
 * Viewing your friendship history on Facebook lets you see common interests and interactions with friends through a button or URL.
@@ -42,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/8f8ccde6a37994fbb46b3e6f7b726055988d6d039
  Did you know that a single button or URL lets you see your entire Facebook history with anyone you are friends with? You can see your interactions from when you first became friends, your shared interests, and more.
 
  Here's all you need to know about accessing your friendship history on Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to See Your Friendship History on Facebook
 
@@ -55,40 +50,17 @@ thumbnail: https://thmb.techidaily.com/8f8ccde6a37994fbb46b3e6f7b726055988d6d039
 
 ![Facebook Profile Page in App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-profile-page-in-app.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Manage Friend Menu on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/manage-friend-menu-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![Facebook Friendship history Page on App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page-on-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
  Using the URL is a little more complicated, but still useful. Follow these steps:
@@ -104,6 +76,13 @@ Close
 
  Remember that you can only use this tool with your current Facebook friends, not profiles you used to be friends with or profiles you never friended. Once you become friends on Facebook, the URL will work as long as you stay friends on the site.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Can You See the Friendship Between Any Two People on Facebook?
 
  It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
@@ -113,11 +92,12 @@ Close
  You can also see the friendship history between your account and memorialized accounts on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Is There a Privacy Risk to Viewing Your Facebook Friendships?
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
@@ -126,14 +106,11 @@ Close
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,4 +119,16 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-jubilant-join-and-disconnect-protocols/"><u>[New] Jubilant Join & Disconnect Protocols</u></a></li>
+<li><a href="https://article-helps.techidaily.com/access-an-array-of-personalized-ending-sounds-for-videos-for-2024/"><u>Access an Array of Personalized Ending Sounds for Videos for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/beneath-blue-waves-expert-tips-for-creating-stunning-underwater-footage-using-gopro/"><u>Beneath Blue Waves Expert Tips for Creating Stunning Underwater Footage Using GoPro</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-changes-in-social-media-fb-update-guide/"><u>Exploring Changes in Social Media: FB Update Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-infinix-hot-30i-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Infinix Hot 30i Unlock Without Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviving-your-social-media-presence-after-random-logout/"><u>Reviving Your Social Media Presence After Random Logout</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-future-of-titles-an-innovators-playbook-for-videos/"><u>The Future of Titles An Innovator's Playbook for Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-fashioning-unique-fb-gatherings/"><u>The Ultimate Guide to Fashioning Unique FB Gatherings</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-social-network-ensures-tighter-security-on-quest-headset/"><u>Which Social Network Ensures Tighter Security on Quest Headset?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook and Instagram Accounts Are Becoming More Connected
-date: 2024-09-10T14:50:10.600Z
-updated: 2024-09-11T14:50:10.600Z
+date: 2024-11-02T08:52:01.742Z
+updated: 2024-11-07T01:53:42.866Z
 tags:
   - facebook
 categories:
@@ -16,20 +16,6 @@ thumbnail: https://thmb.techidaily.com/571a13bc6404d66e8575f828248d5c770574159f8
 ## Facebook and Instagram Accounts Are Becoming More Connected
 
  Despite concerns that users have over the data-sharing between Instagram and Facebook, parent company Meta has announced that it's testing Accounts Center features that allow users to swap between profiles more easily and receive notifications from both apps.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Meta Tests New Cross-Platform Account Center Features
 
@@ -49,19 +35,12 @@ Meta notes:
 
  If you want to[make your Instagram more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , or have concerns about Facebook data leaks, this may not be the feature for you.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Accounts Center May Expand to More Apps
 
@@ -71,32 +50,22 @@ Meta notes:
 
  In August 2022, Meta introduced Meta Accounts, a change to account structure for Oculus profiles and Meta Horizons.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Meta Continues to Bring its Apps Closer
 
  The new Accounts Center feature test won't be the last we see of centralized Meta account access. If all goes according to plan, your profiles across Meta accounts may become a lot more connected than in the past.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,4 +74,20 @@ Meta notes:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-proven-winners-the-top-5-tools-for-video-conference-recording/"><u>[New] 2024 Approved Proven Winners The Top 5 Tools for Video Conference Recording</u></a></li>
+<li><a href="https://win-data.techidaily.com/1-stream-your-favorite-tunes-effortless-music-video-downloads-from-musicplayon/"><u>1. Stream Your Favorite Tunes: Effortless Music Video Downloads From MusicPlayOn</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-a-detailed-guide-to-ending-your-linkedin-user-experience/"><u>2024 Approved A Detailed Guide to Ending Your LinkedIn User Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-cross-cultural-communication-via-fb-content/"><u>Enhancing Cross-Cultural Communication via FB Content</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-listen-to-spotify-without-leaving-the-facebook-app/"><u>How to Listen to Spotify Without Leaving the Facebook App</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-convert-google-meet-chats-into-youtube-livestream-easily/"><u>In 2024, Convert Google Meet Chats Into YouTube Livestream Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/nbafire-up-on-both-platforms-this-year/"><u>NBAFire Up on Both Platforms This Year</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-learners-guide-to-french-literature-20-favorite-books/"><u>New Learners' Guide to French Literature: 20 Favorite Books</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-cues-and-invisible-rules-in-facebook-friending/"><u>Social Cues and Invisible Rules in Facebook Friending</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-login-process-with-whatsapps-instagram-2fa-code-support/"><u>Streamline Login Process with WhatsApp's Instagram 2FA Code Support</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-enhanced-ultrablade-samsungs-2023-take/"><u>The Enhanced UltraBlade Samsung’s 2023 Take</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-not-facebook-the-perspective-on-longevity/"><u>Why Not Facebook: The Perspective on Longevity</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Subtle Show of Approval: FB Like Anonymity Tips"
-date: 2024-09-05T09:31:23.070Z
-updated: 2024-09-06T09:31:23.070Z
+date: 2024-11-05T08:31:44.709Z
+updated: 2024-11-07T02:53:00.632Z
 tags:
   - facebook
 categories:
@@ -13,59 +13,44 @@ keywords: Facebook Anonymous Likes,FB Like Hidden Profile,Stealth FB Liking Guid
 thumbnail: https://thmb.techidaily.com/11e98257d7e7257e5883dcc5757d573b33d04f0ecfefae2f5882a90863822c25.png
 ---
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Subtle Show of Approval: FB Like Anonymity Tips
 
  Since May 2021, Facebook has allowed users to hide the number of reactions on their posts. You can also hide the total number of reactions on posts from other users across your home feed, groups, and pages.
 
  In this article, you'll find out how to hide likes on your Facebook posts—as well as how to stop seeing other people's like counts.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Hide Your Reactions Count on Facebook
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Hiding the Facebook Reaction Count on Mobile
 
 ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![Reaction preference settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Reaction-count-settings-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -77,12 +62,6 @@ To hide the number of reactions on your posts, follow these steps.
 4. Scroll down to**News Feed Settings** and select **Reaction Preferences** . This will take you to the Reactions preferences settings page. From here, you can disable the reactions count on your posts, from posts of other users, or both.
 5. Toggle the slider next to**On posts from others** to hide the total number of reactions on Facebook posts from other users. To hide the number of reactions on your posts, toggle the slider adjacent to**On your posts** .
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Hiding the Reaction Count on Facebook on the Web
 
  If you’re accessing Facebook via a browser using your PC, Mac, or mobile device, follow these steps instead.
@@ -97,6 +76,13 @@ To hide the number of reactions on your posts, follow these steps.
 Your new settings are saved automatically.
 
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Understanding Facebook's Reaction Preferences
 
@@ -114,14 +100,11 @@ Your new settings are saved automatically.
 
  Facebook’s new reaction count setting is an excellent way to take your mind of the number of reactions a “Facebook friend” gets. The setting takes the pressure of social comparison off your chest, at least as far as the total number of reactions go on the platform. And remember: you can always choose to delete your Facebook account if it does more harm than good.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,4 +113,22 @@ Your new settings are saved automatically.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-unleash-your-potential-detailed-guide-for-ps4-recordings-with-obs/"><u>[New] 2024 Approved Unleash Your Potential Detailed Guide for PS4 Recordings with OBS</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-dive-into-the-world-of-cartoon-pop-culture-with-snapchat/"><u>[New] In 2024, Dive Into the World of Cartoon Pop Culture with Snapchat</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-optimizing-your-fb-profile-with-stunning-cover-videos/"><u>[New] Optimizing Your FB Profile with Stunning Cover Videos</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unparalleled-dramatic-audio-experiences/"><u>[New] Unparalleled Dramatic Audio Experiences</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-step-by-step-to-faster-tiktok-videos-for-2024/"><u>[Updated] Step-by-Step to Faster TikTok Videos for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-skys-limit-for-your-visual-stories-unlimited-free-options-and-premium-choices/"><u>2024 Approved Sky's Limit for Your Visual Stories Unlimited Free Options and Premium Choices</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-blueprint-to-establishing-an-online-review-community-for-toys/"><u>2024 Approved The Blueprint to Establishing an Online Review Community for Toys</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-customization-techniques-for-social-media/"><u>Cutting-Edge Customization Techniques for Social Media</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-best-free-apple-iphone-13-mini-imei-checker-by-drfone-ios/"><u>In 2024, Best Free Apple iPhone 13 mini IMEI Checker</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-shift-to-nft-world/"><u>Instagram's Shift to NFT World</u></a></li>
+<li><a href="https://article-helps.techidaily.com/single-out-focal-point-using-affinity/"><u>Single-Out Focal Point Using Affinity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unfriendly-book-how-to-break-up-with-facebook-friends/"><u>The Unfriendly Book: How to Break Up with Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-real-vs-phantom-identifying-false-accounts-in-fb/"><u>Unveiling Real Vs. Phantom: Identifying False Accounts in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-behind-an-absence-from-messenger/"><u>What Lies Behind an Absence From Messenger?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-everyone-needs-to-chill-out-about-facebooks-user-numbers/"><u>Why Everyone Needs to Chill Out About Facebook's User Numbers</u></a></li>
+</ul></div>
 

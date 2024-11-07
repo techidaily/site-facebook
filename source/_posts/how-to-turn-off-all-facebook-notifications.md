@@ -1,7 +1,7 @@
 ---
 title: How To Turn Off All Facebook Notifications
-date: 2024-10-30T16:23:34.759Z
-updated: 2024-11-01T16:06:45.614Z
+date: 2024-11-03T19:43:18.771Z
+updated: 2024-11-07T09:59:17.262Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 
  The process to delete Facebook notifications on the smartphone app is similar. Just fire up the app and tap on the**Notifications** tab. Once you've found the alert you want to get rid of, tap on the three dots and choose**Remove this notification** .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Clear All Facebook Notifications
 
  When you log into Facebook and see a pile of unread notifications, you'll want to clear them as soon as possible. If you click on the bell icon, the unread notifications red dot disappears.
@@ -57,25 +64,11 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 3. Click on the three horizontal dots.
 4. Select**Mark all as read** .
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Turn Off Facebook Notifications
 
  Hopefully, the last two sections have helped you get your existing Facebook notifications under control. But that's only half of the battle. You need to make sure you're not getting pestered by all that notification spam in the future, otherwise, you'll quickly end up back in the same position.
 
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications as They Arrive
 
@@ -92,6 +85,13 @@ Follow the steps below to learn about the process on the web app:
  (**Note:** If you are disabling notifications from a page, you will also see an option to**Turn off all notifications from this page** .)
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications by Category
 
@@ -112,19 +112,6 @@ Follow the steps below to learn about the process on the web app:
 
  It's also worth scrolling to the very bottom of the list to the**How you receive notifications** section. In it, you can select which browser and email notifications you receive. You can choose to receive Facebook's suggested notifications if can't be bothered to customize everything—but it will probably still result in you getting too much spam.
 
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Stop Facebook Notifications Altogether
 
  You can't disable all types of Facebook notifications in the web app, but you can stop Facebook notifications entirely on Android and iOS.
@@ -134,6 +121,13 @@ Follow the steps below to learn about the process on the web app:
 ### How to Stop Facebook Notifications on Android
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
 
@@ -158,10 +152,10 @@ Close
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
 
 <!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## More Ways to Make Facebook Work for You
@@ -187,20 +181,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-youtube-short-mastery-from-idea-to-final-product/"><u>[New] YouTube Short Mastery From Idea to Final Product</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-top-rankings-decoded-is-pickups-editorivity-leading-android/"><u>[Updated] 2024 Approved Top Rankings Decoded Is PickUp's Editorivity Leading Android?</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-unveiling-the-secrets-of-valheim-crop-cultivation/"><u>2024 Approved Unveiling the Secrets of Valheim Crop Cultivation</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-p40plus-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on P40+</u></a></li>
-<li><a href="https://facebook.techidaily.com/halt-global-tag-functionality-on-fb/"><u>Halt Global Tag Functionality on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/hold-your-breath-facebooks-regulators-stall-judgment/"><u>Hold Your Breath: Facebook's Regulators Stall Judgment</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Poco F5 5G | Dr.fone</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-premiere-elements-not-for-you-try-these-10-exceptional-alternatives-instead/"><u>New Premiere Elements Not for You? Try These 10 Exceptional Alternatives Instead</u></a></li>
-<li><a href="https://facebook.techidaily.com/personalizing-your-profile-picture-for-facebook/"><u>Personalizing Your Profile Picture for Facebook</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/problemlosungen-unzugangliche-boot-festplatten-mit-windows-zum-ausfuhren-funf-ansatze/"><u>Problemlösungen - Unzugängliche Boot-Festplatten Mit Windows Zum Ausführen: Fünf Ansätze</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-intersection-of-online-networks-and-real-world-shopping/"><u>The Intersection of Online Networks and Real-World Shopping</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-vigilant-eye-seeing-through-fake-profiles-in-networks/"><u>The Vigilant Eye: Seeing Through Fake Profiles in Networks</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-best-image-to-video-converters-free-and-paid-options/"><u>Updated Best Image to Video Converters Free and Paid Options</u></a></li>
-<li><a href="https://facebook.techidaily.com/vulnerabilities-in-cyber-social-networks/"><u>Vulnerabilities in Cyber Social Networks</u></a></li>
-<li><a href="https://win-blog.techidaily.com/windows-users-solve-your-steelseries-gg-engine-concerns-with-these-tips/"><u>Windows Users, Solve Your SteelSeries GG Engine Concerns With These Tips!</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-full-breakdown-mastering-facetune-for-photo-enhancement/"><u>[New] 2024 Approved The Full Breakdown Mastering Facetune for Photo Enhancement</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/hannel-confidence-tips-for-trending-on-youtube-for-2024/"><u>[New] Channel Confidence Tips for Trending on YouTube for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-capture-perfection-freemacrecorder/"><u>[Updated] 2024 Approved Capture Perfection FreeMacRecorder</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-10-audio-transformation-apps-for-next-level-vtuber-performance/"><u>2024 Approved Top 10 Audio Transformation Apps for Next-Level VTuber Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-feed-mastering-customization-in-facebooks-world/"><u>Crafting Your Feed: Mastering Customization in Facebook's World</u></a></li>
+<li><a href="https://facebook.techidaily.com/establishing-privacy-boundaries-in-adolescent-social-media-use/"><u>Establishing Privacy Boundaries in Adolescent Social Media Use</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Honor Play 40C? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-infographic-efficient-video-marketing-for-smalls/"><u>In 2024, Infographic Efficient Video Marketing for Smalls</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-hands-free-motion-an-overview/"><u>In 2024, Mastering Hands-Free Motion An Overview</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-site-shifts-paradigms-the-story-of-facebook/"><u>Social Networking Site Shifts Paradigms – The Story of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-online-presence-by-adjusting-facebooks-birthdate/"><u>Streamlining Your Online Presence by Adjusting Facebook's Birthdate</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/tech-reviews-unleashed-top-picks-and-expert-opinions-from-toms-gear-evaluations/"><u>Tech Reviews Unleashed: Top Picks and Expert Opinions From Tom's Gear Evaluations</u></a></li>
 </ul></div>
 

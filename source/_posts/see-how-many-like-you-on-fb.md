@@ -1,7 +1,7 @@
 ---
 title: See How Many Like You on FB
-date: 2024-09-05T09:31:23.769Z
-updated: 2024-09-06T09:31:23.769Z
+date: 2024-11-03T06:44:28.327Z
+updated: 2024-11-06T22:54:34.470Z
 tags:
   - facebook
 categories:
@@ -19,40 +19,16 @@ thumbnail: https://thmb.techidaily.com/19529825bc864f6a7105eee056c51264b322fc80a
 
  You can easily do this on either mobile or PC. Here's how to find out how many followers you have on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to See Who Follows You on Facebook on Mobile
 
  The Facebook mobile app lets you access your follower list as well as see the number of people following you on Facebook. That way, you can get an idea of the number of people who have[followed and unfollowed on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) over time.
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook profile followers section](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile-followers-section-1.jpeg)
 
 ![Facebook number of followers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/-Facebook-number-of-followers.jpeg)
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
  To check how many followers you have and see who's following you via the Facebook mobile app, use these steps:
@@ -62,18 +38,6 @@ Close
 3. Scroll to the bottom of the page. Then under**Followers** , tap**See all** to load a list of all your Facebook followers.
 4. Look to the top-right corner of the page (opposite**Followers**) to see the number of people that follow you on Facebook.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to See Your Followers on Facebook on a Desktop Browser
 
  While you can see your Facebook followers on the web version of Facebook, you can't see the total number of people following you. If you want to see who is following you on Facebook, here's what to do if you're using the browser version...
@@ -82,22 +46,10 @@ Close
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. Once logged in, click your name at the top of the left sidebar to open your profile.
 2. Click the**More** dropdown.
 3. From the dropdown list, select**Followers** to view all your Facebook followers.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Can't See Your Facebook Followers? Here's Why
 
  If you've tried to view your Facebook followers on the mobile app but can't see them, your mobile app might be outdated. Make sure you update it from the App Store or Play Store.
@@ -107,6 +59,13 @@ Close
  You may also not get this option if your Facebook account is new, as you likely don't have any followers yet. Or you might need to[switch to a different Facebook account](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) .
 
  Another possible reason is your current account privacy setting might not allow people to follow you on Facebook—we'll explain how to change this below.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Allow People to Follow You on Facebook
 
@@ -122,20 +81,16 @@ To do this on the desktop browser:
 3. Click**Settings** .  
 ![Facebook homepage profile icon settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-homepage-profile-icon-settings.jpg)
 4. From the left sidebar of the Settings menu, click**Privacy** .  
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![Facebook profile settings privacy option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-settings-privacy-option.jpg)
 5. Select**Public Posts** from the left sidebar.
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 6. Look to the right of the**Who Can Follow Me** option and click the**Friends** dropdown.
 7. Select**Public** to allow anyone to follow you, including those who aren't your friends on Facebook.  
 ![Facebook profile setting follower settings desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-setting-follower-settings-desktop.jpg)
@@ -146,7 +101,21 @@ To change your followers' preference on the Facebook mobile app:
 
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-settings-menu.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook follower settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-follower-settings-menu.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -161,14 +130,11 @@ Close
 
  With that in mind, ensure you set your Facebook privacy preferences correctly—so your posts reach only those you want.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -177,4 +143,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/updated-key-tips-for-sourcing-elite-filmmakers-for-2024/"><u>[Updated] Key Tips for Sourcing Elite Filmmakers for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-defense-reviewed-an-expert-look-at-procases-macbook-pro-13-case/"><u>Budget-Friendly Defense Reviewed: An Expert Look at ProCase’s MacBook Pro 13 Case</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discipline-validity-in-banning-trump-short-term-measure/"><u>Digital Discipline: Validity in Banning Trump, Short-Term Measure</u></a></li>
+<li><a href="https://facebook.techidaily.com/duplicitous-dms-verify-user-authenticity/"><u>Duplicitous DMs: Verify User Authenticity</u></a></li>
+<li><a href="https://blog-min.techidaily.com/flac-mp3-online/"><u>FLAC MP3変換サービス: 無料で使いやすいOnlineオンラインツール</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-fix-games-not-opening-in-full-screen-mode-on-windows/"><u>How to Fix Games Not Opening in Full Screen Mode on Windows</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-on-iphone-se-smoothly-by-drfone-ios/"><u>How To Remove iCloud On iPhone SE Smoothly</u></a></li>
+<li><a href="https://extra-information.techidaily.com/innovative-interactive-webinar-writer/"><u>Innovative Interactive Webinar Writer</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-captivating-audiences-in-fb-posts/"><u>Mastering the Art of Captivating Audiences in FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-wisdom-of-silence-deciphering-instagrams-plea-to-unplug/"><u>The Wisdom of Silence: Deciphering Instagram's Plea to Unplug</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unlock-expertise-proven-hidden-window-11-strategies-for-everyday-users/"><u>Unlock Expertise Proven, Hidden WINDOW 11 Strategies for Everyday Users</u></a></li>
+</ul></div>
 

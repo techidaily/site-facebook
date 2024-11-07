@@ -1,7 +1,7 @@
 ---
 title: "Meta’s Triad: The Social Titans Among Us"
-date: 2024-09-10T14:50:08.511Z
-updated: 2024-09-11T14:50:08.511Z
+date: 2024-11-06T10:06:00.122Z
+updated: 2024-11-07T11:22:45.008Z
 tags:
   - facebook
 categories:
@@ -20,26 +20,6 @@ thumbnail: https://thmb.techidaily.com/ff8e499dfacbb3f8c53c52b2127d34f19a999ba4d
  From its humble beginnings in a Harvard dorm room to its emergence as a multibillion-dollar tech behemoth, the company has continuously evolved, redefining its core goals along the line.
 
  However, one of its core objectives has remained unchanged—dominance! Here are some reasons we should all be concerned about Meta's unfettered influence within the social media space.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 1\. An Entrapping Social Media Monopoly
 
@@ -63,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/ff8e499dfacbb3f8c53c52b2127d34f19a999ba4d
 
 ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  With great monopoly comes great power. Meta's powers are enormous. Only a few private companies can measure up to its global influence. The company controls some of the world's most important digital communication tools. With over a quarter of the world's population using their apps, Meta holds a rare power over how the world communicates.
 
  Perhaps much more concerning is the fact that a disproportionate amount of this power rests on one individual—Mark Zuckerberg. According to this[SEC document](https://www.sec.gov/Archives/edgar/data/1326801/000132680118000022/facebook2018definitiveprox.htm) , Zuckerberg controls around 60% of Meta's voting power, effectively bestowing on him dictatorial powers over the billions of people that use Meta's product.
@@ -71,23 +58,16 @@ thumbnail: https://thmb.techidaily.com/ff8e499dfacbb3f8c53c52b2127d34f19a999ba4d
 
  As evidenced in the buildup to the last two US presidential elections, filtered information can positively or negatively influence global outcomes. Consequently, Meta can easily influence global culture by controlling the kind of information billions of people have access to. That much power, if unchecked, is potentially dangerous.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 3\. A Privacy Dilemma
 
 ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
 
@@ -98,20 +78,6 @@ thumbnail: https://thmb.techidaily.com/ff8e499dfacbb3f8c53c52b2127d34f19a999ba4d
  If you use Facebook services, Meta has a complete history of where you've been for at least the last year. Once you've signed up with any of Meta's products, you become tracked indefinitely. Facebook, for instance, tracks you even when you're not actively using any of its products. It does this through data-sharing agreements with hundreds of tech companies whose apps you're likely using as well.
 
 ![Off Facebook Activity lets you view and control what facebook knows about you through third party websites and apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/05/facebook-privacy-off-facebook-activity.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ​​​​​​
 
@@ -127,43 +93,16 @@ Not convinced?
 
 ![Screenshot_20211223-204847](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204847.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
 
-![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
 
 Close
 
@@ -171,19 +110,12 @@ Close
 
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the[New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Stay Conscious of Meta's Influence
 
@@ -193,14 +125,11 @@ Close
 
  Be proactive. Stay conscious of Meta's influence. Limit the amount of data you share with Meta's products and services. If you are afraid you've already shared too much, you should get rid of some of the information Meta has on you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -209,4 +138,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-digital-delights-top-15-comical-creations-on-youtube-bars/"><u>[New] 2024 Approved Digital Delights Top 15 Comical Creations on YouTube Bars</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-most-innovative-8-private-video-downloaders/"><u>[New] 2024 Approved Most Innovative 8 Private Video Downloaders</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-epicurean-escapades-crafting-kitchen-films-for-2024/"><u>[Updated] Epicurean Escapades Crafting Kitchen Films for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-superior-tools-for-watching-fb-videos/"><u>2024 Approved Superior Tools for Watching FB Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/cross-platform-content-sync-android-to-iphone/"><u>Cross-Platform Content Sync Android to iPhone</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/effective-solutions-for-the-netiosys-blue-screen-of-death-in-windows-systems/"><u>Effective Solutions for the NETIO.SYS Blue Screen of Death in Windows Systems</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/elevate-your-setup-with-these-top-8-5k-models-for-2024/"><u>Elevate Your Setup with These Top 8 5K Models for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-everyday-moments-crafting-photo-collections-for-fb-sharing/"><u>Elevating Everyday Moments: Crafting Photo Collections for FB Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/fact-vs-fiction-top-10-true-stories-on-facebook-myths/"><u>Fact vs Fiction: Top 10 True Stories on Facebook Myths</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-oneplus-11r-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from OnePlus 11R to New Android? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-leading-tools-for-extracting-fb-videos-top-5/"><u>In 2024, Leading Tools for Extracting FB Videos - TOP 5</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-social-media-sending-instagram-reels-to-facebook-followers/"><u>Integrating Social Media: Sending Instagram Reels to Facebook Followers</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-netizen-language-30-must-learn-abbreviations/"><u>Navigating Netizen Language: 30 Must-Learn Abbreviations</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-anonymous-advocates-playbook/"><u>The Anonymous Advocate's Playbook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-ios-145-on-facebooks-privacy-practices/"><u>The Impact of iOS 14.5 on Facebook's Privacy Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-potential-new-title/"><u>Understanding Facebook's Potential New Title</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-impact-on-protection-the-deletion-of-user-faceprints-on-fb/"><u>Unraveling the Impact on Protection: The Deletion of User Faceprints on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebook-layout-and-navigation-updates/"><u>Unveiling Facebook Layout & Navigation Updates</u></a></li>
+</ul></div>
 

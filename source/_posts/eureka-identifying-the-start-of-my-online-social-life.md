@@ -1,7 +1,7 @@
 ---
 title: Eureka! Identifying the Start of My Online Social Life
-date: 2024-10-30T17:05:56.584Z
-updated: 2024-11-01T16:04:51.547Z
+date: 2024-11-02T18:37:50.649Z
+updated: 2024-11-07T07:09:24.191Z
 tags:
   - facebook
 categories:
@@ -65,10 +65,10 @@ Close
  Doing this on the Facebook website or app is the best way to find out your account creation date. But what if you don't have access to your account?
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Using Facebook's Welcome Email to Find Your Join Date
@@ -82,15 +82,22 @@ Close
 ![Use the welcome email to find your join date on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-welcome-email.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  When you find the Facebook email that either asks you to confirm your email address or offers instructions on getting started with Facebook, that email’s date should be your Facebook account creation date.
 
  This is the best method if you no longer have access to your Facebook account or you recently created your account—meaning the welcome email is easily accessible. But if you regularly delete your emails, you won't be able to check your Facebook account creation date via this method.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Find How Old Your Facebook Account Is Using a Profile Picture
 
@@ -107,13 +114,6 @@ Close
 ![facebook photo albums page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-photo-albums-page-1.jpg)
 5. Click**Profile pictures** on the album screen to open your profile photos album.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 6. Find the oldest profile picture in this album. Unless you’ve uploaded loads of profile pictures, you shouldn’t have any issues getting to the oldest picture.
 7. When your oldest profile picture opens in full-screen, check the date of the upload on the right of the photo.  
 ![first profile picture on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/first-profile-picture-on-facebook.jpg)
@@ -128,13 +128,6 @@ Close
 
 ![facebook activity log menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-activity-log-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Then select**Your posts, check-ins, photos and videos** .
 
 ![posts history on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/posts-history-on-facebook.jpg)
@@ -142,6 +135,19 @@ Close
  Now scroll down to the oldest post on the list. To make the list shorter, use the**Date** filter to select the oldest possible date for posts.
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
@@ -168,20 +174,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-insta-reversal-unlock-the-power-of-video-rotation/"><u>[New] 2024 Approved Insta-Reversal Unlock the Power of Video Rotation</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-high-tech-equipment-picking-game/"><u>[Updated] High-Tech Equipment Picking Game</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovative-video-edits-made-simple-with-windows-10s-story-remix/"><u>2024 Approved Innovative Video Edits Made Simple with Windows 10'S Story Remix</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-interaction-use-polls-to-peek-into-friends-lives/"><u>Enhance Interaction: Use Polls to Peek Into Friends' Lives</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-disabled-apple-iphone-12-proipad-without-computer-by-drfone-ios/"><u>How to Unlock Disabled Apple iPhone 12 Pro/iPad Without Computer</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-from-your-apple-iphone-11-pro-max-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock from your Apple iPhone 11 Pro Max and iPad</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-top-attention-grabber-composer/"><u>In 2024, Top Attention Grabber Composer</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Apple iPhone 6? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-metas-enhanced-privacy-policy-changes/"><u>Inside Meta's Enhanced Privacy Policy Changes</u></a></li>
-<li><a href="https://facebook.techidaily.com/instructions-editing-account-details-on-facebook/"><u>Instructions: Editing Account Details on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-your-community-clean-mastery-of-new-facebook-group-policies/"><u>Keeping Your Community Clean: Mastery of New Facebook Group Policies</u></a></li>
-<li><a href="https://facebook.techidaily.com/key-recovery-techniques-for-locked-out-facebook-users/"><u>Key Recovery Techniques for Locked-Out Facebook Users</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-your-home-internet-with-asus-zenwifi-xt8-ax6600-expert-review-and-insights/"><u>Mastering Your Home Internet with ASUS ZenWiFi XT8 AX6600 - Expert Review & Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/revealing-hidden-blacklist-entities-on-facebook-platform/"><u>Revealing Hidden Blacklist Entities on Facebook Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/switching-your-facebook-page-for-a-modern-identity/"><u>Switching Your Facebook Page for a Modern Identity</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-e-identity-revamp-personal-cartoon-character-blueprint/"><u>[New] In 2024, E-Identity Revamp Personal Cartoon Character Blueprint</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-iphone-savvy-crafting-elegant-time-stretched-videos-for-2024/"><u>[New] IPhone Savvy Crafting Elegant Time-Stretched Videos for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-battle-royale-queens-top-10-female-youtubers/"><u>2024 Approved Battle Royale Queens Top 10 Female YouTubers</u></a></li>
+<li><a href="https://facebook.techidaily.com/convenient-techniques-for-eliminating-facebook-updates/"><u>Convenient Techniques for Eliminating Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-home-to-on-the-move-portal-go-innovation/"><u>From Home to On-the-Move: Portal Go Innovation</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-your-facebook-watch-history-and-why-you-should/"><u>How to Delete Your Facebook Watch History (and Why You Should)</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-samsung-galaxy-xcover-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-recover-apple-iphone-15-plus-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Apple iPhone 15 Plus Data From iTunes? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-garmin-gpsmap-64st-ultimate-navigation-companion/"><u>In Depth Look at the Garmin GPSMAP 64St – Ultimate Navigation Companion</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/infinite-screensaver-solutions-top-12-apps-no-cutoff/"><u>Infinite Screensaver Solutions - Top 12 Apps (No Cutoff)</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-social-tools-for-superior-collaborative-endeavors-on-facebook/"><u>Integrating Social Tools for Superior Collaborative Endeavors on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-online-networks-for-workplace-success/"><u>Mastering Online Networks for Workplace Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinstating-trumps-social-media-footprint/"><u>Reinstating Trump's Social Media Footprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-of-platforms-can-facebooks-reels-outmaneuver-tiktok/"><u>The Battle of Platforms: Can Facebook’s Reels Outmaneuver TikTok?</u></a></li>
 </ul></div>
 

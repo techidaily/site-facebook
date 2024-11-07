@@ -1,7 +1,7 @@
 ---
 title: "Shifting Social Identity: New Name, Same Network on FB"
-date: 2024-10-25T17:21:15.964Z
-updated: 2024-11-01T16:51:16.193Z
+date: 2024-10-30T20:46:10.953Z
+updated: 2024-11-06T19:36:25.968Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/1323edf73cef5ddeb6760a28b46d407c0ed89a315
 
 The process differs slightly on the website versus the app.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### On the Web
 
 To change your name on the Facebook website, do the following:
@@ -42,21 +49,14 @@ To change your name on the Facebook website, do the following:
 **![Changing your Facebook name on web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/change-facebook-name-on-web.png)**
 6. Facebook will prompt you to choose how you want your name to appear.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 7. Make your selection, enter your password, and click**Save Changes** .  
 ![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### On the Facebook App
@@ -64,6 +64,13 @@ To change your name on the Facebook website, do the following:
 ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
 
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![facebook name change page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-name-change-page-ios.jpg)
 
@@ -96,13 +103,6 @@ Close
 
 ![creating additional names facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/01-creating-additional-names-facebook-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![enter additional name facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/02-creating-additional-names-facebook-mobile.jpg)
 
 Close
@@ -132,10 +132,16 @@ Close
  However, Facebook also accepts other non-government IDs like a bank statement, health insurance, credit card, and so on as long as it shows your official names.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## More Things To Try on Facebook
@@ -159,24 +165,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-maintain-your-memories-android-plus-mac-video-preservation-for-2024/"><u>[New] Maintain Your Memories Android + Mac Video Preservation for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-lyric-video-creation-secrets-unveiled-by-lyric-video-maker/"><u>[Updated] 2024 Approved Lyric Video Creation Secrets Unveiled by Lyric Video Maker</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-navigating-snapchat-spotlight-feature/"><u>[Updated] 2024 Approved Navigating Snapchat Spotlight Feature</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-pushing-packaging-to-new-heights-a-consumers-dream/"><u>[Updated] In 2024, Pushing Packaging to New Heights A Consumer's Dream</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-enhancing-presentations-the-captivate-way/"><u>2024 Approved Enhancing Presentations The Captivate Way</u></a></li>
-<li><a href="https://win-docs.techidaily.com/beginners-guide-to-forex-trading-automation-how-to-use-a-local-trade-copier-on-metatrader-4/"><u>Beginner's Guide to Forex Trading Automation: How to Use a Local Trade Copier on MetaTrader 4</u></a></li>
-<li><a href="https://video-capture.techidaily.com/capture-unbroken-webspace-for-2024/"><u>Capture Unbroken Webspace for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-llifes-revival-dreams-against-the-backdrop-of-metaverse-expansion/"><u>Examining LLife's Revival Dreams Against The Backdrop Of Metaverse Expansion</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-stance-on-users-juggling-more-than-one-profile/"><u>Facebook’s Stance on Users Juggling More Than One Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/hacker-breach-users-pay-300-for-oculus-rift-solutions/"><u>Hacker Breach: Users Pay $300 for Oculus Rift Solutions</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-use-face-id-make-purchases-on-iphone-13-by-drfone-ios-unlock-ios-unlock/"><u>How to Use Face ID make purchases on iPhone 13 ?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/ig-reel-secrets-pausing-time-for-creative-impact-for-2024/"><u>IG Reel Secrets Pausing Time for Creative Impact for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-online-spaces-deciphering-and-evading-shadowbans/"><u>Navigating Online Spaces: Deciphering and Evading Shadowbans</u></a></li>
-<li><a href="https://facebook.techidaily.com/prime-destinations-where-freelancers-converge/"><u>Prime Destinations Where Freelancers Converge</u></a></li>
-<li><a href="https://facebook.techidaily.com/reimagined-conversation-on-facebook-with-sonic-additions/"><u>Reimagined Conversation on Facebook with Sonic Additions</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-repair-for-error-code-0xc19001e1-on-windows-10-pcs/"><u>Step-by-Step Repair for 'Error Code 0xC19001E1' On Windows 10 PCs</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-mystery-behind-the-animosity-against-online-gathering-spaces/"><u>The Mystery Behind the Animosity Against Online Gathering Spaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-your-digital-treasures-facebook-media-transfer/"><u>Unlocking Your Digital Treasures: Facebook Media Transfer</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-core-structure-of-facebooks-system/"><u>Unraveling the Core Structure of Facebook’s System</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagrams-hidden-gems-advanced-techniques-for-bokeh-for-2024/"><u>[New] Instagram's Hidden Gems Advanced Techniques for Bokeh for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-a-comprehensive-guide-to-use-youtube-movie-maker/"><u>[Updated] 2024 Approved A Comprehensive Guide to Use YouTube Movie Maker</u></a></li>
+<li><a href="https://facebook.techidaily.com/december-brings-the-end-of-instas-thoughtful-threads/"><u>December Brings the End of Insta's Thoughtful Threads</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-xiaomi-redmi-note-13-5g-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Xiaomi Redmi Note 13 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-privacy-tips-shun-these-threatening-apps/"><u>Essential Privacy Tips: Shun These Threatening Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/fact-or-fantasy-dissecting-10-common-facebook-myths/"><u>Fact or Fantasy? Dissecting 10 Common Facebook Myths</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-oneplus-11-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can OnePlus 11 5GMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-oppo-find-x7-ultra-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Oppo Find X7 Ultra Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-fb-page-pristine-banning-inappropriate-users/"><u>Keeping Your FB Page Pristine: Banning Inappropriate Users</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721266141016-master-the-art-of-iphone-reset-with-easy-steps-discover-how-stellar-can-help/"><u>Master the Art of iPhone Reset with Easy Steps: Discover How Stellar Can Help</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-footprints-purge-facebook-history-efficiently/"><u>No More Footprints: Purge Facebook History Efficiently</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcome-iphone-text-message-difficulties-with-these-proven-fixes/"><u>Overcome iPhone Text Message Difficulties with These Proven Fixes</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723006394378-phasmophobia-crash-troubles-heres-your-ultimate-guide-to-2ebarriers-2024-resolutions/"><u>Phasmophobia Crash Troubles? Here's Your Ultimate Guide to 2Ebarriers 2024 Resolutions!</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-method-to-update-fb-birth-details/"><u>Seamless Method to Update FB Birth Details</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-infinix-hot-30i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategizing-discreet-social-media-exposure/"><u>Strategizing Discreet Social Media Exposure</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-networks-new-chapter-in-love-and-friendship-features/"><u>The Social Network's New Chapter in Love and Friendship Features</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-mac-video-maker-effortless-slideshow-creation-in-macos/"><u>Updated 2024 Approved Mac Video Maker Effortless Slideshow Creation in macOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/zucks-farming-ventures-crypto-inspired-goat-name-revealed/"><u>Zuck's Farming Ventures: Crypto-Inspired Goat Name Revealed.</u></a></li>
 </ul></div>
 

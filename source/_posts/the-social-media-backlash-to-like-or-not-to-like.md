@@ -1,7 +1,7 @@
 ---
 title: "The Social Media Backlash: To Like or Not to Like?"
-date: 2024-09-05T09:31:23.092Z
-updated: 2024-09-06T09:31:23.092Z
+date: 2024-10-30T19:08:05.470Z
+updated: 2024-11-06T17:53:27.270Z
 tags:
   - facebook
 categories:
@@ -13,28 +13,10 @@ keywords: Social Media Impact,Online Reputation Risk,Liking Behaviors Analysis,D
 thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74d68e3b5f340250f5652e1ee.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Social Media Backlash: To Like or Not to Like?
 
  Is there a place for dislike buttons in social media as we know it today? Do dislikes even serve a purpose? When examining the most prominent social media platforms widely used today, you get mixed results.Facebook and Instagram do not have a dislike button. Reddit has a downvote button, and YouTube a dislike one. Twitter doesn't have a dislike button, but that could change soon as it ran a test allowing some users to downvote.Let's examine some pros and cons to platforms and their dislike button.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Pros to the Dislike Button Hiding Its Numbers
 
  YouTube recently made waves when it decided to hide the dislike count. The dislike button is still there and visible. You can click it and dislike a video. However, the number of dislikes is hidden. You only see the[number of likes](https://www.makeuseof.com/are-likes-essential-for-social-media/) .
@@ -55,15 +37,22 @@ thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74
 
  Also, the creators of the videos garnering the dislikes can still see their number in their analytics. It's the viewers who have no concept of the number.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Less Stress When Posting
 
 ![stressed woman with laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/stressed-woman-with-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  When you post on YouTube, regardless of the subject matter of your posts, you open yourself to criticism from others. Sometimes, that can cause so much stress and anxiety that you put off posting indefinitely.
 
@@ -87,22 +76,23 @@ What's more, it goes beyond affecting only the poster.
 
  By hiding the dislikes number, YouTube essentially spares both the creator and their fan base of the stress, anxiety, and all the other negative emotions that can arise from being the victim of a hate campaign.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Cons to the Dislike Button Hiding Its Numbers
 
  Let's talk about the negatives that follow the action of hiding the dislikes number on posts.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### You Can't Discern Helpfulness
 
 ![how to video on youtube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/how-to-video.png)
@@ -116,14 +106,34 @@ What's more, it goes beyond affecting only the poster.
  By hiding dislikes, YouTube essentially took that practical trick away, and now you can't tell if a video is good or bad off the bat.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### You Can't Tell if It's Worth Seeing
 
 ![youtube open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/youtube-open-on-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  When the dislikes aren't visible, you can't gauge whether a video is worth your time.
 
@@ -132,23 +142,18 @@ What's more, it goes beyond affecting only the poster.
  Many YouTube viewers use the like-to-dislike ratio to decide whether to watch a video or move on to another. When you can't use that ratio to make your judgment, you might get duped into watching something that wastes your time.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Is It the Right Move to Have or Hide Dislikes?
 
  Another important matter to consider is whether having a dislike button is even right for the platform.
 
  Does it make sense to have a dislike button, remove it, or hide the count? Let's look at two examples: Twitter and Reddit.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Does It Make Sense for the Platform at All?
 
  Twitter is dipping its toes into the dislike pool by introducing a[downvote system](https://www.makeuseof.com/twitters-experimental-downvoting-system/) .
@@ -179,14 +184,11 @@ What's more, it goes beyond affecting only the poster.
 
  There's no clear answer yet on whether dislikes should remain a part of social media or not. As clearly visible, there are both pros and cons to removing the number of dislikes under a post.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -195,4 +197,17 @@ What's more, it goes beyond affecting only the poster.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/updated-m1-pro-to-m1-max-understanding-the-differences-in-apple-computing/"><u>[Updated] M1 Pro to M1 Max Understanding the Differences in Apple Computing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-keep-it-legal-how-to-convert-youtube-to-mp4-safely/"><u>2024 Approved Keep It Legal How to Convert YouTube to MP4 Safely</u></a></li>
+<li><a href="https://facebook.techidaily.com/alter-your-social-media-identity-a-compreenas-guide-to-facebook-renaming/"><u>Alter Your Social Media Identity: A Compreenas Guide to Facebook Renaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-digital-safety-with-2fa-for-email-platforms-like-gmail-and-outlook/"><u>Boosting Digital Safety with 2FA for Email Platforms Like Gmail and Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-your-facebooks-past-conversations/"><u>Delving Into Your Facebook's Past Conversations</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/innovate-your-online-research-choose-perplexity-ai/"><u>Innovate Your Online Research – Choose Perplexity AI</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-pages-admins-onboard-guide/"><u>Mastering Facebook Pages: Admins Onboard Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-initiative-groundbreaking-ukraine-language-learning-without-cost/"><u>Mondly's Initiative: Groundbreaking Ukraine Language Learning Without Cost</u></a></li>
+<li><a href="https://games-able.techidaily.com/platinum-membership-fees-at-sony-online-entertainment/"><u>Platinum Membership Fees at Sony Online Entertainment</u></a></li>
+<li><a href="https://windows11.techidaily.com/strategies-for-resurrecting-non-responsive-windows-batch-jobs/"><u>Strategies for Resurrecting Non-Responsive Windows Batch Jobs</u></a></li>
+</ul></div>
 

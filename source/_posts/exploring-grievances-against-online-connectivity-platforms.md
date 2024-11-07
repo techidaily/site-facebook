@@ -1,7 +1,7 @@
 ---
 title: Exploring Grievances Against Online Connectivity Platforms
-date: 2024-10-25T16:28:36.157Z
-updated: 2024-11-01T17:36:22.210Z
+date: 2024-11-05T02:12:16.930Z
+updated: 2024-11-07T00:47:28.634Z
 tags:
   - facebook
 categories:
@@ -38,19 +38,6 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 
 ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
 
  Another big reason people hate Facebook is because of privacy concerns. The Cambridge Analytica scandal exposed how much user data Facebook really had and how it was being used. This revelation made many people question whether they could trust Facebook with their personal information.
@@ -59,18 +46,18 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 
  This lack of privacy is a big turnoff for many people and is one of the main reasons they hate Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Data Breaches
 
  In addition to privacy concerns, Facebook has also had to deal with a number of data breaches. These breaches have exposed the personal information of millions of users and have left people feeling like they can't trust Facebook with their data.
 
  The most recent breach happened in 2021 and exposed the personal information of over 500 million users. This breach was especially concerning because it happened despite Facebook's claims that it had fixed the problems that caused the Cambridge Analytica scandal.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Its Addictive Potential
 
@@ -88,6 +75,13 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 
  While Facebook has taken some steps to combat fake news, many people still feel like the problem is out of control.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Its Impact on Mental Health
 
  One of the biggest problems with Facebook is its impact on mental health. The platform can be a breeding ground for negativity and comparison. When you're constantly seeing everyone's highlight reel, it's easy to forget that everyone has struggles and difficulties.
@@ -95,28 +89,34 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
  This can lead to feelings of inadequacy, loneliness, and depression.[Several studies have linked social media platforms to increased in anxiety](http://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) and depression, especially in young people. While Facebook is not the only social media platform with this problem, it gets the most criticism because of its size and reach.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Perceived Inaction on Hate Speech
 
 ![man holding hate is a virus sign](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/man-holding-hate-is-a-virus-sign.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Another reason people hate Facebook is because of the company's perceived inaction on hate speech. The platform has been used to spread hateful and divisive content, with grave consequences.
 
  Its role in the Myanmar genocide is a prime example of this. Several groups have accused the social media giant of not doing enough to stop the spread of hate speech and bigotry, which ultimately led to widespread violence in the region.
 
  Facebook was also accused of "continuing to allow activists to incite ethnic massacres in Ethiopia’s escalating war", according to a report by[The Guardian](https://www.theguardian.com/technology/2022/feb/20/facebook-lets-vigilantes-in-ethiopia-incite-ethnic-killing) .
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Making Sense of It All
 
@@ -139,24 +139,14 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-first-steps-in-av1-coders/"><u>[New] 2024 Approved First Steps in AV1 Coders</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-ultimate-manual-pinning-people-on-snapchat/"><u>2024 Approved The Ultimate Manual Pinning People on Snapchat</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unveiling-the-pathway-to-monetizing-your-instagram-content/"><u>2024 Approved Unveiling the Pathway to Monetizing Your Instagram Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-methodology-in-controlling-content-access/"><u>Facebook's Methodology in Controlling Content Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/faster-and-more-efficient-android-lite-app-picks/"><u>Faster & More Efficient: Android Lite App Picks</u></a></li>
-<li><a href="https://facebook.techidaily.com/guard-your-data-tips-against-phishing-on-social-sites/"><u>Guard Your Data: Tips Against Phishing on Social Sites</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-manage-widget-notifications-on-windows-11/"><u>How to Manage Widget Notifications on Windows 11</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-dynamic-animated-and-personalized-filmora-subscribe-button-for-youtube/"><u>In 2024, Dynamic, Animated, and Personalized Filmora Subscribe Button for YouTube</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-motorola-moto-g24-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Motorola Moto G24 Pattern Lock Screen</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Xiaomi 14? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Come up With the Best Pokemon Team On Apple iPhone XR? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/protect-your-digital-life-secrets-to-stronger-fb-security/"><u>Protect Your Digital Life: Secrets to Stronger FB Security</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-to-vanish-your-searched-items-from-facebook/"><u>Steps to Vanish Your Searched Items From Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-facebook-gateway-evaluating-its-effectiveness-in-user-login-across-platforms/"><u>The Facebook Gateway: Evaluating Its Effectiveness in User Login Across Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-need-for-increased-vigilance-against-deceptive-online-content-by-facebook-and-google/"><u>The Need for Increased Vigilance Against Deceptive Online Content by Facebook & Google</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-vivo-y36-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Vivo Y36</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-x8b-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor X8b | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebooks-ethical-review-organization/"><u>Unveiling Facebook’s Ethical Review Organization</u></a></li>
-<li><a href="https://facebook.techidaily.com/utilizing-facebook-profiles-in-whatsapp-conversations/"><u>Utilizing Facebook Profiles in WhatsApp Conversations</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-missing-fb-watch-icon-get-it-fixed-now-for-2024/"><u>[New] Missing FB Watch Icon? Get It Fixed Now for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-10-cheap-cameras-for-dynamic-shots/"><u>[New] Top 10 Cheap Cameras For Dynamic Shots</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-free-youtube-subtitled-content-download-without-paying/"><u>[Updated] In 2024, Free YouTube Subtitled Content Download Without Paying</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/2024-approved-the-best-translator-to-translate-videos-online/"><u>2024 Approved The Best Translator to Translate Videos Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-self-portrait-journey-how-to-setup-your-facebook-cover-with-an-avatar-backdrop/"><u>A Self-Portrait Journey: How to Setup Your Facebook Cover with an Avatar Backdrop</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-metaverse-facebooks-revolution-in-digital-spaces/"><u>Decoding the Metaverse: Facebook's Revolution in Digital Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-effectively-use-sleep-mode-for-an-optimal-messenger-kids-experience/"><u>How to Effectively Use Sleep Mode for an Optimal Messenger Kids Experience</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-vivo-y77t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Vivo Y77t | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-page-blocking-unwanted-profiles/"><u>Mastering Facebook Page: Blocking Unwanted Profiles</u></a></li>
 </ul></div>
 

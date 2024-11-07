@@ -1,7 +1,7 @@
 ---
 title: Fresh Laws on the Horizon for America's Big Tech Firms
-date: 2024-10-26T17:06:33.665Z
-updated: 2024-11-01T17:00:34.963Z
+date: 2024-11-02T20:02:02.720Z
+updated: 2024-11-07T06:36:19.789Z
 tags:
   - facebook
 categories:
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
@@ -61,13 +61,6 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -79,6 +72,13 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  How would Amazon itself have ever been invented if not for a free and open market?
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. The Ending Platform Monopolies Act
 
@@ -101,10 +101,10 @@ In essence: leave the selling to the sellers.
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
@@ -112,10 +112,16 @@ In essence: leave the selling to the sellers.
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
@@ -151,24 +157,18 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-audio-outliers-best-sound-distortion-apps-for-your-device/"><u>[New] 2024 Approved Audio Outliers Best Sound Distortion Apps for Your Device</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-unlock-new-horizons-best-6-instagram-reel-apps/"><u>[New] Unlock New Horizons Best 6 Instagram Reel Apps</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-webcam-creation-video-making-for-mac-users-for-2024/"><u>[New] Webcam Creation Video Making for Mac Users for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-examine-recorded-conversation/"><u>[Updated] Examine Recorded Conversation</u></a></li>
-<li><a href="https://win11.techidaily.com/1-mastering-formula-protection-a-step-by-step-guide-to-secure-your-data-in-ms-excel/"><u>1. Mastering Formula Protection: A Step-by-Step Guide to Secure Your Data in MS Excel</u></a></li>
-<li><a href="https://win-guides.techidaily.com/common-issues-when-switching-to-interactive-pageturner-ebooks-fixes-for-non-functional-hyperlinks-pageturntellercom/"><u>Common Issues When Switching to Interactive PageTurner Ebooks - Fixes for Non-Functional Hyperlinks [PageTurnteller.com]</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-your-online-presence-building-events-on-facebook/"><u>Elevating Your Online Presence: Building Events on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-niche-expertise-to-viral-star/"><u>From Niche Expertise to Viral Star</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-ios-145-is-reshaping-social-medias-data-landscape/"><u>How iOS 14.5 Is Reshaping Social Media's Data Landscape</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-channel-growth-hacks-the-ultimate-list-of-5-youtube-strategies/"><u>In 2024, Channel Growth Hacks – The Ultimate List of 5 YouTube Strategies</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Tecno Pop 8 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-and-facebook-freedom-shutting-down-algorithms/"><u>Instagram & Facebook Freedom: Shutting Down Algorithms</u></a></li>
-<li><a href="https://facebook.techidaily.com/misguided-pandemic-truths-by-12-noteworthy-personalities/"><u>Misguided Pandemic Truths by 12 Noteworthy Personalities</u></a></li>
-<li><a href="https://facebook.techidaily.com/post-perfection-with-these-30-key-social-media-abbreviations/"><u>Post Perfection with These 30 Key Social Media Abbreviations</u></a></li>
-<li><a href="https://facebook.techidaily.com/preserving-page-harmony-the-art-of-excluding-profiles/"><u>Preserving Page Harmony: The Art of Excluding Profiles</u></a></li>
-<li><a href="https://techidaily.com/samsung-galaxy-m34-5g-tutorial-bypass-lock-screen-security-password-pin-fingerprint-pattern-by-drfone-android-unlock-android-unlock/"><u>Samsung Galaxy M34 5G Tutorial - Bypass Lock Screen,Security Password Pin,Fingerprint,Pattern</u></a></li>
-<li><a href="https://facebook.techidaily.com/shifting-landscape-us-antitrust-laws-targeting-silicon-valley-giants/"><u>Shifting Landscape: U.S. Antitrust Laws Targeting Silicon Valley Giants</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-russian-connection-exploring-vk-as-a-virtual-community/"><u>The Russian Connection: Exploring VK as a Virtual Community</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/form-your-youtube-presence-effortlessly-for-2024/"><u>Transform Your YouTube Presence Effortlessly for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-edit-and-elevate-instagrams-ultimate-toolkit/"><u>[New] 2024 Approved Edit & Elevate Instagram's Ultimate Toolkit</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-properly-posted-tweets-with-professional-videos/"><u>[New] 2024 Approved Properly Posted Tweets with Professional Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-screen-savers-guide-to-recording-tech/"><u>[New] The Screen Saver's Guide to Recording Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-curiosity-and-compliance-downloading-fb-videos-wisely/"><u>Balancing Curiosity and Compliance: Downloading FB Videos Wisely</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-feed-how-to-make-it-yours/"><u>Decoding Facebook's Feed: How to Make It Yours</u></a></li>
+<li><a href="https://article-files.techidaily.com/designing-your-own-instagram-notification-sounds-for-2024/"><u>Designing Your Own Instagram Notification Sounds for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/every-move-monetized-a-corporate-reality/"><u>Every Move Monetized: A Corporate Reality</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/experience-next-level-conversion-with-our-cookiebot-edge/"><u>Experience Next-Level Conversion with Our Cookiebot Edge</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-connectivity-for-companionship-on-facebook/"><u>Leveraging Connectivity for Companionship on Facebook</u></a></li>
+<li><a href="https://howto.techidaily.com/reasons-for-realme-gt-3-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Realme GT 3 Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-strategies-with-8-powerful-crowdflower-capabilities/"><u>Streamline Strategies with 8 Powerful CrowdFlower Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147418245-taking-a-leap-in-privacy-protection-facebook-unveils-stronger-security-for-instagram-dms-and-messenger-calls/"><u>Taking a Leap in Privacy Protection: Facebook Unveils Stronger Security for Instagram DMs and Messenger Calls</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/weekly-iphone-update-briefing-and-products-being-recalled-a-complete-rundown/"><u>Weekly Iphone Update Briefing & Products Being Recalled: A Complete Rundown</u></a></li>
 </ul></div>
 

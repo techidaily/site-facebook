@@ -1,7 +1,7 @@
 ---
 title: The Art of Selective Shout-Outs on FB in Three Simple Ways
-date: 2024-09-05T09:31:24.430Z
-updated: 2024-09-06T09:31:24.430Z
+date: 2024-11-01T01:44:40.500Z
+updated: 2024-11-06T21:57:40.963Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,6 @@ keywords: Selective Shouts on Facebook,Social Media Highlights,Effective FB Prom
 thumbnail: https://thmb.techidaily.com/b291d1186c17a0e27af028a28ffb312d4304bf88d64275a707a4eb2f0cc766f8.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Art of Selective Shout-Outs on FB in Three Simple Ways
 
 Wondering how to tag someone on Facebook?
@@ -27,12 +21,6 @@ Wondering how to tag someone on Facebook?
 
  Let's take a look at some of the ways you can tag others on Facebook. Keep in mind that your friends' privacy settings may affect the effectiveness of some methods, so not all will work the same for all friends.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Tagging in Status Updates and Comments
 
  When you post a status update, you can tag your friends by typing an**@** symbol followed by their names. As you type, a small window appears and updates automatically to show the best match for the text you've entered.
@@ -41,22 +29,10 @@ Wondering how to tag someone on Facebook?
 
 ![Facebook Status Update Tagging](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-status-update-tagging.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  In addition to your own friends, you can also tag other people and pages on Facebook. This includes friends of friends, business pages, and similar. The same method works for tagging others in comments across Facebook, too.
 
  Just be aware that if your post privacy is set to**Friends** , tagging someone makes your post visible to their friends as well. You'll see the post privacy button change to**Friends (+)** to reflect this---see[our guide to Facebook symbols](https://www.makeuseof.com/tag/guide-facebook-symbols/) if this is new to you.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Tag Who You Were With
 
  Facebook allows you to add several elements to your posts, including feelings, location check-ins, and similar. One of these lets you mention that you were with certain friends.
@@ -68,12 +44,20 @@ Wondering how to tag someone on Facebook?
 ![Facebook With Friends Tag](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-with-friends-tag.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  The above method of tagging people makes the most sense when mentioning someone in what your status says or making sure they see it. This option is more useful for letting people know your friends were actually with you.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Facebook Photo Tagging
 
@@ -85,6 +69,13 @@ Wondering how to tag someone on Facebook?
 
 ![Tag Facebook Photo Example](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/tag-facebook-photo-example.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Depending on the privacy settings of the person you tagged and the owner of the photo, they may have to approve the tag manually. And you might not see the tag option at all on other people's photos if they have disabled the option to let other people tag their images.
 
  If you want to add tags to your own photo when you upload it, click the**Edit** button at the top-left of the image when you have the post open. Click**Tag photo** from the left side, then follow the same steps to click on faces and enter names.
@@ -92,25 +83,23 @@ Wondering how to tag someone on Facebook?
 ![Facebook Tag New Photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-tag-new-photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Facebook Tagging Made Easy
 
  The above three methods are the main ways to use the tagging feature on Facebook. Use the**@name** method anywhere you want to highlight a friend or bring their attention to a post. Don't forget that you can always share a link to public Facebook posts if you want them to see something, too.
 
  Meanwhile, you might want to make sure your own Facebook privacy settings are set up so you don't get unnecessary tags.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +108,26 @@ Wondering how to tag someone on Facebook?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-redefining-user-engagement-with-top-10-video-editors/"><u>[New] Redefining User Engagement with Top 10 Video Editors</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-beyond-vlc-uncovering-hidden-streaming-gems/"><u>[Updated] 2024 Approved Beyond VLC Uncovering Hidden Streaming Gems</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-feathered-salsa-dancer/"><u>[Updated] Feathered Salsa Dancer</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-shape-viral-memes-using-adobe/"><u>[Updated] In 2024, Shape Viral Memes Using Adobe</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-from-archive-to-annotation-turning-zip-into-srt/"><u>2024 Approved From Archive to Annotation Turning ZIP Into SRT</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-music-syncing-for-iphones-and-androids-in-fb/"><u>2024 Approved Music Syncing for iPhones & Androids in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-protection-in-mail-applications-implementing-robust-2fa-systems/"><u>Boosting Protection in Mail Applications - Implementing Robust 2FA Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/containing-cyber-cheats-metas-commitment-to-confidentiality/"><u>Containing Cyber Cheats: Meta's Commitment to Confidentiality</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-fixes-for-your-surface-pro-4-stylus-not-working-dilemma/"><u>Effective Fixes for Your Surface Pro 4 Stylus Not Working Dilemma</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-guide-swiftly-clearing-facebook-data-trails/"><u>Expert Guide: Swiftly Clearing Facebook Data Trails</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/hack-the-art-world-essential-free-3d-psd-files-for-2024/"><u>Hack the Art World Essential Free 3D PSD Files for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/leveraging-vocal-charisma-to-enrich-ppt-storytelling-for-2024/"><u>Leveraging Vocal Charisma to Enrich PPT Storytelling for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-copyright-after-sharing-a-selfie/"><u>Navigating Copyright After Sharing a Selfie</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-profile-becoming-a-safe-indicator-on-fb/"><u>Securing Profile: Becoming a Safe Indicator on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-social-sphere-oversight-with-facebooks-modern-moderators/"><u>Strategic Social Sphere Oversight with Facebook's Modern Moderators</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/trouble-with-iphone-8-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>Trouble with iPhone 8 Swipe-Up? Try These 11 Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-sheryls-role-at-the-worlds-largest-social-network/"><u>Unveiling Sheryl's Role at the World's Largest Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-friends-may-be-leaving-social-media-today/"><u>Why Friends May Be Leaving Social Media Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152117996-will-the-verdict-fall-soon-facebooks-governance-on-trump-ban/"><u>Will the Verdict Fall Soon? Facebook's Governance on Trump Ban.</u></a></li>
+</ul></div>
 

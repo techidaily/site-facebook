@@ -1,7 +1,7 @@
 ---
 title: Tips to Ensure Facebook Only Seen by Friends
-date: 2024-10-23T21:15:17.234Z
-updated: 2024-10-26T16:27:23.898Z
+date: 2024-11-04T18:48:51.148Z
+updated: 2024-11-07T11:55:18.885Z
 tags:
   - facebook
 categories:
@@ -39,6 +39,13 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Lock Your Facebook Profile Down
 
  Facebook's lock feature is a safety feature that allows users, specifically women, in specific regions to lock their profiles from outsiders. The goal is to limit access to your account and give you more control over your experience. Accounts with the lock feature enabled have a**lock icon** in the profile. Here's what it prevents non-friends from doing:
@@ -63,10 +70,16 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Change Your Facebook Profile Discovery Settings
@@ -84,10 +97,23 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Change Your Facebook Post Settings
@@ -102,20 +128,6 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 4. Choose the**Friends** option in the**drop-down menu** . You can also choose**Specific friends** or exclude some people by selecting the**Friends except** option. Click**Close** when you're done.
 
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Keep a Low Profile on Facebook
 
@@ -138,22 +150,20 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-personalize-the-save-spot-of-mac-images/"><u>[Updated] 2024 Approved Personalize the Save Spot of Mac Images</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-your-gaming-channel-on-youtube/"><u>[Updated] In 2024, Crafting Your Gaming Channel on YouTube</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-video-format-mastery-best-practices-for-instagram-for-2024/"><u>[Updated] Video Format Mastery Best Practices for Instagram for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-online-identity-with-facebook-page-update/"><u>Enhancing Online Identity with Facebook Page Update</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-5-key-ways-to-leverage-facebook-in-your-career/"><u>Exploring 5 Key Ways to Leverage Facebook in Your Career</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-is-now-powered-entirely-by-renewable-energy/"><u>Facebook Is Now Powered Entirely by Renewable Energy</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-find-your-hidden-messages-on-facebook-messenger/"><u>How to Find Your Hidden Messages on Facebook Messenger</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-realme-c53-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from Realme C53</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Realme Narzo 60x 5G | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-on-iphone-11-pro-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code On iPhone 11 Pro in the Best Ways</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-fitbit-charge-4-a-perfect-blend-of-design-and-performance/"><u>In-Depth Analysis of Fitbit Charge 4: A Perfect Blend of Design & Performance</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-oculus-quest-more-secure-on-meta-or-fb-platforms/"><u>Is Oculus Quest More Secure on Meta or FB Platforms?</u></a></li>
-<li><a href="https://facebook.techidaily.com/metaverse-vs-virtual-reality-exploring-6-diverging-paradigms/"><u>Metaverse Vs. Virtual Reality: Exploring 6 Diverging Paradigms</u></a></li>
-<li><a href="https://facebook.techidaily.com/staying-safe-from-social-engineering-snares/"><u>Staying Safe From Social Engineering Snares</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-fight-for-freedom-trumps-legal-challenge-to-tech-firms/"><u>The Fight for Freedom: Trump's Legal Challenge to Tech Firms</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-ultimate-selection-of-text-enhancers-for-adobe-ae-for-2024/"><u>The Ultimate Selection of Text Enhancers for Adobe AE for 2024</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/1728478140851-windows-server/"><u>Windows Server 系統復原與備份操作調查 - 逐步解析</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rtisans-shaping-virtual-marvel-universes-for-2024/"><u>[New] Artisans Shaping Virtual Marvel Universes for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-essential-themes-and-backdrops-for-a-stylish-laptop/"><u>[New] Essential Themes & Backdrops for a Stylish Laptop</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-htc-vive-review-the-epitome-of-ultimate-virtual-reality-playtime/"><u>[New] HTC Vive Review The Epitome of Ultimate Virtual Reality Playtime</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-amplify-your-influence-an-instagram-guide/"><u>[New] In 2024, Amplify Your Influence An Instagram Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-10-best-free-photo-collage-apps-to-combine-photos-on-iphone/"><u>[Updated] 10 Best FREE Photo Collage Apps to Combine Photos on iPhone</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-zte-blade-a73-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For ZTE Blade A73 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-feed-clean-tips-to-delete-fb-comments/"><u>Keeping Your Feed Clean: Tips to Delete Fb Comments</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/keyboard-shortcuts-for-crafting-hearts-on-your-screen-easily/"><u>Keyboard Shortcuts for Crafting Hearts on Your Screen Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-in-immediate-access-to-separate-facebook-profiles/"><u>Mastery in Immediate Access to Separate Facebook Profiles</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-premiere-pro-or-vegas-pro-which-video-editor-reigns-supreme-in-2024/"><u>New Premiere Pro or Vegas Pro Which Video Editor Reigns Supreme , In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-metas-image-control-plan/"><u>Protecting Privacy: Meta's Image Control Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-your-workflow-with-facebooks-8-core-features/"><u>Revolutionize Your Workflow with Facebook's 8 Core Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-blueprint-of-engaging-with-facebook-community-groups/"><u>The Blueprint of Engaging with Facebook Community Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-productivity-explore-8-must-have-crowdfire-functions/"><u>Unlock Productivity: Explore 8 Must-Have Crowdfire Functions</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-extends-grace-period-for-new-privacy-acceptance/"><u>WhatsApp Extends Grace Period for New Privacy Acceptance</u></a></li>
 </ul></div>
 

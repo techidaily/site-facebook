@@ -1,7 +1,7 @@
 ---
 title: The Importance of Alt Tags in Digital Image Sharing
-date: 2024-09-10T14:50:08.182Z
-updated: 2024-09-11T14:50:08.182Z
+date: 2024-11-05T08:42:13.998Z
+updated: 2024-11-07T01:08:37.682Z
 tags:
   - facebook
 categories:
@@ -35,61 +35,40 @@ thumbnail: https://thmb.techidaily.com/865ed323eb71130c7276babe580275f4674927ba1
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### How to Add Alt Text to Images on the Facebook App
 
 ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
-
-
-
+![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
 
 Close
 
@@ -108,19 +87,12 @@ Here’s how you add alt text to images while uploading them:
 
 ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Here’s how to add alt text to your photos on Facebook's web browser.
 
@@ -133,20 +105,6 @@ Here’s how you add alt text to images while uploading them:
 7. Click**Save** when you're done.
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to Add Alt Text to Facebook Photos You've Already Uploaded
 
@@ -169,34 +127,17 @@ Close
 
  Related:[How to Download Facebook Photos and Videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Make Your Facebook Photos More Accessible
 
  Alt text is an important aspect of making your content accessible to people with vision impairments as well as increasing the potential reach of your photos, if that's your aim.
 
  It’s easy enough to add alternative text to images, both new and old, using the Facebook app or web version. So, the next time you upload a photo to Facebook, consider how everyone can best appreciate it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -205,4 +146,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-iphone-pro-enhancing-photo-clarity-details-and-composition/"><u>[New] IPhone Pro Enhancing Photo Clarity, Details & Composition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-live-subscriber-count-meters/"><u>[Updated] Live Subscriber Count Meters</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/effortless-upgrades-download-the-latest-pioneer-dj-ddj-sx2-controller-software/"><u>Effortless Upgrades: Download the Latest Pioneer DJ DDJ-SX2 Controller Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-rebrands-as-meta-a-leap-towards-a-new-digital-age/"><u>Facebook Rebrands as Meta: A Leap Towards a New Digital Age</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/how-to-fix-issues-with-playback-of-mkv-files-on-your-lg-television/"><u>How to Fix Issues with Playback of MKV Files on Your LG Television</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-a-facebook-avatar-on-whatsapp/"><u>How to Use a Facebook Avatar on WhatsApp</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-nokia-c12-pro-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Nokia C12 Pro Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-revolutionary-ios-gaming-apples-best-vr-apps/"><u>In 2024, Revolutionary iOS Gaming Apple's Best VR Apps</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-of-the-marketing-maze-tips-to-avoid-objectionable-ads/"><u>Steering Clear of the Marketing Maze: Tips to Avoid Objectionable Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-connectivity-8-social-networking-methods/"><u>The Power of Connectivity: 8 Social Networking Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-fbcta-in-shaping-digital-experience/"><u>The Role of FBCTA in Shaping Digital Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-you-turn-a-new-leaf-from-fb/"><u>When You Turn a New Leaf From FB</u></a></li>
+</ul></div>
 

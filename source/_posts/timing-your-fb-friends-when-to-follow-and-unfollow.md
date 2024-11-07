@@ -1,7 +1,7 @@
 ---
 title: "Timing Your FB Friends: When to Follow & Unfollow?"
-date: 2024-10-30T16:48:04.228Z
-updated: 2024-11-01T16:39:03.823Z
+date: 2024-11-05T03:37:37.551Z
+updated: 2024-11-07T06:54:17.229Z
 tags:
   - facebook
 categories:
@@ -52,10 +52,10 @@ There are two reasons to use the follow feature.
 ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You automatically follow all your friends. Anyone else, you need to follow manually.
@@ -70,13 +70,6 @@ There are two reasons to use the follow feature.
 
 ![facebook unfollow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-unfollow.png)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
 
 ## How Do You See Who You're Following?
@@ -89,13 +82,6 @@ There are two reasons to use the follow feature.
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  So, following other people is straightforward enough, but how do you let other people follow your profile and posts?
 
  You need to turn on the feature in Facebook's settings. Go to **Settings and Privacy > Settings > Public Posts > Who Can Follow Me** and select**Public** from the dropdown menu.
@@ -106,16 +92,16 @@ This same page contains three other settings you need to be aware of:
 * **Public Post Notifications:** Do you wish to receive notifications for actions taken by individuals who aren't your friend?
 * **Public Profile Info:** Some of your profile---such as your profile picture, cover image, and short bio---is always public. This setting restricts who can comment on it.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What Do Your Facebook Followers See?
 
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Followers can see any of your public content. Remember, this doesn't only refer to text-based posts, you can also choose to make pictures, albums, videos, and even your likes public knowledge.
 
@@ -126,10 +112,10 @@ This same page contains three other settings you need to be aware of:
 ![facebook see following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-see-following.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
@@ -146,6 +132,13 @@ This same page contains three other settings you need to be aware of:
 
 ![facebook block](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-block.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  So far, so good? Great. Next, how do you get rid of people who you don't want to follow you anymore?
 
  Of course, the draconian approach is just to turn off followers completely. It will remove any followers who aren't already friends with you. For a more nuanced approach, you need to block people on a case-by-case basis.
@@ -155,6 +148,13 @@ This same page contains three other settings you need to be aware of:
  You now have two choices:**Report** or**Block** .
 
  If you just want to prevent someone from seeing your public content, choose**Block** . The person will not be able to see your timeline, tag you in posts or photos, invite you to groups, start a chat conversation with you, or add you as a friend. If the person has been abusive, choose**Report** . You can either report the person's whole profile or one individual post/comment.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Should You Use the Follow Feature on Facebook?
 
@@ -177,22 +177,24 @@ This same page contains three other settings you need to be aware of:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-15-snapchat-mastery-techniques-you-cant-miss-for-2024/"><u>[New] 15 Snapchat Mastery Techniques You Can't Miss for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-social-media-symphony-composing-jake-pauls-youtube-success/"><u>[New] In 2024, The Social Media Symphony Composing Jake Paul's YouTube Success</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-essential-tips-for-cheap-gopro-shopping/"><u>[Updated] 2024 Approved Essential Tips for Cheap GoPro Shopping</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-proven-methods-for-logging-digital-audio-data/"><u>[Updated] In 2024, Proven Methods for Logging Digital Audio Data</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-comprehensive-strategies-for-windows-media-players-audio-operations/"><u>2024 Approved Comprehensive Strategies for Windows Media Player's Audio Operations</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-how-to-send-a-snap-from-memoriescamera-roll-on-snapchat/"><u>2024 Approved How to Send a Snap From Memories/Camera Roll on Snapchat</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-art-of-slow-motion-a-guide-for-instagrams-next-viral-reels/"><u>2024 Approved The Art of Slow-Motion A Guide for Instagram's Next Viral Reels</u></a></li>
-<li><a href="https://facebook.techidaily.com/intuitive-interface-for-the-modern-social-feed/"><u>Intuitive Interface for the Modern Social Feed</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-giant-invests-in-global-battle-against-covid-1e/"><u>Online Giant Invests in Global Battle Against COVID-1e</u></a></li>
-<li><a href="https://facebook.techidaily.com/personal-branding-via-curated-social-media-chronicles/"><u>Personal Branding via Curated Social Media Chronicles</u></a></li>
-<li><a href="https://facebook.techidaily.com/platform-evasion-fb-enables-vaccine-skepticism-circles/"><u>Platform Evasion: FB Enables Vaccine Skepticism Circles</u></a></li>
-<li><a href="https://facebook.techidaily.com/potential-threats-in-the-land-of-facebook-quiz-games/"><u>Potential Threats in the Land of Facebook Quiz Games?</u></a></li>
-<li><a href="https://facebook.techidaily.com/reality-check-metrics-and-money-metas-role-in-content-creation-earnings/"><u>Reality Check: Metrics and Money - Meta's Role in Content Creation Earnings</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-teens-social-network-fb-privacy-checklist/"><u>Securing Your Teen's Social Network: FB Privacy Checklist</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-intersection-of-friendship-and-commerce-facebooks-new-feature/"><u>The Intersection of Friendship and Commerce: Facebook’s New Feature</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-walkthrough-how-to-shut-down-facebook-app-on-android/"><u>The Ultimate Walkthrough: How to Shut Down Facebook App on Android</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-superior-performance-of-dji-air-2s-your-definitive-guide/"><u>Unveiling the Superior Performance of DJI Air 2S - Your Definitive Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-idea-to-screen-smartphone-video-creation-tips/"><u>[New] In 2024, From Idea to Screen Smartphone Video Creation Tips</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-silent-strike-sequels-the-next-10-best-samurai-adventures/"><u>[New] Silent Strike Sequels The Next 10 Best Samurai Adventures</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-hone-your-meme-skills-quickly-using-9gag-strategies/"><u>[Updated] Hone Your Meme Skills Quickly Using 9GAG Strategies</u></a></li>
+<li><a href="https://media-tips.techidaily.com/1-how-to-install-and-set-up-apple-tv-nfl-sunday-ticket-subscription-a-step-by-step-download-guide/"><u>1. How to Install and Set Up Apple TV NFL Sunday Ticket Subscription : A Step-by-Step Download Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/americas-new-legal-framework-curtailing-big-techs-power/"><u>America's New Legal Framework: Curtailing Big Tech's Power</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-stance-on-metaverse-a-decision-of-distinction/"><u>Apple’s Stance on Metaverse - A Decision of Distinction</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-our-smartphones-subtly-studying-us-for-targeted-marketing/"><u>Are Our Smartphones Subtly Studying Us For Targeted Marketing?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-free-application-review-maximizing-social-efficacy/"><u>Exclusive Free Application Review: Maximizing Social Efficacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-dating-transformed-the-future-of-relationships/"><u>Facebook Dating Transformed: The Future of Relationships?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/gaining-unauthorized-control-through-ghostwrite-bug-in-the-design-of-risc-v-cpus/"><u>Gaining Unauthorized Control Through GhostWrite Bug in the Design of RISC-V CPUs</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-nokia-150-2023-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Nokia 150 (2023) to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigative-study-oculus-q2-uptake-among-hacked-facebookers/"><u>Investigative Study: Oculus Q2 Uptake Among Hacked Facebookers</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-revolutionary-ai-the-speedy-vanguard/"><u>Meta's Revolutionary AI: The Speedy Vanguard</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/quick-methods-how-to-get-subtitles-from-mkv-files-easily/"><u>Quick Methods: How to Get Subtitles From MKV Files Easily</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-start-mastering-latvian-in-daily-doses/"><u>Quick Start: Mastering Latvian in Daily Doses</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-etiquette-for-business-pages-blocking-users/"><u>Social Etiquette for Business Pages: Blocking Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-picks-for-virtual-interactions/"><u>Top Picks for Virtual Interactions</u></a></li>
+<li><a href="https://techtrends.techidaily.com/tor-browser-how-it-can-protect-your-online-privacy-on-windows-10/"><u>Tor Browser: How It Can Protect Your Online Privacy on Windows 10</u></a></li>
 </ul></div>
 

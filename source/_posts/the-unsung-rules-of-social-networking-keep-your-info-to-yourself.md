@@ -1,7 +1,7 @@
 ---
 title: "The Unsung Rules of Social Networking: Keep Your Info to Yourself"
-date: 2024-10-15T21:02:14.365Z
-updated: 2024-10-21T01:30:42.586Z
+date: 2024-11-05T09:22:32.527Z
+updated: 2024-11-07T02:14:23.194Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
 ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
  As a safer alternative, don't share any details or pictures about your trip until after you return. While this is less exciting, it protects you because you're not advertising to the world that you're away from home for an extended period.
@@ -46,19 +53,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Personally-Identifying Information
 
  Sites like Facebook are full of valuable data for people who use social engineering to steal your identity on social media. You should always avoid sharing information that can be used to verify your identity, such as your full date of birth. Never share photos of your driver's license, passport, or credit card, which contain personal information that you don't want to make public.
@@ -68,10 +62,10 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  These types of questions are often used as security questions to protect your online accounts. Thankfully, these weak security questions are being phased out on many sites, but they're still a potential attack surface in many cases. Making these answers public could allow someone to break into your account;[stay safe from social engineering](https://www.makeuseof.com/tag/protect-8-social-engineering-attacks/) by keeping this info private.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Personal Complaints and Rants
@@ -83,6 +77,13 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  As a healthier alternative, why not start a private journal where you can rant all you want? However you choose to do it, keeping your anger off the public square of social media is a smart idea.
 
  Note that many companies offer customer service on social media, so this doesn't apply to getting help with a legitimate complaint. You should still be courteous in these situations, though.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Self-Incriminating Evidence
 
@@ -113,10 +114,10 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. Scammy Giveaways and Contests
@@ -124,10 +125,10 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
@@ -141,13 +142,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  It's an easy mistake to accidentally post private information on a public channel. However, you should be careful about exposing insider information on social media. If you're aware of protected details at your job, don't share those anywhere, especially online.
 
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 10\. Anything You Don't Want to Make Public
 
@@ -178,19 +172,22 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-monetization-strategies-for-gamers/"><u>[Updated] Monetization Strategies for Gamers</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unleashing-creativity-the-ultimate-guide-to-crafting-compelling-tiktok-captions/"><u>[Updated] Unleashing Creativity The Ultimate Guide to Crafting Compelling TikTok Captions</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-free-and-paid-drawing-tools-for-windows-enthusiasts/"><u>2024 Approved Free and Paid Drawing Tools for Windows Enthusiasts</u></a></li>
-<li><a href="https://extra-information.techidaily.com/a-deep-dive-into-video-workflow-enhancement-through-hdri-adoption/"><u>A Deep Dive Into Video Workflow Enhancement Through HDRI Adoption</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-identity-vs-online-alias-whats-the-difference/"><u>Facebook Identity Vs Online Alias: What's The Difference?</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-policy-shift-for-trumps-page/"><u>Facebook Policy Shift for Trump's Page</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixes-and-solutions-resolving-disco-elysium-pc-game-crash-issues/"><u>Fixes and Solutions: Resolving Disco Elysium PC Game Crash Issues</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-tecno-pova-5-frp-by-drfone-android/"><u>How Can We Bypass Tecno Pova 5 FRP?</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/making-your-voice-heard-in-the-podcast-realm/"><u>Making Your Voice Heard in the Podcast Realm</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-growth-strategy-risks-facebook-and-instagram-eu-markets/"><u>Meta's Growth Strategy Risks Facebook & Instagram EU Markets</u></a></li>
-<li><a href="https://techtrends.techidaily.com/smartwatch-shopping-checklist-the-5-questions-you-cant-overlook/"><u>Smartwatch Shopping Checklist: The 5 Questions You Can't Overlook</u></a></li>
-<li><a href="https://ai-video.techidaily.com/updated-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>Updated How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-did-social-networks-temporarily-freeze-up/"><u>Why Did Social Networks Temporarily Freeze Up?</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-daily-playlist-anywhere-you-go-spotify-miniplayer-and-facebook/"><u>Your Daily Playlist, Anywhere You Go – Spotify Miniplayer & Facebook</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-add-chapters-to-youtube-videos/"><u>[Updated] 2024 Approved How to Add Chapters to YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-translating-views-into-dollars-on-youtube-via-cpm/"><u>[Updated] 2024 Approved Translating Views Into Dollars on YouTube via CPM</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-insiders-guide-to-professional-grade-editing-in-windows-10/"><u>2024 Approved The Insider's Guide to Professional-Grade Editing in Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-things-to-do-before-deleting-your-facebook-account/"><u>8 Things to Do Before Deleting Your Facebook Account</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/breaking-free-from-virtual-reality-discomfort-for-2024/"><u>Breaking Free From Virtual Reality Discomfort for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehending-online-identity-facebook-vs-unames/"><u>Comprehending Online Identity: FaceBook vs UNAMES</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/diagnosing-and-repairing-the-notorious-dev-error-6034-in-call-of-dutys-modern-warfare-console-edition/"><u>Diagnosing and Repairing the Notorious Dev Error 6034 in Call of Duty's Modern Warfare - Console Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-social-presence-with-striking-covers/"><u>Elevating Your Social Presence with Striking Covers</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-honor-90-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/germany-says-no-to-facebook-collecting-whatsapp-user-information/"><u>Germany Says No to Facebook Collecting WhatsApp User Information</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Vivo Y100 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-wipe-your-facebook-activity-trail/"><u>Instructions: Wipe Your Facebook Activity Trail</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solving-windows-kernel32dll-issue-a-step-by-step-guide/"><u>Solving Windows Kernel32.dll Issue: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-people-you-might-know-feature-on-social-media-site/"><u>Stop 'People You Might Know' Feature on Social Media Site</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-recovery-plan-for-compromised-facebook-profiles/"><u>Swift Recovery Plan for Compromised Facebook Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-of-vk-russias-online-community-explored/"><u>The Essentials of VK: Russia's Online Community Explored</u></a></li>
+<li><a href="https://some-skills.techidaily.com/undoing-streams-a-complete-list-of-25-procedures-for-twitch-for-2024/"><u>Undoing Streams A Complete List of 25 Procedures for Twitch for 2024</u></a></li>
 </ul></div>
 

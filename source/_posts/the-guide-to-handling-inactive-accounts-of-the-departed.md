@@ -1,7 +1,7 @@
 ---
 title: The Guide to Handling Inactive Accounts of the Departed
-date: 2024-10-30T16:55:12.670Z
-updated: 2024-11-01T17:25:44.796Z
+date: 2024-11-02T02:51:45.865Z
+updated: 2024-11-06T22:19:12.023Z
 tags:
   - facebook
 categories:
@@ -45,16 +45,16 @@ To get a Facebook account memorialized, follow these steps:
 
  If your case is genuine, Facebook allows you to hold a fundraiser and let people worldwide help you manage money for the deceased person. Use[valuable tips to make your fundraising campaign a success](https://www.makeuseof.com/tag/crowdfunding-campaign-tips/) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Get a Facebook Account Removed After the Person Dies
 
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
 
@@ -69,10 +69,10 @@ To get a Facebook account memorialized, follow these steps:
 2. In the**Full Name** section, enter your official credentials.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3. Add your email address currently in use under the**Your** **Contact Email** section. Facebook might contact you and acquire more details if needed.
@@ -84,10 +84,10 @@ To get a Facebook account memorialized, follow these steps:
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
@@ -100,10 +100,10 @@ To get a Facebook account memorialized, follow these steps:
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
@@ -129,16 +129,18 @@ To get a Facebook account memorialized, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/arly-birds-youtube-strategies-for-channel-and-revenue/"><u>[New] Early Bird's Youtube Strategies for Channel and Revenue</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/solved-nier-replicant-remaster-not-launching/"><u>[SOLVED] NieR Replicant Remaster Not Launching</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-choice-top-mp4-players-unveiled-for-2024/"><u>[Updated] Ultimate Choice Top MP4 Players Unveiled for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unlocking-pexels-image-arsenal-with-ease/"><u>[Updated] Unlocking Pexels' Image Arsenal with Ease</u></a></li>
-<li><a href="https://games-able.techidaily.com/elevate-streaming-success-the-best-7-twitch-bots-compared/"><u>Elevate Streaming Success: The Best 7 Twitch Bots Compared</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-pushback-why-it-continues-to-evolve-and-thrive/"><u>Facebook's Pushback: Why It Continues to Evolve and Thrive</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-error-1015-while-restoring-iphone-15-plus-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to fix error 1015 while restoring iPhone 15 Plus | Stellar</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-your-data-safe-a-guide-to-privacy-controls-in-fb/"><u>Keep Your Data Safe: A Guide to Privacy Controls in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotify-announces-undercover-tracking-for-unhindered-streaming-experience/"><u>Spotify Announces Undercover Tracking for Unhindered Streaming Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-metaai-beyond-basic-chatbot-capabilities/"><u>Understanding MetaAI: Beyond Basic Chatbot Capabilities</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-social-media-blackout-phenomena/"><u>Understanding Social Media Blackout Phenomena</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-top-rated-apps-for-taking-screenshots-in-windows-8/"><u>[Updated] 2024 Approved Top-Rated Apps for Taking Screenshots in Windows 8</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-safaris-picture-in-picture-settings-simplified/"><u>2024 Approved Safari’s Picture In Picture Settings Simplified</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/customizing-your-pixels-melodic-identity/"><u>Customizing Your Pixel's Melodic Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-fb-content-scheduling-top-5-low-cost-techniques/"><u>Effective FB Content Scheduling: Top 5 Low-Cost Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-digital-presence-sharing-hd-media-mobilely/"><u>Elevate Your Digital Presence: Sharing HD Media Mobilely</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-from-apple-iphone-12-mini-to-iphone-81111-pro-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer from Apple iPhone 12 mini to iPhone 8/11/11 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-sony-xperia-1-v-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Sony Xperia 1 V</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-evolution-facebooks-transformation-into-meta/"><u>Interactive Evolution: Facebook's Transformation Into Meta</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/power-draw-breakdown-for-windows-computing-systems/"><u>Power Draw Breakdown for Windows Computing Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/reels-and-royalties-the-role-of-meta-in-content-creator-earnings/"><u>Reels & Royalties: The Role of Meta in Content Creator Earnings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-debate-over-digital-dissatisfaction-tools/"><u>The Debate Over Digital Dissatisfaction Tools</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-4-free-myspace-video-downloader-apps-with-mp4-and-mp3-support/"><u>Top 4 Free MySpace Video Downloader Apps with MP4 and MP3 Support</u></a></li>
 </ul></div>
 

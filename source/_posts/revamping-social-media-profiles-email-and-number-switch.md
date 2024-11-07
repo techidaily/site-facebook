@@ -1,7 +1,7 @@
 ---
 title: "Revamping Social Media Profiles: Email & Number Switch"
-date: 2024-10-28T17:39:01.865Z
-updated: 2024-11-01T16:03:46.784Z
+date: 2024-11-01T01:01:13.581Z
+updated: 2024-11-07T01:07:55.631Z
 tags:
   - facebook
 categories:
@@ -32,13 +32,6 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 
  Another reason why you might want to update your email or phone number is if you are moving or traveling and will be using a new email address or phone number temporarily. Whatever the reason, updating your information is easy to do and can be done in just a few minutes.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Update Your Email Address and Phone Number on Facebook
 
  You can change the email address and phone number linked to your account on the Facebook app as well as the web version.
@@ -58,16 +51,10 @@ To change your email address on the Facebook app, follow these steps:
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -88,13 +75,20 @@ Here's how to do this:
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![screenshot showing how to remove phone number from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-how-to-remove-phone-number-from-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -110,15 +104,15 @@ Close
 ![screenshot showing facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-homepage.jpg)
 3. Click on**Settings & Privacy** \>**Settings** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![screenshot showing account settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-account-settings-page-on-Facebook.jpg)
 4. Click on**Account Settings** .
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 5. Click on**Edit** in line with the previously linked email address and then click on**\+ Add another email or mobile number** .  
 ![screenshot showing edit email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-edit-email-address-page.jpg)
@@ -127,10 +121,10 @@ Close
 ![screenshot showing enter email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-enter-email-address-page.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Updating Your Contact Information on Facebook
@@ -152,24 +146,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-dive-into-the-world-of-cosmetics-launching-a-beauty-channel/"><u>[Updated] In 2024, Dive Into the World of Cosmetics Launching a Beauty Channel</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-vibing-mix-melodies-into-status-updates/"><u>[Updated] In 2024, Vibing Mix Melodies Into Status Updates</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-seamless-adjustment-for-videos-and-graphics/"><u>[Updated] Seamless Adjustment for Videos and Graphics</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/2-mastering-the-restore-getting-back-lost-software-in-windows-11-systems/"><u>2. Mastering the Restore: Getting Back Lost Software in Windows 11 Systems</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-nubia-z50s-pro-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Nubia Z50S Pro</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Motorola Moto G Stylus (2023)? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensure-the-legitimacy-of-securityfacebookmailcom-as-a-security-email-service/"><u>Ensure the Legitimacy of @security@facebookmail.com as a Security Email Service</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/exploring-the-distinctions-of-srgb-and-rgb/"><u>Exploring the Distinctions of Srgb and Rgb</u></a></li>
-<li><a href="https://win-answers.techidaily.com/get-dota-2-running-smoothly-again-fix-crash-errors-with-these-tips/"><u>Get Dota 2 Running Smoothly Again - Fix Crash Errors with These Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-maintain-message-consistency-across-facebook-communities/"><u>How to Maintain Message Consistency Across Facebook Communities</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-realme-v30t-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Realme V30T Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-vk-a-compreranctive-view-of-russias-online-world/"><u>Inside VK: A Compreranctive View of Russia's Online World</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagrams-economic-shift-how-creators-can-benefit-from-new-features/"><u>Instagram's Economic Shift: How Creators Can Benefit From New Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/intimate-listening-experience-spotify-miniplayer-in-fb/"><u>Intimate Listening Experience - Spotify Miniplayer in FB</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/maximizing-instagram-accessing-free-filters-via-searches/"><u>Maximizing Instagram Accessing Free Filters via Searches</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-delays-offering-end-to-end-encryption-by-default-until-2023-heres-why/"><u>Meta Delays Offering End-to-End Encryption by Default Until 2023: Here's Why</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-pursuit-the-race-for-global-ai-supremacy/"><u>Meta's Pursuit: The Race for Global AI Supremacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebook-settings-change-your-year-of-birth/"><u>Navigating Facebook Settings: Change Your Year of Birth</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-end-of-fbs-face-recognition-heres-why-meta-cut-ties/"><u>The End of FB's Face Recognition? Here’s Why Meta Cut Ties</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-best-mac-mp4-cutter-apps-enhance-video-editing/"><u>[New] In 2024, Best Mac MP4 Cutter Apps Enhance Video Editing</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-speed-up-your-social-art-collage-creation-on-the-fly/"><u>[New] Speed-Up Your Social Art Collage Creation on the Fly</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-what-separates-full-immersion-from-panoramic-videos-in-2024/"><u>[New] What Separates Full Immersion From Panoramic Videos, In 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-microvid-virtuoso/"><u>[Updated] MicroVid Virtuoso</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152004902-are-you-a-future-metaverse-architect-join-facebooks-quest/"><u>Are You a Future Metaverse Architect? Join Facebook's Quest</u></a></li>
+<li><a href="https://facebook.techidaily.com/control-who-sees-your-stuff-on-fb-creating-a-restricted-list/"><u>Control Who Sees Your Stuff on FB: Creating a Restricted List</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-mastering-close-up-views-in-roblox-games/"><u>In 2024, Mastering Close-Up Views in Roblox Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-on-social-media-spotting-fb-hacks/"><u>Protecting Privacy on Social Media: Spotting FB Hacks</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/pushing-the-boundaries-animated-fb-ads-that-increase-return-on-investment/"><u>Pushing the Boundaries Animated FB Ads That Increase Return on Investment</u></a></li>
+<li><a href="https://facebook.techidaily.com/rescheduled-whatsapp-privacy-policy-update-enforcement/"><u>Rescheduled WhatsApp Privacy Policy Update Enforcement</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-community-oversight-facebooks-latest-update/"><u>Revolutionizing Community Oversight: Facebook's Latest Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-sabbatical-what-teens-should-consider-before-continued-use-of-instagram/"><u>Social Media Sabbatical: What Teens Should Consider Before Continued Use of Instagram</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-data-from-samsung-galaxy-z-fold-5-by-fonelab-android-recover-data/"><u>Undelete lost data from Samsung Galaxy Z Fold 5</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollow-the-rules-how-to-remove-facebook-clans/"><u>Unfollow the Rules: How to Remove Facebook Clans</u></a></li>
 </ul></div>
 

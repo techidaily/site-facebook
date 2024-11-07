@@ -1,7 +1,7 @@
 ---
 title: Unlocking Your Facebook Account without Access Codes
-date: 2024-09-05T09:32:41.194Z
-updated: 2024-09-06T09:32:41.194Z
+date: 2024-11-02T04:46:21.859Z
+updated: 2024-11-07T03:47:44.847Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,6 @@ keywords: Unlock FB Without Codes,Recover FB Locked Account,Gain FB Access No Co
 thumbnail: https://thmb.techidaily.com/c11b89b923631ed5d512ccc32ee592a5fb46939b31266627ae16098d24a9cb49.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unlocking Your Facebook Account without Access Codes
 
  You can access Facebook without a confirmation or reset code. When Facebook retired its in-app Code Generator, many users may have been left hung out to dry.We'll show you how to log into your account using alternatives to receiving a Facebook confirmation code.
@@ -29,12 +23,6 @@ thumbnail: https://thmb.techidaily.com/c11b89b923631ed5d512ccc32ee592a5fb46939b3
 
  By enabling Facebook's two-factor authentication, you've added an extra layer of security, which can[protect your Facebook account from getting hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Where Can You Find a Facebook Confirmation Code?
 
 You can obtain a Facebook login code in three different ways:
@@ -47,23 +35,18 @@ You can obtain a Facebook login code in three different ways:
 
  Beyond codes, you can create a physical second-factor security key to log into Facebook through USB or NFC.
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Lost Access to Code Generator or Your Authentication Tool?
 
  Code Generator used to be a convenient way to access two-factor authentication codes without a mobile number. While you may still see its remnants in the mobile app, Facebook has recently retired Code Generator.
 
  When you've set up your phone to be the key to your Facebook account, losing or breaking it could be a problem. Here's what you can do in the event that you lose access to Code Generator or your third-party authentication tool.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Let Facebook Text You a Confirmation Code
 
@@ -76,16 +59,31 @@ You can obtain a Facebook login code in three different ways:
 ![Facebook Two-Factor Authentication Required screen upon trying to log in.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Two-Factor-Authentication-Required.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Use a Saved Recovery Code
 
  After setting up two-factor authentication, you had the chance to save a set of recovery codes as a backup. Maybe you printed the code, took a screenshot, or wrote it down and stored it in a safe location.
 
 ![Facebook recovery codes remaining.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Two-Factor-Authentication-Codes-Remaining.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If you haven't saved recovery codes, be sure to do it as soon as you regain access to your account. Should you ever again lose access to your authentication tool, you can use one of these codes to log into Facebook from a new device or location.
 
@@ -98,11 +96,12 @@ You can obtain a Facebook login code in three different ways:
 ![Facebook review recent login.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Review-Recent-Login.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Try to access Facebook from a browser or app you've used previously. Maybe you're still logged in on an old laptop, your work computer, or your tablet. When you find a device where you can still access Facebook, you should see a notification asking you to approve the new login.
 
 ### 4\. Confirm Your Identity
@@ -111,12 +110,6 @@ You can obtain a Facebook login code in three different ways:
 
 ![Facebook Two-Factor Authentication Code Issues](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Ways-to-Authenticate-Login.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  You'll have to enter an email address and upload a copy of your ID, which can be a passport, driver's license, national ID card, or other official documents. Once you have provided the requested information, Facebook will email you with further steps for account recovery.
 
 ![Confirm your identity using an email address or ID.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Confirm-Your-Identity.jpg)
@@ -125,12 +118,6 @@ You can obtain a Facebook login code in three different ways:
 
 ![Facebook Can't Get Your Code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Cant-Get-Your-Code.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  In the next screen, Facebook will tell you to log in from a known browser. If that isn't an option, click**Contact us** . Like above, you'll have to provide an email address, ideally one that was linked to your account, and upload your ID and a message to Facebook.
 
 ![Facebook Recovery Confirm Identity](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-recovery-confirm-identity.jpg)
@@ -143,12 +130,6 @@ You can obtain a Facebook login code in three different ways:
 
 ![Facebook Accounts Center Where You're Logged In Logging Out](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-accounts-center-where-you-re-logged-in-logging-out.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  At this point, you should**Remove** the number of the lost phone and update your Facebook password to be safe.
 
  Until you get your phone back or can set up an authentication tool on a new phone, you can save a batch of backup codes as described above. You could also set up another third-party app to generate codes.
@@ -156,25 +137,23 @@ You can obtain a Facebook login code in three different ways:
  And in the future, always make sure at least one device, other than your laptop or phone, has an authorized login. It could be a home computer that you'll always have access to. Only ever let Facebook remember devices and locations that are private and safe. And frequently review your list of[**Authorized Logins**](https://www.facebook.com/settings?tab=security&section=authorized%5Flogins&view) and**Remove** outdated items.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Keep Your Facebook Account Safe
 
  Every day, we hear from people who have lost access to their Facebook account. Unfortunately, we can't help most of them because they failed to set up recovery options, had their passwords cracked, or their contact data was reset. In cases like that, you can only hope that Facebook will help you recover your account.
 
  So don't let it get that far. It only takes a few minutes to enable two-factor authentication and save Facebook recovery codes. While you're at it, update your email address and phone number linked to your Facebook account. If disaster strikes again, you will be able to recover your Facebook account.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,4 +162,21 @@ You can obtain a Facebook login code in three different ways:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-confrontation-of-dusk-defender-and-dawn-protector/"><u>[New] Confrontation of Dusk Defender and Dawn Protector</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unlock-the-full-potential-of-facebook-the-best-5-chrome-extensions/"><u>[New] In 2024, Unlock the Full Potential of Facebook The Best 5 Chrome Extensions</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-is-inshot-the-peak-of-video-editing-software/"><u>[Updated] In 2024, Is InShot the Peak of Video Editing Software?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-perfecting-your-mobile-video-recordings-on-snapchat/"><u>[Updated] In 2024, Perfecting Your Mobile Video Recordings on Snapchat</u></a></li>
+<li><a href="https://driver-download.techidaily.com/corsair-keyboard-drivers-download-for-windows-free-and-safe/"><u>CORSAIR Keyboard Drivers Download for Windows | Free & Safe</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-motorola-g54-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Motorola G54 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-actions-to-undo-the-impact-of-a-facebook-intrusion/"><u>Instant Actions to Undo the Impact of a Facebook Intrusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-privacy-an-exhaustive-fb-security-checklist/"><u>Master the Art of Privacy: An Exhaustive FB Security Checklist</u></a></li>
+<li><a href="https://article-posts.techidaily.com/mastering-cartoon-selfies-snapchats-fun-lens-guide-for-2024/"><u>Mastering Cartoon Selfies Snapchat's Fun Lens Guide for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mastering-tricky-pronunciations-tips-and-examples-of-hard-words-to-pronounce/"><u>Mastering Tricky Pronunciations: Tips And Examples Of Hard Words To Pronounce</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/stream-videos-from-your-device-to-chromecast-windows-mac-android-ios-instructions/"><u>Stream Videos From Your Device to Chromecast Windows, Mac, Android, iOS Instructions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-verified-meta-achievement-with-payments/"><u>Unlock Verified Meta Achievement with Payments</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-fbs-expansion-mean-for-future-retail-spaces-near-us/"><u>What Does FB's Expansion Mean for Future Retail Spaces Near Us?</u></a></li>
+<li><a href="https://facebook.techidaily.com/zero-hour-for-falsehoods-as-fb-levies-heavier-fines/"><u>Zero-Hour for Falsehoods as FB Levies Heavier Fines</u></a></li>
+</ul></div>
 

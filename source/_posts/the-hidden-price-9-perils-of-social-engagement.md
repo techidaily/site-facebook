@@ -1,7 +1,7 @@
 ---
 title: "The Hidden Price: 9 Perils of Social Engagement"
-date: 2024-10-31T16:46:14.637Z
-updated: 2024-11-01T16:06:51.988Z
+date: 2024-11-01T07:23:08.319Z
+updated: 2024-11-07T03:07:17.468Z
 tags:
   - facebook
 categories:
@@ -40,13 +40,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  If you[find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Cyberbullying
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
@@ -61,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. FOMO (Fear of Missing Out)
 
  Fear of Missing Out (FOMO) is a phenomenon that became prominent around the same time as the rise of social media. Unsurprisingly, it's one of the most widespread negative effects of social media on society.
@@ -70,16 +70,10 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know[how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Unrealistic Expectations
@@ -87,10 +81,10 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
@@ -131,13 +125,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
  If you're not sure whether you're addicted to social networks, try to remember the last time you went a full day without checking any social media accounts. Do you feel rejected if someone unfollows you? And if your favorite social networks completely disappeared tomorrow, would the absence make you feel empty and depressed?
@@ -145,6 +132,13 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  At the end of the day, social media sites want to keep you scrolling for as long as possible so they can show you lots of ads and make more money. Because of[the attention economy](https://www.makeuseof.com/tag/what-is-attention-economy/) , these sites need your eyes on them for as long as possible. Apps like TikTok feed you a constant barrage of quick videos that destroy your attention span over time.
 
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our[guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Handle the Negative Effects of Social Media
 
@@ -167,20 +161,22 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-samsung-galaxy-s8-in-depth-4k-phone-analysis/"><u>[Updated] 2024 Approved Samsung Galaxy S8 In-Depth 4K Phone Analysis</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-windowsmac-srt-handling-made-easy-for-users/"><u>[Updated] 2024 Approved Windows/Mac SRT Handling Made Easy for Users</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/astro-a50-mic-issues-heres-how-you-can-get-it-working-again/"><u>Astro A50 Mic Issues? Here's How You Can Get It Working Again</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/cutting-edge-msi-motherboard-hits-market-unveiling-the-first-with-innovative-camm2-memory-for-gamers-rig-performance-boost/"><u>Cutting-Edge MSI Motherboard Hits Market: Unveiling the First with Innovative CAMM2 Memory for Gamers' Rig Performance Boost</u></a></li>
-<li><a href="https://os-tips.techidaily.com/discovering-the-default-storage-of-itunes-backups-for-ios-devices-and-tweaking-settings-on-a-computer/"><u>Discovering the Default Storage of iTunes Backups for iOS Devices & Tweaking Settings on a Computer</u></a></li>
-<li><a href="https://facebook.techidaily.com/embracing-tomorrow-facebook-reimagines-itself-as-the-meta-network/"><u>Embracing Tomorrow: Facebook Reimagines Itself as the Meta Network</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/from-scripted-to-smart-exploring-how-chatbots-are-programmed-to-simulate-human-like-discussions/"><u>From Scripted to Smart: Exploring How Chatbots Are Programmed to Simulate Human-Like Discussions</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-block-people-or-dates-in-facebooks-on-this-day-memories/"><u>How to Block People or Dates in Facebook's On This Day Memories</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-infinix-smart-7-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Infinix Smart 7 Device</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/is-artificial-intelligence-leading-to-an-upsurge-in-disinformation-tactics/"><u>Is Artificial Intelligence Leading to an Upsurge in Disinformation Tactics?</u></a></li>
-<li><a href="https://facebook.techidaily.com/mute-the-mainstream-political-madness/"><u>Mute the Mainstream Political Madness</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimal-privacy-reducing-unwanted-social-networking/"><u>Optimal Privacy: Reducing Unwanted Social Networking</u></a></li>
-<li><a href="https://facebook.techidaily.com/purging-clutter-a-facebook-transformation/"><u>Purging Clutter: A Facebook Transformation</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Nokia C32? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-caused-a-social-media-blackout/"><u>What Caused a Social Media Blackout?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-essential-insights-for-asmr-aficionados/"><u>[New] 2024 Approved Essential Insights for ASMR Aficionados</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ffline-replay-select-playlist-extractors-reviewed/"><u>[New] Offline Replay Select Playlist Extractors Reviewed</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-gopro-face-by-face-guide-to-selectivity/"><u>[Updated] 2024 Approved Gopro Face-By-Face Guide to Selectivity</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-evaluating-best-youtube-extractors-available-on-android/"><u>[Updated] Evaluating Best YouTube Extractors Available on Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-what-facebooks-revised-page-names-mean-now/"><u>Deciphering What Facebook's Revised Page Names Mean Now</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/dvdiphone-70off/"><u>DVD制作ツールとiPhoneバックアップソフトで大盛り上がり! 売上げ最大70%OFFセール特別オファー!</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-teardown-tactics-for-social-media-business-pages/"><u>Effective Teardown Tactics for Social Media Business Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-tunes-access-spotify-through-facebooks-mini-panel/"><u>Effortless Tunes: Access Spotify Through Facebook's Mini-Panel</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-xiaomi-14-pro-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Xiaomi 14 Pro Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-iphone-12-pro-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My iPhone 12 Pro when Phone is Broken?</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-to-facebook-transfer-sharing-reel-content-seamlessly/"><u>Instagram to Facebook Transfer: Sharing Reel Content Seamlessly</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95713824-9781785354953-pagan-portals-animal-magic/"><u>Pagan Portals - Animal Magic | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-virtual-afterlife-of-family-members-on-social-media-platforms/"><u>Securing Virtual Afterlife of Family Members on Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepping-away-smoothly-how-to-gradually-reduce-facebook-presence/"><u>Stepping Away Smoothly: How to Gradually Reduce Facebook Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-not-to-overlook-when-quitting-social-sites/"><u>Steps Not To Overlook When Quitting Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-challenges-big-tech-on-free-speech-grounds/"><u>Trump Challenges Big Tech on Free Speech Grounds</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Oppo Find N3 Flip? | Dr.fone</u></a></li>
 </ul></div>
 

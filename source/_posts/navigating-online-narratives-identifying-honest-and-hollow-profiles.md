@@ -1,7 +1,7 @@
 ---
 title: "Navigating Online Narratives: Identifying Honest and Hollow Profiles"
-date: 2024-09-10T14:50:08.703Z
-updated: 2024-09-11T14:50:08.703Z
+date: 2024-11-02T05:25:03.602Z
+updated: 2024-11-07T04:35:51.333Z
 tags:
   - facebook
 categories:
@@ -27,61 +27,20 @@ thumbnail: https://thmb.techidaily.com/858d049547f59eac162cc6b5d9eb7989714fa4113
 
  Scammers use fake profiles of people's family members to trick people out of confidential information they'd typically not share with a stranger. They also use Facebook accounts impersonating celebrities or legitimate business organizations to fleece people of huge amounts of money. Once someone is able to assume a fake identity on Facebook and convince people that they're who they say they are, the possibility of what could go wrong is endless. So how exactly do you spot a fake Facebook account or profile?
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 5 Tips for Spotting a Fake Facebook Profile
 
  At first glance, a fake Facebook profile isn't any different from a genuine one. However, the devil is in the details. Here are some tips for identifying a fake profile on Facebook:
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 1\. Fake or Stolen Photos
 
 ![Woman looking at her mobile phone with laptop open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Woman-looking-at-her-mobile-phone-with-laptop-open.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Fake profiles don't have a lot of things to say about their day-to-day life because, well, they aren't living it. Instead, they opt for using a lot of photos to create a semblance of being active. One thing that stands out is the nature of the photos they post. Because they aren't living the life they claim, they'll typically have to steal the photos of people they're impersonating. This is especially the case with fake Facebook profiles used by[online dating scammers](https://www.makeuseof.com/tag/spot-avoid-online-dating-scammer/) .
 
@@ -95,49 +54,23 @@ thumbnail: https://thmb.techidaily.com/858d049547f59eac162cc6b5d9eb7989714fa4113
 
  Sometimes, you'll find a long period of dormancy where there's no post at all and then a period of almost daily posting. This is a red flag.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 3\. Strange Stories with a Plea for Help
 
 ![Photo of Person Checking Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/maxim-ilyahov-0aRycsfH57A-unsplash.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  If an account that you believe is used by a close friend or family member suddenly asks for information or help in an unusual way, treat it with caution. No matter how long you've been Facebook friends with someone, never believe any suspicious stories that might require any form of financial resources or confidential information from you.
 
@@ -147,25 +80,18 @@ thumbnail: https://thmb.techidaily.com/858d049547f59eac162cc6b5d9eb7989714fa4113
 
  A sizable number of fake accounts are run by bots or people who know little about you. As a result, they'll typically try to avoid any conversation that might reveal their lack of knowledge about you. This is why a good way to confirm whether or not an account is fake is to start a deep conversation.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 5\. Friend Requests From People Who Have No Mutuals
 
  If you're getting lots of friend requests from accounts that do not have any mutual friends, there's a possibility that it's a fake account that's directly targeting you. Sadly, there are a lot of fake profiles out there which are hand-crafted to deceive a particular person. These are trickier to spot, especially as they gain credibility by learning a lot about you. However, they're little slip-ups that you'll still notice along the way.
 
  It's possible to block friend requests from people who have no friends in common with you. To do this, head to the**Settings** section of your Facebook mobile app, scroll down and tap on**How people can find and contact you >** **Who can send you friend requests? >** **Friends of friends** . You can also try out other[ways to limit the people that can contact you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Protect Yourself From Fake Profiles
 
@@ -173,14 +99,11 @@ thumbnail: https://thmb.techidaily.com/858d049547f59eac162cc6b5d9eb7989714fa4113
 
  If you're not sure if you know someone, send them a message asking them to remind you. If they can't or won't respond, then they probably aren't your friend. If you think the account is someone impersonating a friend, try contacting that friend through some previously verified method such as an email address or phone number you already have for them. Also, talk to mutual friends about whether an account that's communicating with you is genuine or not.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -189,4 +112,23 @@ thumbnail: https://thmb.techidaily.com/858d049547f59eac162cc6b5d9eb7989714fa4113
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-dialogues-that-drive-diversity-discussing-with-a-multicultural-audience-for-2024/"><u>[New] Dialogues That Drive Diversity Discussing with a Multicultural Audience for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-step-by-step-initiating-instagram-live-shows/"><u>[New] In 2024, Step-by-Step Initiating Instagram Live Shows</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-15-indispentic-tools-to-launch-your-youtube-career-for-2024/"><u>[Updated] 15 Indispentic Tools to Launch Your YouTube Career for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-subtracting-text-srt-to-sub-transformation-tips/"><u>2024 Approved Subtracting Text SRT to SUB Transformation Tips</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/digital-stagecraft-unlocking-voice-manipulation-with-affordable-technology/"><u>Digital Stagecraft Unlocking Voice Manipulation with Affordable Technology</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719158810853-experience-the-thrill-play-six-amazing-chatgpt-games/"><u>Experience the Thrill: Play Six Amazing ChatGPT Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-now-awaits-your-no-media-live-broadcast/"><u>Instagram Now Awaits Your No-Media Live Broadcast</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/installing-the-latest-drivers-for-epson-wf-7720-printers-a-guide-for-windows-users/"><u>Installing the Latest Drivers for Epson WF-7720 Printers: A Guide for Windows Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-remove-unwanted-post-comments/"><u>Mastering Facebook: Remove Unwanted Post Comments</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaversescape-vs-vrworld-6-key-areas-of-divergence-unveiled/"><u>Metaversescape vs VRworld: 6 Key Areas of Divergence Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/monitor-fading-image-captures-facebook-messaging-alerts/"><u>Monitor Fading Image Captures: Facebook Messaging Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-revolution-facebook-unveils-end-to-end-encryption-for-direct-and-call-messages/"><u>Privacy Revolution: Facebook Unveils End-to-End Encryption for Direct and Call Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-timing-for-rebranding-your-fb-persona/"><u>Strategic Timing for Rebranding Your Fb Persona</u></a></li>
+<li><a href="https://facebook.techidaily.com/synchronizing-your-social-voice-across-diverse-fb-communities/"><u>Synchronizing Your Social Voice Across Diverse FB Communities</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/urban-and-rural-carry-capabilities-top-10-drones-for-2024/"><u>Urban and Rural Carry Capabilities Top 10 Drones for 2024</u></a></li>
+</ul></div>
 

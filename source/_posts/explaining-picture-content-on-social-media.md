@@ -1,7 +1,7 @@
 ---
 title: Explaining Picture Content on Social Media
-date: 2024-09-10T14:50:11.004Z
-updated: 2024-09-11T14:50:11.004Z
+date: 2024-11-05T18:18:11.193Z
+updated: 2024-11-07T11:41:56.193Z
 tags:
   - facebook
 categories:
@@ -35,55 +35,27 @@ thumbnail: https://thmb.techidaily.com/dc5fff1a9acb5e2e1b1bb4c72b06c12c5151a76a3
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### How to Add Alt Text to Images on the Facebook App
 
 ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
-![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
 
 Close
 
@@ -98,23 +70,16 @@ Here’s how you add alt text to images while uploading them:
 
  There you have it. Your photos will now upload with your desired alt text.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### How to Add Alt Text to Facebook Images on the Web
 
 ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Here’s how to add alt text to your photos on Facebook's web browser.
 
@@ -128,41 +93,20 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to Add Alt Text to Facebook Photos You've Already Uploaded
 
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
-
-
-
+![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
 
 Close
 
@@ -183,14 +127,11 @@ Close
 
  It’s easy enough to add alternative text to images, both new and old, using the Facebook app or web version. So, the next time you upload a photo to Facebook, consider how everyone can best appreciate it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -199,4 +140,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-express-yourself-accessibility-available-for-free/"><u>[New] 2024 Approved Express Yourself, Accessibility Available for Free</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-full-disclosure-inside-djis-next-gen-drone-inspire-2/"><u>[New] Full Disclosure Inside DJI's Next Gen Drone - Inspire 2</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-future-of-display-technology-with-eizos-high-res-monitor/"><u>[New] The Future of Display Technology with EIZO's High-Res Monitor</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-top-video-watch-counts-youtubes-historical-list/"><u>[Updated] In 2024, Top Video Watch Counts YouTube's Historical List</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reputation-at-risk-amidst-public-skepticism-of-big-tech/"><u>Facebook's Reputation at Risk Amidst Public Skepticism of Big Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/facial-data-deletion-potential-threat-to-facebooks-user-security/"><u>Facial Data Deletion – Potential Threat to Facebook's User Security?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-flipping-order-inverting-the-flow-of-your-youtube-watch-list/"><u>In 2024, Flipping Order Inverting the Flow of Your YouTube Watch List</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-or-out-assessing-facebooks-expat-group-dynamics/"><u>Inside or Out: Assessing Facebook’s Expat Group Dynamics</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-for-career-enhancement/"><u>Leveraging Facebook for Career Enhancement</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-daring-maneuvers-in-europe-could-rename-the-tech-titans-landscape/"><u>Meta’s Daring Maneuvers in Europe Could Rename the Tech Titans Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-prioritized-the-iphone-trend-shift/"><u>Privacy Prioritized: The iPhone Trend Shift</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/safeguarding-sensitive-info-best-practices-for-using-chatgpt-in-professional-settings/"><u>Safeguarding Sensitive Info: Best Practices for Using ChatGPT in Professional Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryls-blueprint-for-success-in-social-networking/"><u>Sheryl's Blueprint for Success in Social Networking</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ified-video-transferring-techniques-for-youtube-enthusiasts-for-2024/"><u>Simplified Video Transferring Techniques for YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-18-quick-tips-and-tricks-for-mastering-the-ios-shortcuts-app/"><u>Top 18 Quick Tips & Tricks for Mastering the iOS Shortcuts App</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-privacy-policy-for-downloads/"><u>Understanding Facebook's Privacy Policy for Downloads</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unleash-potential-strategies-for-skyrocketing-your-fb-profile-status/"><u>Unleash Potential Strategies for Skyrocketing Your FB Profile Status</u></a></li>
+</ul></div>
 

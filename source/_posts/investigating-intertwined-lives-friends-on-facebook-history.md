@@ -1,7 +1,7 @@
 ---
 title: "Investigating Intertwined Lives: Friends on Facebook History"
-date: 2024-09-05T09:32:21.718Z
-updated: 2024-09-06T09:32:21.718Z
+date: 2024-11-03T21:27:19.177Z
+updated: 2024-11-07T00:01:21.954Z
 tags:
   - facebook
 categories:
@@ -13,25 +13,20 @@ keywords: Facebook Friendship Study,Online Social Networks,Digital Life Historie
 thumbnail: https://thmb.techidaily.com/fd52a4ddb4c67fef5b4a68a7a51c8e47e5f13f4d158884cb761f8f838fb72e26.jpeg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Investigating Intertwined Lives: Friends on Facebook History
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Quick Links
 
 * [How to See Your Friendship History on Facebook](#how-to-see-your-friendship-history-on-facebook)
 * [Can You See the Friendship Between Any Two People on Facebook?](#can-you-see-the-friendship-between-any-two-people-on-facebook)
 * [Is There a Privacy Risk to Viewing Your Facebook Friendships?](#is-there-a-privacy-risk-to-viewing-your-facebook-friendships)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -42,6 +37,13 @@ thumbnail: https://thmb.techidaily.com/fd52a4ddb4c67fef5b4a68a7a51c8e47e5f13f4d1
  Did you know that a single button or URL lets you see your entire Facebook history with anyone you are friends with? You can see your interactions from when you first became friends, your shared interests, and more.
 
  Here's all you need to know about accessing your friendship history on Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to See Your Friendship History on Facebook
 
@@ -56,18 +58,20 @@ thumbnail: https://thmb.techidaily.com/fd52a4ddb4c67fef5b4a68a7a51c8e47e5f13f4d1
 ![Facebook Profile Page in App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-profile-page-in-app.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![Manage Friend Menu on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/manage-friend-menu-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Facebook Friendship history Page on App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page-on-app.jpg)
 
@@ -84,20 +88,8 @@ Close
 
 ![Facebook Friendship Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Remember that you can only use this tool with your current Facebook friends, not profiles you used to be friends with or profiles you never friended. Once you become friends on Facebook, the URL will work as long as you stay friends on the site.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Can You See the Friendship Between Any Two People on Facebook?
 
  It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
@@ -106,12 +98,6 @@ Close
 
  You can also see the friendship history between your account and memorialized accounts on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Is There a Privacy Risk to Viewing Your Facebook Friendships?
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
@@ -120,14 +106,11 @@ Close
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -136,4 +119,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-instagram-experience-adding-vimeo-videos/"><u>[Updated] 2024 Approved The Instagram Experience Adding Vimeo Videos</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-exploring-the-best-free-and-paid-videomosaic-apps-for-android-enthusiasts-for-2024/"><u>[Updated] Exploring the Best Free & Paid Videomosaic Apps for Android Enthusiasts for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-learn-to-record-and-save-videos-from-webcam-for-2024/"><u>[Updated] Learn to Record and Save Videos From Webcam for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-perfecting-tiktok-videos-efficient-techniques-for-numerical-edits/"><u>[Updated] Perfecting TikTok Videos Efficient Techniques for Numerical Edits</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-text-with-pics-facebooks-role-in-whatsapp-talks/"><u>Enhancing Text with Pics: Facebook's Role in WhatsApp Talks</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-xiaomi-redmi-note-12t-pro-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Xiaomi Redmi Note 12T Pro to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-x7b-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor X7b to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unveiling-carryminatis-channel-economics-ajey/"><u>In 2024, Unveiling CarryMinati's Channel Economics (Ajey)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-the-art-of-setting-up-and-evaluating-facebooks-in-stream-ads/"><u>Mastering the Art of Setting Up & Evaluating Facebook's In-Stream Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/promoting-knowledge-in-social-media-facebooks-next-step/"><u>Promoting Knowledge in Social Media: Facebook's Next Step</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-presence-top-secure-practices-for-facebook-users/"><u>Protect Your Presence: Top Secure Practices for Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-mastery-how-to-disconnect-users-from-fb/"><u>Social Media Mastery: How to Disconnect Users From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-planning-for-effective-social-media-posts-using-ripl/"><u>Strategic Planning for Effective Social Media Posts Using Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-free-transformation-why-you-should-abandon-facebooks-online-world/"><u>Tech-Free Transformation: Why You Should Abandon Facebook's Online World</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-effect-of-sheryl-sandberg-on-tech-giants/"><u>The Effect of Sheryl Sandberg on Tech Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/weighing-in-on-social-media-planning-with-facebook/"><u>Weighing In on Social Media Planning with Facebook</u></a></li>
+</ul></div>
 

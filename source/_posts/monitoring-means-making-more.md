@@ -1,7 +1,7 @@
 ---
 title: Monitoring Means Making More
-date: 2024-09-10T14:50:09.106Z
-updated: 2024-09-11T14:50:09.106Z
+date: 2024-10-31T09:38:07.578Z
+updated: 2024-11-07T10:00:20.600Z
 tags:
   - facebook
 categories:
@@ -23,20 +23,6 @@ thumbnail: https://thmb.techidaily.com/606be4e6c5a29affde6b0062eb01d7884930a95dd
 
 ![Surveillance Cameras](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/Surveillance-Cameras.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Coined by Harvard Professor Shoshana Zuboff, surveillance capitalism is an economic system centered around the commodification of personal data with a core purpose of making profit.
 
  In theory, surveillance capitalism helps businesses create better products, hold efficient inventory, and serve customers exactly what they need as soon as possible. By accurately pinpointing or swaying supply and demand, surveillance capitalism opens up a world of endless convenience.
@@ -45,26 +31,6 @@ thumbnail: https://thmb.techidaily.com/606be4e6c5a29affde6b0062eb01d7884930a95dd
 
  It's important to understand that while surveillance capitalism has its advantages, it essentially thrives in an environment where human beings are not believed to have intrinsic value. In layman's terms, it creates a system wherein a person's value is directly equated to their expected profitability.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How Does Surveillance Capitalism Work?
 
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
@@ -72,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/606be4e6c5a29affde6b0062eb01d7884930a95dd
 ### Granular Data Gathering
 
 ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  For surveillance capitalism to work, its primary well of power lies in its ability to gather data as granular as possible.
 
@@ -85,19 +58,12 @@ thumbnail: https://thmb.techidaily.com/606be4e6c5a29affde6b0062eb01d7884930a95dd
 
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
@@ -113,37 +79,9 @@ thumbnail: https://thmb.techidaily.com/606be4e6c5a29affde6b0062eb01d7884930a95dd
 
  For this reason, social media becomes the perfect channel to market products and services. It sells the idea that you should always strive to be better, but the only way that you can do so is by adding to your cart, go on vacations that you can't really afford, or living someone else's life highlights.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Ease of Transactions
 
 ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  At first glance, we seem to be living in an ideal future. A decade ago, the instant nature of many online transactions such as the normalization of fast fashion, seamless checkout processes, and next day delivery options would have just been a dream. However, no one could have known the negative impacts it would have on our society as a whole.
 
@@ -153,25 +91,24 @@ thumbnail: https://thmb.techidaily.com/606be4e6c5a29affde6b0062eb01d7884930a95dd
 
 ![Amazon echo speaker beside a TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/rsz_loewe-technology-skqnm8v6dok-unsplash-1.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  In fact, a prime example of surveillance capitalism-driven conspicuous consumption is no other the the world's largest retailer, Amazon. With a[49.1 percent](https://techcrunch.com/2018/07/13/amazons-share-of-the-us-e-commerce-market-is-now-49-or-5-of-all-retail-spend/) ecommerce market share in the US alone, Amazon has transitioned from being an online marketplace to developing smart home products such as wandering smart speakers, security robots, home thermostats, and so on.
 
  With an unprecedented amount of data at their fingertips, Amazon has billions of items they push towards their consumers at exactly the right moment. Aside from this, Amazon is rife with[human rights abuses in its supply chain](https://www.oxfamamerica.org/press/oxfam-urges-amazon-address-human-rights-risks-its-supply-chain-and-protect-its-workers/) , known to[destroy of millions in unsold stock](https://www.itv.com/news/2021-06-21/amazon-destroying-millions-of-items-of-unsold-stock-in-one-of-its-uk-warehouses-every-year-itv-news-investigation-finds) , and allegedly[steals product data](https://www.wsj.com/articles/amazon-scooped-up-data-from-its-own-sellers-to-launch-competing-products-11587650015) from small businesses and independent sellers.
 
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### The Commodification of Personal Experiences
 
@@ -183,19 +120,12 @@ thumbnail: https://thmb.techidaily.com/606be4e6c5a29affde6b0062eb01d7884930a95dd
 
  Nowadays, the pressure to commodify ourselves can be seen in the obsession with influencer culture, plastic surgery, and going viral. Instead of rejecting this culture of commodification, we have actually embraced it, encouraged it, and accepted it as a part of the new normal.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Running Out of Ways to Opt Out
 
@@ -209,14 +139,11 @@ In fact, we are already running out of ways to opt out.
 
  Thankfully, there are still some things you can do to make it harder for them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -225,4 +152,26 @@ In fact, we are already running out of ways to opt out.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-how-to-record-overwatch/"><u>[Updated] In 2024, How to Record Overwatch</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-premier-editing-software-for-vimeo-streams/"><u>[Updated] In 2024, Premier Editing Software for Vimeo Streams</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-step-by-step-enhancing-clarity-in-google-meet-calls/"><u>[Updated] Step-by-Step Enhancing Clarity in Google Meet Calls</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-ultimate-how-to-for-your-youtube-music-collection/"><u>2024 Approved The Ultimate How-To for Your YouTube Music Collection</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210812035-9798987370315-blossoming-beyond-the-desert/"><u>Blossoming Beyond the Desert | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-fb-profile-to-top-professionals/"><u>Elevating Your FB Profile to Top Professionals</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-your-social-storytelling-sharing-high-definition-content/"><u>Enhance Your Social Storytelling: Sharing High-Definition Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-identify-someone-using-your-tech-gear/"><u>How to Identify Someone Using Your Tech Gear?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-from-iphone-14-plus-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 From iPhone 14 Plus</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-recording-success-with-top-software-choices/"><u>In 2024, Recording Success with Top Software Choices</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-substitute-cinema-classics-ranked-7-1/"><u>In 2024, Substitute Cinema Classics, Ranked #7-1</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-metaais-abilities-in-dialogue-systems/"><u>Navigating MetaAI's Abilities in Dialogue Systems</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Realme Note 50? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/solving-blurry-footage-on-online-video-platforms/"><u>Solving Blurry Footage on Online Video Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-techniques-for-curbing-excessive-fb-interactions/"><u>Tailored Techniques for Curbing Excessive FB Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-time-off-proficiently-using-facebooks-reminders/"><u>Taking Time Off Proficiently Using Facebook's Reminders</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-erasing-your-facebook-footprint/"><u>The Ultimate Guide to Erasing Your Facebook Footprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-9-advantages-of-engaging-on-social-platforms/"><u>Top 9 Advantages of Engaging on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-selects-me-for-these-specific-fb-advertisements/"><u>What Selects Me for These Specific FB Advertisements?</u></a></li>
+</ul></div>
 

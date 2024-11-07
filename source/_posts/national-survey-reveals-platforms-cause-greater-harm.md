@@ -1,7 +1,7 @@
 ---
 title: "National Survey Reveals: Platforms Cause Greater Harm"
-date: 2024-09-10T14:50:09.935Z
-updated: 2024-09-11T14:50:09.935Z
+date: 2024-11-02T17:12:45.080Z
+updated: 2024-11-07T07:13:05.402Z
 tags:
   - facebook
 categories:
@@ -19,39 +19,11 @@ thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a4
 
  Social media may have more cons than pros though, and folks are still using it despite that possibility.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## US Adults Use Social Media Despite Believing It Divides People
 
  A nationwide poll conducted by[NBC News](https://www.nbcnews.com/politics/meet-the-press/poll-nearly-two-thirds-americans-say-social-media-platforms-are-n1266773) shows that most Americans use social media at every day, despite their belief that such platforms (e.g. Facebook, Twitter, TikTok, etc.) do more to divide people than unify them.
 
 ![A bunch of social media apps on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/social-media-apps-on-phone.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  66 percent of adults in the US use social media once a day or more, leaving 33 percent that do not (virtually unchanged from the results of the past two years).
 
@@ -67,19 +39,12 @@ thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a4
 
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How Does Social Media Affect Your Life?
 
@@ -91,41 +56,27 @@ thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a4
 
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Help Make Social Media Great Again
 
@@ -135,14 +86,11 @@ thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a4
 
  You can view the documentation for the NBC News poll on [DocumentCloud](https://www.documentcloud.org/documents/20701409-210098-nbc-news-april-poll) . Most of[the results](https://www.nbcnews.com/politics/meet-the-press/poll-100-days-biden-s-approval-remains-strong-can-honeymoon-n1265199) were released in late April, as respondents were asked for their opinion on the performance of US president Joe Biden.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -151,4 +99,26 @@ thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/not-so-goodbye-exploring-reasons-behind-facebooks-survival/"><u>'Not So Goodbye': Exploring Reasons Behind Facebook’s Survival</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-ephemeral-clip-creator/"><u>[New] 2024 Approved Ephemeral Clip Creator</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-unrivaled-7-best-virtual-meetings-security-centric-ranking/"><u>[New] 2024 Approved Unrivaled 7 Best Virtual Meetings Security-Centric Ranking</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-podcast-basics-crafting-your-first-rss-feed/"><u>[Updated] 2024 Approved Podcast Basics Crafting Your First RSS Feed</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-revolutionize-your-mac-streaming-experience/"><u>2024 Approved Revolutionize Your Mac Streaming Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-cost-effectiveness-of-the-topmate-c302-chilling-station-for-pcs/"><u>Exploring the Cost-Effectiveness of the TopMate C302 Chilling Station for PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-personalizes-mobile-transactions-eclipsing-traditional-app-store-practices/"><u>Facebook Personalizes Mobile Transactions, Eclipsing Traditional App Store Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/highlighted-happenings-bold-italic-for-impactful-talk/"><u>Highlighted Happenings: Bold, Italic for Impactful Talk</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-beginners-manual-for-phantoms-reverse-footage/"><u>In 2024, A Beginner's Manual for Phantom's Reverse Footage</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-auto-lock-greyed-out-on-apple-iphone-8-drfone-by-drfone-ios/"><u>In 2024, How To Fix Auto Lock Greyed Out on Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-tips-for-safeguarding-your-youtube-presence/"><u>In 2024, Tips for Safeguarding Your YouTube Presence</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/real-time-broadcasting-softwares-edge-over-gear/"><u>Real-Time Broadcasting Software's Edge Over Gear?</u></a></li>
+<li><a href="https://facebook.techidaily.com/revealing-the-hidden-loss-of-facebook-users/"><u>Revealing the Hidden Loss of Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sharing-made-simple-integrating-fb-content-across-3-services/"><u>Social Sharing Made Simple: Integrating FB Content Across 3 Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-use-of-facebooks-daily-alert-for-rest-breaks/"><u>Strategic Use of Facebook's Daily Alert for Rest Breaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-pattern-4-signs-that-point-to-lesser-usage-on-fb/"><u>Understanding the Pattern: 4 Signs That Point to Lesser Usage on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-friend-secrets-with-messengers-polling-tools/"><u>Unlock Friend Secrets with Messenger's Polling Tools</u></a></li>
+<li><a href="https://driver-download.techidaily.com/upgrade-your-printer-experience-with-the-newest-epson-wf-2630-driver-suite-supports-win-7-81-and-10/"><u>Upgrade Your Printer Experience with the Newest Epson WF-2630 Driver Suite - Supports Win 7, 8.1 & 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-did-i-transition-from-audience-to-participant-online/"><u>When Did I Transition From Audience to Participant Online?</u></a></li>
+</ul></div>
 

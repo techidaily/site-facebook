@@ -1,7 +1,7 @@
 ---
 title: The New Era of Community Management Unveiled by Facebook
-date: 2024-10-27T16:21:10.406Z
-updated: 2024-11-01T17:29:35.915Z
+date: 2024-11-03T03:08:13.910Z
+updated: 2024-11-06T21:23:37.764Z
 tags:
   - facebook
 categories:
@@ -33,16 +33,10 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -54,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -67,16 +61,10 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -100,20 +88,19 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-global-collaboration-easeus-expertise/"><u>[New] Global Collaboration EaseUS Expertise</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-guide-to-revamping-igtv-title-and-description-texts/"><u>[New] In 2024, Guide to Revamping IGTV Title & Description Texts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-guide-to-youtube-adsense-optimization/"><u>[Updated] In 2024, The Ultimate Guide to YouTube AdSense Optimization</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-enterprise-strategies-with-top-5-platforms/"><u>Elevating Enterprise Strategies with Top 5 Platforms</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/essential-web-based-applications-to-boost-your-prompt-crafting-abilities/"><u>Essential Web-Based Applications to Boost Your Prompt Crafting Abilities</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-samsung-galaxy-m54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Samsung Galaxy M54 5G | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-erase-an-iphone-11-without-apple-id-by-drfone-ios/"><u>How to Erase an iPhone 11 without Apple ID?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Motorola Edge 40 Neo | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-and-user-feedback-on-the-maxoak-battery-pack-185-wh50000-mah/"><u>In-Depth Analysis and User Feedback on the MaxOak Battery Pack (185 Wh/50,000 mAh)</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimized-audience-engagement-uploading-instagram-reels-to-facebook/"><u>Optimized Audience Engagement: Uploading Instagram Reels to Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/quietude-in-social-sharing-erasing-feedback-on-facebook/"><u>Quietude in Social Sharing: Erasing Feedback on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategic-timeline-content-for-lasting-impressions/"><u>Strategic Timeline Content for Lasting Impressions</u></a></li>
-<li><a href="https://facebook.techidaily.com/unseen-sharing-features-how-to-access-privately-shared-fb-vids/"><u>Unseen Sharing Features: How to Access Privately Shared FB Vids</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-void-key-apps-cease-to-function/"><u>Virtual Void: Key Apps Cease to Function</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-ultimate-screenshot-and-recorder-windows-10-for-2024/"><u>[New] Ultimate Screenshot & Recorder, Windows 10 for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-ice-cream-capture-technology-reviewed-deeply-for-2024/"><u>[Updated] Ice Cream Capture Technology Reviewed Deeply for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-top-online-spaces-for-youtube-traffic-increase/"><u>2024 Approved Top Online Spaces for YouTube Traffic Increase</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-nubia-red-magic-8s-proplus-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Nubia Red Magic 8S Pro+</u></a></li>
+<li><a href="https://facebook.techidaily.com/acquiring-personal-media-from-friends-social-networks-safely/"><u>Acquiring Personal Media From Friends' Social Networks Safely</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722975497375-easy-installation-get-your-latest-drivers-for-hp-devices-now/"><u>Easy Installation: Get Your Latest Drivers for HP Devices Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-unsolicited-friend-recommendations-on-fb/"><u>Halt Unsolicited Friend Recommendations on FB</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/harness-the-power-of-automated-marketing-with-cookiebot-technology/"><u>Harness the Power of Automated Marketing with Cookiebot Technology</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-the-art-of-interaction-in-online-google-meet-spaces/"><u>In 2024, The Art of Interaction in Online Google Meet Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-nuggets-unveiling-this-years-prime-social-media-gems/"><u>Network Nuggets: Unveiling This Year's Prime Social Media Gems</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-unexpected-boom-following-fb-shutdown-hours/"><u>Telegram's Unexpected Boom Following FB Shutdown Hours</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-best-6-chatgpt-integrated-plugins-to-supercharge-your-vs-code-workflow/"><u>The Best 6 ChatGPT Integrated Plugins to Supercharge Your VS Code Workflow</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-enhanced-privacy-settings-on-facebooks-redesigned-interface/"><u>Unlocking Enhanced Privacy Settings on Facebook’s Redesigned Interface</u></a></li>
+<li><a href="https://techidaily.com/why-are-your-photos-lost-from-iphone-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Why are your photos lost from iPhone? | Stellar</u></a></li>
 </ul></div>
 

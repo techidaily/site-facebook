@@ -1,7 +1,7 @@
 ---
 title: "Phones in Pursuit: Predictive Algos for Advertising?"
-date: 2024-10-15T23:34:29.687Z
-updated: 2024-10-20T22:46:32.397Z
+date: 2024-11-05T23:16:17.883Z
+updated: 2024-11-07T07:27:18.019Z
 tags:
   - facebook
 categories:
@@ -32,13 +32,6 @@ What is going on?
 
  Let's consider the evidence and try to work out. Is your phone listening to you for ads, or is it simply a good, old-fashioned, coincidence?
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Does Your Phone Listen to You for Adverts?
 
  Various users across the web have claimed that something fishy is going on with their phones.
@@ -63,6 +56,13 @@ What is going on?
 
  You'll find many similar stories on Reddit and beyond. Check this account of[a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Is My Smartphone Really Listening to Me for Ads?
 
  Since this happened, Google no longer offers this sort of recommendation. However, the possibility of technology being used to target customers based on their conversations is concerning. Often, the data recorded can be used to identify you.
@@ -75,11 +75,25 @@ What is going on?
 
 ![Is your phone listening to you and serving adverts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/12/muo-security-phone-listening-advert-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
 
  Consequently, ensuring your[Android permissions don't give apps access](https://www.makeuseof.com/tag/what-are-android-permissions-why-should-you-care/) to your phone's mic is a good idea. Does Google listen to your conversations for ads? Probably not, but if you’re concerned you should “de-Google” your life entirely.
 
  It does**seem** as though this is something more than coincidence. After all, proving that smartphone mics are collecting data to target content to users is tricky. But as we know that phones and digital assistants are listening, is it really a surprise that companies like Google, Amazon, and Facebook should be interested in what you're saying?
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can You Prove If an App Is Listening to You?
 
@@ -91,28 +105,15 @@ What is going on?
 
 ![Woman using a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/muo-security-phone-listening-handset.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
 
  Meanwhile, data protection expert Mariano delli Santi[told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Do Phones Listen to You? Companies Say “No”
@@ -138,13 +139,6 @@ What is going on?
 * Botulism
 
  Surprisingly, not a single topic appeared as adverts, neither as pop-ups nor as inbox spam. There was no Google News feed item, and nothing on any linked devices.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## So, Why Do You Get Ads for Things You Talk About?
 
@@ -173,22 +167,19 @@ What is going on?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-perfect-synergy-discover-5-superior-webcams-with-sound-tech/"><u>[New] In 2024, Perfect Synergy Discover 5 Superior Webcams with Sound Tech</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-heartstrings-plucked-essential-vocal-masterpieces-for-a-kiss/"><u>[Updated] 2024 Approved Heartstrings Plucked Essential Vocal Masterpieces for a Kiss</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-audio-alchemy-transforming-instagram-videos-with-sound-for-2024/"><u>[Updated] Audio Alchemy Transforming Instagram Videos with Sound for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-budget-friendly-miniature-aerials-review/"><u>[Updated] In 2024, Budget-Friendly Miniature Aerials Review</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-iphones-and-gifs-perfecting-your-visual-playlist/"><u>2024 Approved IPhones & GIFs Perfecting Your Visual Playlist</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-synthesize-sounds-and-images-in-ppts/"><u>2024 Approved Synthesize Sounds and Images in PPTS</u></a></li>
-<li><a href="https://facebook.techidaily.com/easy-feast-of-images-building-beautiful-collages-in-minutes/"><u>Easy Feast of Images: Building Beautiful Collages in Minutes</u></a></li>
-<li><a href="https://facebook.techidaily.com/evade-conversation-trails-with-facebooks-feature/"><u>Evade Conversation Trails with Facebook's Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-and-instagram-trump-returns/"><u>Facebook and Instagram, Trump Returns?</u></a></li>
-<li><a href="https://facebook.techidaily.com/framework-for-alerting-misuse-of-facebook-by-youngsters/"><u>Framework for Alerting Misuse of Facebook by Youngsters</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-and-why-telegram-benefited-when-facebook-went-offline-for-six-hours/"><u>How and Why Telegram Benefited When Facebook Went Offline for Six Hours</u></a></li>
-<li><a href="https://facebook.techidaily.com/identity-elite-vs-the-titans-of-twitter-blue-and-meta-gold/"><u>Identity Elite: Vs. The Titans of Twitter Blue & Meta Gold</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Honor Magic V2? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Lava Blaze Curve 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719578416188-jumpstart-your-slovak-journey-with-daily-micro-lessons/"><u>Jumpstart Your Slovak Journey with Daily Micro-Lessons</u></a></li>
-<li><a href="https://facebook.techidaily.com/rank-the-networks-that-keep-us-connected/"><u>Rank the Networks That Keep Us Connected</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-common-marketsploits-on-facebook-preventative-measures/"><u>Unmasking Common Marketsploits on Facebook: Preventative Measures</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/reating-captivating-thumbnails-for-youtube/"><u>[New] Creating Captivating Thumbnails for YouTube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-cutting-edge-tools-for-digital-video-capture-for-2024/"><u>[New] Cutting-Edge Tools for Digital Video Capture for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-link-films-for-organized-youtube-display-for-2024/"><u>[New] Link Films for Organized YouTube Display for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-streamlining-video-editing-convert-avis-to-gifs-on-mac-and-pc-with-filmora/"><u>[New] Streamlining Video Editing Convert AVIs to GIFs on Mac and PC with Filmora</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/audio-troubleshooting-tips-why-wont-my-laptop-speakers-work-and-how-to-solve-it/"><u>Audio Troubleshooting Tips: Why Won't My Laptop Speakers Work and How to Solve It?</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enhancing-conversion-rates-through-smart-cookies-solutions/"><u>Cookiebot: Enhancing Conversion Rates Through Smart Cookies Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-enhanced-commitment-to-user-privacy/"><u>Decoding Meta’s Enhanced Commitment to User Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/evasive-internet-use-top-3-places-without-facebook/"><u>Evasive Internet Use: Top 3 Places Without Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/frontiersmen-of-tech-clashes-the-elite-six/"><u>Frontiersmen of Tech Clashes: The Elite Six</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-stop-helldivers-2-from-crashing-on-your-computer-tested-solutions/"><u>How to Stop Helldivers 2 From Crashing on Your Computer: Tested Solutions</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-virtual-reality-controller-guide/"><u>In 2024, Ultimate Virtual Reality Controller Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-online-presence-effective-follow-and-unfollow-techniques-on-facebook/"><u>Tailoring Your Online Presence: Effective Follow & Unfollow Techniques on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-6-benefits-cutting-ties-with-facebook-for-a-better-life/"><u>Top 6 Benefits: Cutting Ties with Facebook for a Better Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-listen-to-spotify-on-a-miniplayer-in-the-facebook-app/"><u>You Can Now Listen to Spotify on a Miniplayer in the Facebook App</u></a></li>
 </ul></div>
 

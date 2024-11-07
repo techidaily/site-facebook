@@ -1,7 +1,7 @@
 ---
 title: How To Navigate The Complex World of FB Friendship Changes
-date: 2024-09-10T14:50:09.638Z
-updated: 2024-09-11T14:50:09.638Z
+date: 2024-11-04T22:57:36.064Z
+updated: 2024-11-06T23:28:42.823Z
 tags:
   - facebook
 categories:
@@ -46,6 +46,13 @@ There are two reasons to use the follow feature.
 
 ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You automatically follow all your friends. Anyone else, you need to follow manually.
 
  To follow someone, go to their profile page and click on the three dots below the lower right-hand corner of the person's cover photo, then hit**Follow** .
@@ -58,20 +65,6 @@ There are two reasons to use the follow feature.
 
 ![facebook unfollow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-unfollow.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
 
 ## How Do You See Who You're Following?
@@ -80,37 +73,23 @@ There are two reasons to use the follow feature.
 
  On the next screen, you'll see a new set of tabs. Choose**Following** . If you don't see the option, it means you're not following anyone who isn't also a friend.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How Do You Let People Follow You?
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  So, following other people is straightforward enough, but how do you let other people follow your profile and posts?
 
@@ -122,43 +101,16 @@ This same page contains three other settings you need to be aware of:
 * **Public Post Notifications:** Do you wish to receive notifications for actions taken by individuals who aren't your friend?
 * **Public Profile Info:** Some of your profile---such as your profile picture, cover image, and short bio---is always public. This setting restricts who can comment on it.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## What Do Your Facebook Followers See?
 
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Followers can see any of your public content. Remember, this doesn't only refer to text-based posts, you can also choose to make pictures, albums, videos, and even your likes public knowledge.
 
@@ -170,19 +122,12 @@ This same page contains three other settings you need to be aware of:
 
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How to See Who Follows You on Facebook
 
@@ -206,40 +151,17 @@ This same page contains three other settings you need to be aware of:
 
  If you just want to prevent someone from seeing your public content, choose**Block** . The person will not be able to see your timeline, tag you in posts or photos, invite you to groups, start a chat conversation with you, or add you as a friend. If the person has been abusive, choose**Report** . You can either report the person's whole profile or one individual post/comment.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Should You Use the Follow Feature on Facebook?
 
  Hopefully, this article has given you a better understanding of the Facebook follow feature. Whether you decide to use the follow feature should depend on how you use Facebook.
 
  If you're the type of person who has a large Facebook friends list while simultaneously liking endless brands and pages, you might find it useful. However, if you've decided to start deleting lots of Facebook friends and avoid liking too much content, you probably won't see any benefit to it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -248,4 +170,22 @@ This same page contains three other settings you need to be aware of:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-androids-screen-capture-4-easy-techniques-for-2024/"><u>[New] Android's Screen Capture 4 Easy Techniques for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-depth-tutorial-for-immaculate-3d-shapes-perfect-circles-spheres/"><u>[New] In-Depth Tutorial for Immaculate 3D Shapes Perfect Circles, Spheres</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-top-ten-video-cards-selection-guide-for-youtube-aficionados/"><u>[Updated] Top-Ten Video Cards Selection Guide for YouTube Aficionados</u></a></li>
+<li><a href="https://article-helps.techidaily.com/advanced-gadget-guidance-from-toms-hardware-experts/"><u>Advanced Gadget Guidance From Tom's Hardware Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-tv-viewing-with-android-devices/"><u>Enhancing TV Viewing with Android Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-subscription-model-disrupts-tech-norm-surpassing-apples-app-store/"><u>Facebook’s Subscription Model Disrupts Tech Norm, Surpassing Apple's App Store</u></a></li>
+<li><a href="https://facebook.techidaily.com/majority-doubts-large-firms-worries-stem-from-facebook/"><u>Majority Doubts Large Firms, Worries Stem From Facebook</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/managing-several-gmail-profiles-steps-for-linking-multiple-google-logins-to-your-android-device/"><u>Managing Several Gmail Profiles: Steps for Linking Multiple Google Logins to Your Android Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/mingling-realities-understanding-the-metaverse-essence/"><u>Mingling Realities: Understanding the Metaverse Essence</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nw-a35-review-music-enthusiasts-gem/"><u>NW-A35 Review: Music Enthusiast's Gem</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/streamline-creative-filmmaking-with-instagrams-background-swap/"><u>Streamline Creative Filmmaking with Instagram's Background Swap</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-realme-12-proplus-5g-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Realme 12 Pro+ 5G Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-full-power-facebooks-rooting-of-oculus-go-explained/"><u>Unlocking Full Power: Facebook's Rooting of Oculus Go Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-insights-of-facebooks-local-communities/"><u>Unveiling the Insights of Facebook's Local Communities</u></a></li>
+<li><a href="https://win-blog.techidaily.com/updated-solution-correcting-microsoft-outlooks-connection-problems/"><u>Updated Solution: Correcting Microsoft Outlook's Connection Problems</u></a></li>
+</ul></div>
 

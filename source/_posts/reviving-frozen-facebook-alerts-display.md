@@ -1,7 +1,7 @@
 ---
 title: Reviving Frozen Facebook Alerts Display
-date: 2024-10-26T16:19:28.188Z
-updated: 2024-11-01T16:49:53.702Z
+date: 2024-11-01T05:23:38.381Z
+updated: 2024-11-07T06:25:46.708Z
 tags:
   - facebook
 categories:
@@ -56,19 +56,6 @@ Close
 
 ![iPhone Do Not Disturb mode](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-Do-Not-Disturb-mode.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
 
  On Android, swipe down your screen from the top and tap to disable**Flight / Airplane** ,**Focus** , and**Do Not Disturb** modes. You'll know they are enabled if colored.
@@ -92,13 +79,6 @@ Close
 ![Facebook notifications in iPhone settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Faacebook-notifications-in-iPhone-settings.JPG)
 
 ![Allow notifications for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Allow-notifications-for-Facebook.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -131,16 +111,29 @@ On your iOS device, follow these steps:
 
 ![Facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-menu.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-app-settings.JPG)
 
-![facebook-settings-privacy-section-ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-settings-privacy-section-ios.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![facebook-settings-privacy-section-ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-settings-privacy-section-ios.jpg)
 
 ![Mute push notifications option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Mute-push-notifications-option.JPG)
 
@@ -158,36 +151,22 @@ On Android, follow these steps to enable Facebook notifications:
 
 ![Settings an privacy page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/02-facebook-settings-privacy-page-android.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Notification settings on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/03-facebook-notification-settings-android.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Push notifications enabled on Facebook's Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/04-push-notifications-facebook-android.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
  If you're not receiving Facebook notifications because you've disabled the app from sending them in your phone's Settings app, you'll see a**Turn On Push Notifications** option instead when you tap**Push** . Tap**Turn On Push Notifications,** and on the next page, allow Facebook to send notifications.
 
  The Facebook app will load all the pending alerts as soon as you refresh.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Restart Your Phone
 
@@ -227,6 +206,13 @@ If you have an Android device, follow these steps:
 
 ![Facebook Storage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/facebook-storage.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Clear cache of Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/clear-cache-of-facebook.jpg)
 
 Close
@@ -239,9 +225,23 @@ Close
 
 ![Open Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/open-facebook-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Open Facebook on Android device](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/open-facebook-on-android-device.jpg)
 
 Close
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. Update Your Android or iPhone
 
@@ -251,6 +251,19 @@ Close
 
 ![iPhone software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-software-update.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Update your iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Update-your-iPhone.JPG)
 
 Close
@@ -259,23 +272,16 @@ Close
 
 ![Android Software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/android-software-update.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Tap Download and install](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/tap-download-and-install.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Software is up to date](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/software-is-up-to-date.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -308,22 +314,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-standout-book-trailer-highlights/"><u>[New] 2024 Approved Standout Book Trailer Highlights</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-sync-shutter-speed-blur-artistry-in-photoshop/"><u>[New] Sync Shutter Speed Blur Artistry in Photoshop</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/2-ways-to-monitor-apple-iphone-12-activity-drfone-by-drfone-virtual-ios/"><u>2 Ways to Monitor Apple iPhone 12 Activity | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/movavi-wmaswf/"><u>無綫上免費改變音頻格式：Movavi WMA到SWF的自動轉換工具</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-landscape-of-social-media-connectivity-on-xbox/"><u>Exploring the Landscape of Social Media Connectivity on Xbox</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-huawei-nova-y71-get-deleted-phone-number-back-with-ease-and-safety-by-fonelab-android-recover-contacts/"><u>How to Huawei Nova Y71 Get Deleted Phone Number Back with Ease and Safety</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-challenge-to-facebook-and-instagram-in-europe-on-the-horizon/"><u>Meta's Challenge to Facebook and Instagram in Europe on the Horizon</u></a></li>
-<li><a href="https://facebook.techidaily.com/riding-out-the-tumultuous-times-with-fb/"><u>Riding Out the Tumultuous Times with FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/set-up-alternative-light-for-facebook-appearance/"><u>Set Up Alternative Light for Facebook Appearance</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/smoothly-stitching-images-together-for-2024/"><u>Smoothly Stitching Images Together for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-8-valuable-crowdfire-functions/"><u>The Ultimate Guide: 8 Valuable Crowdfire Functions</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor 70 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/turn-off-tracking-secure-your-digital-self-from-facebook/"><u>Turn Off Tracking: Secure Your Digital Self From Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-apples-rationale-for-metaverse-absence/"><u>Unraveling Apple's Rationale for Metaverse Absence</u></a></li>
-<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-infinix-smart-8-pro-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Infinix Smart 8 Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-amazon-targets-the-stewards-of-millions-in-fb-groups/"><u>Why Amazon Targets the Stewards of Millions in FB Groups</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/wie-spielt-man-dvds-auf-einem-hp-laptop-mit-oder-ohne-integriertes-dvd-player-losungen-fur-sie/"><u>Wie Spielt Man DVDs Auf Einem HP Laptop Mit Oder Ohne Integriertes DVD-Player? Lösungen Für Sie!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-art-of-playlist-construction-on-youtube/"><u>[New] The Art of Playlist Construction on YouTube</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-apples-latest-innovation-are-macbook-air-or-pro-best/"><u>[Updated] 2024 Approved Apple's Latest Innovation Are MacBook Air or Pro Best?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-expertise-in-hdr-perfecting-dynamic-range-in-photoshop-for-2024/"><u>[Updated] Expertise in HDR Perfecting Dynamic Range in Photoshop for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-avoid-breaches-the-pre-upload-guide-to-copyright-on-tiktok/"><u>[Updated] In 2024, Avoid Breaches The Pre-Upload Guide to Copyright on TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-week-without-the-blue-bird/"><u>A Week Without the Blue Bird</u></a></li>
+<li><a href="https://facebook.techidaily.com/distinguishing-profile-names-from-usernames-on-platforms/"><u>Distinguishing Profile Names From Usernames on Platforms</u></a></li>
+<li><a href="https://common-error.techidaily.com/essential-fixes-for-stability-problems-within-black-ops-4-gameplay/"><u>Essential Fixes for Stability Problems Within Black Ops 4 Gameplay</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Motorola Moto G04? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-social-safe-a-quick-checklist-for-9-warning-signs/"><u>Keep Your Social Safe: A Quick Checklist for 9 Warning Signs</u></a></li>
+<li><a href="https://extra-information.techidaily.com/revel-in-the-wonders-of-asmrs-positive-effects/"><u>Revel in the Wonders of ASMR's Positive Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-networkers-shield-against-scams/"><u>The Social Networker’s Shield Against Scams</u></a></li>
 </ul></div>
 

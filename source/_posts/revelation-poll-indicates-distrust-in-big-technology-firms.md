@@ -1,7 +1,7 @@
 ---
 title: "Revelation: Poll Indicates Distrust in Big Technology Firms"
-date: 2024-10-26T16:05:31.865Z
-updated: 2024-11-01T16:24:43.301Z
+date: 2024-11-02T20:18:37.064Z
+updated: 2024-11-07T07:09:22.438Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is the Least Trusted
@@ -54,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Facebook So Distrusted?
@@ -65,16 +65,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
@@ -92,10 +86,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -123,18 +117,18 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-deciding-on-the-best-upgrade-for-your-4k-vision/"><u>[New] 2024 Approved Deciding on the Best Upgrade for Your 4K Vision</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-enlarge-social-media-content-with-televisions-for-2024/"><u>[New] Enlarge Social Media Content with Televisions for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-groundbreenas-choosing-first-time-gamers-editing-apps-for-2024/"><u>[New] Groundbreenas Choosing First-Time Gamers' Editing Apps for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-h1-an-easy-guide-for-how-to-add-photos-on-instagram/"><u>[New] H1 An Easy Guide for How to Add Photos on Instagram</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-step-by-step-wiping-out-youtube-video-downloads/"><u>[New] Step by Step Wiping Out YouTube Video Downloads</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-jaunt-vr-journey-explained-for-2024/"><u>[New] The Jaunt VR Journey Explained for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-fined-by-german-authorities-for-unlawful-whatsapp-data-harvesting/"><u>Facebook Fined by German Authorities for Unlawful WhatsApp Data Harvesting</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-marketing-milestones-5-pioneering-platforms-for-businesses/"><u>Mastering Marketing Milestones: 5 Pioneering Platforms for Businesses</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-approach-to-stopping-private-photos-online/"><u>Metas' Approach to Stopping Private Photos Online</u></a></li>
-<li><a href="https://fox-access.techidaily.com/securely-downloading-vlc-media-player-for-free-on-macos/"><u>Securely Downloading VLC Media Player for Free on macOS</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-great-digital-migration-4-reasons-people-abandon-facebook/"><u>The Great Digital Migration: 4 Reasons People Abandon Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/time-travel-on-social-media-retrieving-old-fb-stories/"><u>Time Travel on Social Media: Retrieving Old FB Stories</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-creativity-how-to-utilize-chatgpt-for-crafting-youtube-video-scripts/"><u>Unlocking Creativity: How to Utilize ChatGPT for Crafting YouTube Video Scripts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-from-space-to-nature-yts-guide-for-dynamic-green-screen-filmmaking/"><u>[New] 2024 Approved From Space to Nature YT's Guide for Dynamic Green Screen Filmmaking</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-navigating-employment-and-video-content-creation/"><u>[New] 2024 Approved Navigating Employment and Video Content Creation</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-top-8-android-multi-user-video-chat-tools/"><u>[New] 2024 Approved Top 8 Android Multi-User Video Chat Tools</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-revolutionizing-video-views-conquering-youtube-millions/"><u>[New] Revolutionizing Video Views, Conquering YouTube Millions</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-skys-eye-insights-overview/"><u>[New] Sky's Eye Insights Overview</u></a></li>
+<li><a href="https://facebook.techidaily.com/clarifying-the-us-and-them-in-social-networking-namespaces/"><u>Clarifying the Us and Them in Social Networking Namespaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-founder-names-goat-as-crypto-pet/"><u>Facebook Founder Names Goat as 'Crypto' Pet!</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-key-privacy-measures-in-adolescent-social-media-use/"><u>Implementing Key Privacy Measures in Adolescent Social Media Use</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harmonizing-photo-and-video-in-one-iphone-session/"><u>In 2024, Harmonizing Photo & Video in One iPhone Session</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-a-great-personality-who-inspires-and-motivates-us/"><u>Johannes Honterus: A Great Personality Who Inspires And Motivates Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/modify-contact-settings-in-facebook-account/"><u>Modify Contact Settings in Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-sea-of-stability-in-crypto-coins/"><u>Navigating the Sea of Stability in Crypto Coins</u></a></li>
+<li><a href="https://facebook.techidaily.com/sayonara-facebook-8-critical-checks-for-a-smooth-unfollow/"><u>Sayonara, Facebook! 8 Critical Checks for a Smooth Unfollow</u></a></li>
 </ul></div>
 

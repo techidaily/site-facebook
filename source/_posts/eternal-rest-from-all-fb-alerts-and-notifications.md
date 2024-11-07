@@ -1,7 +1,7 @@
 ---
 title: Eternal Rest From All FB Alerts and Notifications
-date: 2024-10-29T16:45:49.317Z
-updated: 2024-11-01T16:12:02.160Z
+date: 2024-11-05T09:34:32.042Z
+updated: 2024-11-06T21:34:11.400Z
 tags:
   - facebook
 categories:
@@ -28,18 +28,18 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
 
  Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Less Stress
 
  Work, family time, and financial responsibilities can get so tiresome that people need some time away from everything. In such a scenario, a simple notification with some news or message can ruin your mood.
 
  That’s why people should turn off their notifications every couple of days to give themselves time to relax and refresh for the coming days. Releasing stress away from the screen can have a number of mental health and productivity benefits.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Better Concentration
 
@@ -48,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
  By stopping Facebook notifications on your mobile and desktop, it is possible to concentrate on the task at hand.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Healthy Lifestyle
@@ -61,6 +61,13 @@ thumbnail: https://thmb.techidaily.com/7cbb37a561d23a9200d8d1b515569d43214c3157e
 ### More Confidence
 
  Avoiding social media can improve your confidence if you're prone to[social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Block Facebook Notifications
 
@@ -78,20 +85,13 @@ Users can block notifications from their desktops and mobile devices.
 
 ![What notifications you receive on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/What-notifications-you-receive.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Mute Facebook Push notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Mute-Facebook-Push-notifications.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -110,13 +110,26 @@ Close
 
 ![Go-to-apps-in-mobile-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-apps-in-mobile-settings.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook-app-notification-in-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-app-notification-in-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Turn-off-Facebook-notifications-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-mobile.jpg)
@@ -138,13 +151,6 @@ Close
 3. Select**Settings & Privacy** .  
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
 4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
@@ -182,16 +188,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-ultimate-guide-mastering-color-correction-and-grading/"><u>[New] Ultimate Guide Mastering Color Correction & Grading</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-capture-gifs-like-pro-on-any-mac-for-2024/"><u>[Updated] Capture GIFs Like Pro on Any Mac for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210882842-9781088161166-break-free-daily-revival-prayers-may-towards-national-transformation/"><u>Break-free - Daily Revival Prayers - MAY - Towards NATIONAL TRANSFORMATION | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-ban-rumored-on-fair-ad-posting-accusations/"><u>Facebook Ban Rumored on Fair Ad Posting Accusations</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Xiaomi Redmi A2+ | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-the-facebook-protection-email-from-securityfbcom-real/"><u>Is the Facebook Protection Email From @security@fb.com Real?</u></a></li>
-<li><a href="https://facebook.techidaily.com/personalized-approach-to-limiting-fb-communications/"><u>Personalized Approach to Limiting Fb Communications</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-a-pleasant-digital-landscape-on-facebook/"><u>Securing a Pleasant Digital Landscape on Facebook</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-5-from-tecno-pova-5-pro-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Tecno Pova 5 Pro to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-your-facebook-relationship-trail/"><u>Understanding Your Facebook Relationship Trail</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-depth-review-of-ivona-text-to-speech-by-nextup-technologies-for-2024/"><u>Updated In-Depth Review of Ivona Text to Speech by NextUp Technologies for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-essential-tools-for-youtube-live-broadcasting-reveal-the-7-key-apps/"><u>[New] 2024 Approved Essential Tools for YouTube LIVE Broadcasting Reveal the 7 Key Apps</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-superior-animation-pack-for-text-for-2024/"><u>[New] Superior Animation Pack for Text for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nderstanding-youtubes-rating-mechanism-nuances/"><u>[New] Understanding YouTube's Rating Mechanism Nuances</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outubes-top-tools-to-reduce-long-link-lengths/"><u>[New] Youtube's Top Tools to Reduce Long Link Lengths</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-inspire-creativity-brainstorming-for-channels-names/"><u>2024 Approved Inspire Creativity Brainstorming for Channels' Names</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-preventing-discomfort-vives-motion-illness-tips/"><u>2024 Approved Preventing Discomfort Vive's Motion Illness Tips</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/web-windows-10/"><u>効果的なWebミーティングの録画・録音: Windows 10による技術ガイド</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-blog-anonymity-persist/"><u>Does Blog Anonymity Persist?</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tweaks-for-a-personalized-facebook-experience-on-phone/"><u>Essential Tweaks for a Personalized Facebook Experience on Phone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/ownership-dynamics-in-online-image-hosting/"><u>Ownership Dynamics in Online Image Hosting</u></a></li>
+<li><a href="https://facebook.techidaily.com/revelations-in-technology-youve-overlooked-top-4-must-have-knowledge/"><u>Revelations in Technology You've Overlooked - Top 4 Must-Have Knowledge!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/smooth-and-swift-designing-your-best-thumbnails-for-2024/"><u>Smooth & Swift Designing Your Best Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-facebook-with-this-simple-reset-guide/"><u>Unlock Facebook With This Simple Reset Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-social-supremacy-is-a-nightmare/"><u>Why Meta's Social Supremacy Is a Nightmare</u></a></li>
 </ul></div>
 

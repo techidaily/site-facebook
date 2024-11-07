@@ -1,7 +1,7 @@
 ---
 title: "Mastering Discretion: Concealing Likes on FB"
-date: 2024-09-05T09:31:25.974Z
-updated: 2024-09-06T09:31:25.974Z
+date: 2024-11-03T01:01:06.512Z
+updated: 2024-11-06T23:03:47.627Z
 tags:
   - facebook
 categories:
@@ -24,31 +24,33 @@ thumbnail: https://thmb.techidaily.com/d27bd20369a0206f3a047b7bb4f9e0b9ec6c2aca3
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Hiding the Facebook Reaction Count on Mobile
 
 ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
 ![Reaction preference settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Reaction-count-settings-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Close
 
 To hide the number of reactions on your posts, follow these steps.
@@ -60,11 +62,12 @@ To hide the number of reactions on your posts, follow these steps.
 5. Toggle the slider next to**On posts from others** to hide the total number of reactions on Facebook posts from other users. To hide the number of reactions on your posts, toggle the slider adjacent to**On your posts** .
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Hiding the Reaction Count on Facebook on the Web
 
  If you’re accessing Facebook via a browser using your PC, Mac, or mobile device, follow these steps instead.
@@ -81,17 +84,12 @@ Your new settings are saved automatically.
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ## Understanding Facebook's Reaction Preferences
 
  Facebook’s new reaction preferences settings allow you to hide the number of reactions on your posts as well as posts from other users. But to what extent do these two settings go?
@@ -108,14 +106,11 @@ Your new settings are saved automatically.
 
  Facebook’s new reaction count setting is an excellent way to take your mind of the number of reactions a “Facebook friend” gets. The setting takes the pressure of social comparison off your chest, at least as far as the total number of reactions go on the platform. And remember: you can always choose to delete your Facebook account if it does more harm than good.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,4 +119,23 @@ Your new settings are saved automatically.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-mini-video-medley-where-does-your-audience-flock-youtubes-or-tiktoks/"><u>[New] The Mini-Video Medley Where Does Your Audience Flock? YouTubes or TikToks?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-comprehensive-guide-screenflow-pro-on-macos/"><u>[Updated] 2024 Approved Comprehensive Guide ScreenFlow Pro on macOS</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-diving-into-the-world-of-youtube-search-engine-rankings/"><u>[Updated] Diving Into the World of YouTube Search Engine Rankings</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-inside-the-top-10-virtual-reality-smartphone-gaming/"><u>[Updated] In 2024, Inside the Top 10 Virtual Reality Smartphone Gaming</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-pioneering-the-future-the-art-of-sensory-based-filmmaking/"><u>[Updated] In 2024, Pioneering the Future The Art of Sensory-Based Filmmaking</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-selective-enhancements-for-optimal-gopro-use-for-2024/"><u>[Updated] Selective Enhancements for Optimal Gopro Use for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/bing-chat-vs-chatgpt-for-freelancers-a-comprehensive-analysis-of-8-crucial-factors/"><u>Bing Chat Vs. ChatGPT for Freelancers: A Comprehensive Analysis of 8 Crucial Factors</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-timeline-to-cache-a-full-archive-journey-on-facebook/"><u>From Timeline to Cache: A Full Archive Journey on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/jumpstarting-your-virtual-reality-experience-with-3d-photos/"><u>Jumpstarting Your Virtual Reality Experience with 3D Photos</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/pairing-data-strategies-expert-advice-on-merging-cells-in-microsoft-office-excel/"><u>Pairing Data Strategies: Expert Advice on Merging Cells in Microsoft Office Excel</u></a></li>
+<li><a href="https://facebook.techidaily.com/pruning-pertinent-post-chatter-from-facebook/"><u>Pruning Pertinent Post Chatter From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-budget-identifying-and-evading-facebook-marketplace-scams/"><u>Safeguarding Your Budget: Identifying and Evading Facebook Marketplace Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/sustainable-use-of-technology-with-facebooks-break-reminder/"><u>Sustainable Use of Technology with Facebook's Break Reminder</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-restoring-non-loading-of-fb-messages/"><u>Techniques for Restoring Non-Loading of FB Messages</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-insiders-guide-to-instagrams-chroma-key-effect/"><u>The Insider's Guide to Instagram’s Chroma Key Effect</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-seven-step-path-to-secure-your-profile/"><u>Unveiling the Seven-Step Path to Secure Your Profile</u></a></li>
+</ul></div>
 

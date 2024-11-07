@@ -1,7 +1,7 @@
 ---
 title: "National Perspective on Platforms: Harmful Trends Prevail"
-date: 2024-10-25T16:47:11.119Z
-updated: 2024-11-01T16:34:33.885Z
+date: 2024-11-01T07:12:37.698Z
+updated: 2024-11-07T00:41:00.074Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Does Social Media Affect Your Life?
@@ -62,19 +62,25 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
@@ -100,19 +106,21 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/our-gateway-to-success-with-a-bundle-of-50-free-adornments-in-2024/"><u>[New] Your Gateway to Success with a Bundle of 50 FREE Adornments, In 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-chronicles-of-youtube-the-ultimate-viral-list/"><u>[Updated] 2024 Approved Chronicles of YouTube The Ultimate Viral List</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-pinterest-video-downloader-guide-the-leading-no-cost-alternatives/"><u>[Updated] Pinterest Video Downloader Guide The Leading No-Cost Alternatives</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-online-presence-facebook-vs-twitter-identities/"><u>Exploring Online Presence: Facebook vs Twitter Identities</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-app-tutorial-for-seamless-spotify-listening/"><u>Facebook App Tutorial for Seamless Spotify Listening</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-my-samsung-galaxy-a14-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Samsung Galaxy A14 5G Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-navigate-the-complex-world-of-fb-friendship-changes/"><u>How To Navigate The Complex World of FB Friendship Changes</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-s23-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy S23 Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-the-ultimate-guide-to-selecting-from-the-top-9-free-youtube-tools/"><u>In 2024, The Ultimate Guide to Selecting From the Top 9 FREE YouTube Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-blueprint-to-bar-private-images-online/"><u>Meta's Blueprint to Bar Private Images Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/seize-profit-with-these-5-online-platform-strategies/"><u>Seize Profit with These 5 Online Platform Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/sheryl-sandberg-and-social-media-dynamics/"><u>Sheryl Sandberg and Social Media Dynamics</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/simplify-repairing-your-devices-playback-failure-alarm-signal-problem/"><u>Simplify Repairing Your Device's 'Playback Failure Alarm Signal' Problem</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/tips-and-tricks-for-setting-up-your-lava-blaze-pro-5g-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Lava Blaze Pro 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-how-can-you-screen-record-snapchat-on-mobile-phone/"><u>[New] How Can You Screen Record Snapchat on Mobile Phone?</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-premier-6-platforms-for-video-localization/"><u>[Updated] Premier 6 Platforms for Video Localization</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-basic-techniques-for-effective-color-grading-in-ps/"><u>2024 Approved Basic Techniques for Effective Color Grading in PS</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-essence-of-facebooks-structure/"><u>Decoding The Essence of Facebook's Structure</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-intern-to-innovator-the-metamate-movement/"><u>From Intern to Innovator: The Metamate Movement</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Samsung Galaxy S24+ | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-a-disable-iphone-6-plus-using-itunes-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock a disable iPhone 6 Plus using itunes</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/is-picku-the-best-photo-editor-for-android-our-in-depth-review/"><u>Is PickU The Best Photo Editor for Android? Our In-Depth Review</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/navigating-social-streams-find-just-watched-video-list-on-facebook/"><u>Navigating Social Streams Find Just-Watched Video List on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-social-media-footprint-for-maximum-shares-on-fb/"><u>Optimize Your Social Media Footprint for Maximum Shares on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-branded-content-instagrams-and-facebooks-new-focus/"><u>The Rise of Branded Content: Instagram's & Facebook's New Focus</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-secret-to-offering-users-a-no-cost-experience/"><u>TikTok's Secret to Offering Users a No-Cost Experience</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723017040280-troubleshooting-a-nonfunctional-razer-man-o-war-headset-mic-solutions-inside/"><u>Troubleshooting a Nonfunctional Razer Man 'O' War Headset Mic - Solutions Inside</u></a></li>
+<li><a href="https://facebook.techidaily.com/untangling-instagram-from-facebook-services/"><u>Untangling Instagram From Facebook Services</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-how-to-remove-audio-from-avi-for-2024/"><u>Updated How to Remove Audio From AVI for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-leaving-no-footprint-on-facebook-is-smart/"><u>Why Leaving No Footprint on Facebook Is Smart</u></a></li>
 </ul></div>
 

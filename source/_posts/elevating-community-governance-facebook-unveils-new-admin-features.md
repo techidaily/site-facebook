@@ -1,7 +1,7 @@
 ---
 title: "Elevating Community Governance: Facebook Unveils New Admin Features"
-date: 2024-10-28T16:16:26.191Z
-updated: 2024-11-01T17:11:18.251Z
+date: 2024-10-31T05:36:15.960Z
+updated: 2024-11-07T00:29:54.519Z
 tags:
   - facebook
 categories:
@@ -33,16 +33,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -54,16 +48,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -73,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -100,18 +88,24 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-best-voice-modification-tools-for-mobile-devices/"><u>[New] 2024 Approved Best Voice Modification Tools for Mobile Devices</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-high-definition-film-equipment-roundup-2024-edition/"><u>[New] High-Definition Film Equipment Roundup, 2024 Edition</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-honor-magic5-ultimate-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Honor Magic5 Ultimate? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/foremost-companies-pioneering-vr-technology/"><u>Foremost Companies Pioneering VR Technology</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-your-razer-mamba-controller-drivers-instantly-a-fast-and-simple-download/"><u>Get Your Razer Mamba Controller Drivers Instantly: A Fast & Simple Download</u></a></li>
-<li><a href="https://facebook.techidaily.com/identifying-lately-engaged-with-fb-content/"><u>Identifying Lately Engaged with FB Content</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-7-ways-to-lock-apps-on-iphone-13-pro-and-ipad-securely-by-drfone-ios/"><u>In 2024, 7 Ways to Lock Apps on iPhone 13 Pro and iPad Securely</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-elevate-speech-impact-accessibility-to-free-voice-modification-software/"><u>In 2024, Elevate Speech Impact Accessibility to Free Voice Modification Software</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/joe-vax-using-social-networks-in-his-strategy-against-coronavirus/"><u>JOE VAX: Using Social Networks in His Strategy Against Coronavirus</u></a></li>
-<li><a href="https://facebook.techidaily.com/listen-up-facebook-heres-your-take-on-clubhouse/"><u>Listen Up, Facebook! Here's Your Take on Clubhouse</u></a></li>
-<li><a href="https://facebook.techidaily.com/tiktoks-stealthy-revenue-siege-on-facebooks-empire/"><u>TikTok's Stealthy Revenue Siege on Facebook’s Empire</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unveiling-windows-11s-foundation-an-analysis-of-its-registry-data/"><u>Unveiling Windows 11’S Foundation: An Analysis of Its Registry Data</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/op-8-proven-video-growth-enhancers/"><u>[New] Top 8 Proven Video Growth Enhancers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-future-is-now-examining-hp-envy-27s-innovations-for-2024/"><u>[Updated] The Future Is Now Examining HP Envy 27'S Innovations for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-top-8-endorsed-methods-for-video-marketing-success/"><u>[Updated] Top 8 Endorsed Methods for Video Marketing Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-screen-better-or-worse-life/"><u>Beyond the Screen: Better or Worse Life?</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-your-job-openings-impact-with-fb-strategies/"><u>Boosting Your Job Opening's Impact with FB Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-the-fb-messenger-boundary/"><u>Breaking Free From the FB Messenger Boundary</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-communities-the-7-positive-power-of-social-sites/"><u>Bridging Communities: The 7 Positive Power of Social Sites</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/earning-streaming-strategies-8-beginners-tips-for-2024/"><u>Earning Streaming Strategies - 8 Beginners' Tips for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-mighty-zmi-powerpack-2nkwh-the-authoritative-guide-to-your-go-to-compact-charger/"><u>Evaluating the Mighty ZMI PowerPack 2nkWh: The Authoritative Guide to Your Go-To Compact Charger!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/freeloaders-guide-discovering-beautiful-tiktok-screenshots/"><u>Freeloaders' Guide Discovering Beautiful TikTok Screenshots</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-strategies-for-developing-engaging-facebook-video-stories/"><u>Innovative Strategies for Developing Engaging Facebook Video Stories</u></a></li>
+<li><a href="https://os-tips.techidaily.com/mastering-the-art-of-making-gifs-directly-from-an-iphone-tips-and-tricks/"><u>Mastering the Art of Making GIFs Directly From an iPhone: Tips and Tricks</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/multilingual-mastery-harnessing-the-power-of-chatgpt-beyond-english/"><u>Multilingual Mastery: Harnessing the Power of ChatGPT Beyond English</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/quick-steps-to-record-iphoneipad-screens-for-online-videos/"><u>Quick Steps to Record iPhone/iPad Screens for Online Videos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Tecno Camon 30 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-removal-techniques-cleaning-up-twitter-instagram/"><u>Tailored Removal Techniques: Cleaning up Twitter, Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-thief-strikes-again-learning-the-9-hack-signals-early/"><u>The Invisible Thief Strikes Again: Learning the 9 Hack Signals Early</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-scope-of-facebooks-content-tribunal/"><u>Understanding the Scope of Facebook’s Content Tribunal</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-postponements-whats-behind-oculus-quest-iii-delay/"><u>Unveiling Postponements: What's Behind Oculus Quest III Delay?</u></a></li>
 </ul></div>
 

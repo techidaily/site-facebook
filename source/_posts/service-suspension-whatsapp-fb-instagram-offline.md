@@ -1,7 +1,7 @@
 ---
 title: "Service Suspension: WhatsApp, FB, Instagram Offline"
-date: 2024-10-28T16:43:52.949Z
-updated: 2024-11-01T17:26:09.448Z
+date: 2024-10-31T10:37:24.282Z
+updated: 2024-11-07T09:25:43.316Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Facebook Down? Is Facebook Up Yet?
@@ -56,10 +56,16 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What Are BGP Routes?
@@ -72,16 +78,16 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
 
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Hashtag #facebookdown Trends on Twitter
 
@@ -90,10 +96,10 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
@@ -117,19 +123,21 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-optimize-your-gopro-shoot/"><u>[New] Optimize Your GoPro Shoot</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-zippyzoom-echoframe-capture/"><u>[Updated] 2024 Approved ZippyZoom EchoFrame Capture</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensure-only-you-see-your-facebook-pics/"><u>Ensure Only You See Your Facebook Pics</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/guida-esclusiva-come-master-copying-dvd-su-un-mac-big-sur-senza-compromettere-la-qualita/"><u>Guida Esclusiva: Come Master Copying DVD Su Un Mac Big Sur Senza Compromettere La Qualità</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-add-an-admin-to-your-facebook-page/"><u>How to Add an Admin to Your Facebook Page</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-keep-zooms-dark-side-at-bay-essential-tips-for-solving-black-screen-dilemmas-on-your-desktop-computer-guide-updated/"><u>How to Keep Zoom's Dark Side at Bay: Essential Tips for Solving Black Screen Dilemmas on Your Desktop Computer (Guide Updated )</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-lava-blaze-2-5g-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Lava Blaze 2 5G Phones? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-norm-in-profiles-leave-political-religious-shades-behind/"><u>New Norm in Profiles: Leave Political, Religious Shades Behind</u></a></li>
-<li><a href="https://facebook.techidaily.com/peaking-in-popularity-a-look-at-facebook-trends/"><u>Peaking in Popularity: A Look at Facebook Trends</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/sas-drivers-download-and-update-in-windows-1187/"><u>SAS Drivers Download & Update in Windows 11/8/7</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-benefits-of-taking-a-break-from-the-follow-game/"><u>The Benefits of Taking a Break From the 'Follow' Game</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-media-maestros-guide-to-enhanced-user-engagement/"><u>The Social Media Maestro's Guide to Enhanced User Engagement</u></a></li>
-<li><a href="https://win-superb.techidaily.com/trampas-comunes-y-consejos-expertos-para-reparar-la-configuracion-fallida-de-windows-11/"><u>Trampas Comunes Y Consejos Expertos Para Reparar La Configuración Fallida De Windows 11</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/ultimate-guide-to-efficiently-downsizing-videos-in-bulk-leading-software-picks/"><u>Ultimate Guide to Efficiently Downsizing Videos in Bulk: Leading Software Picks</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-gain-more-views-beginners-guide-to-youtube-seo/"><u>[Updated] In 2024, Gain More Views Beginner’s Guide to YouTube SEO</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/apple-iphone-se-2022-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>Apple iPhone SE (2022) Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/boosting-your-youtube-views-a-strategy-guide/"><u>Boosting Your YouTube Views A Strategy Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-a-politics-free-facebook-experience/"><u>Embrace a Politics-Free Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/final-farewell-to-fb-on-android/"><u>Final Farewell to FB on Android</u></a></li>
+<li><a href="https://win-able.techidaily.com/five-effective-ways-to-overcome-no-user-logged-in-error-in-counter-strike-global-offensive/"><u>Five Effective Ways to Overcome 'No User Logged In' Error in Counter-Strike Global Offensive</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-avoid-facebook-reels-habit/"><u>How to Avoid Facebook Reels Habit</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>How to Stop Google Chrome from Tracking Your Location On Apple iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-seamless-integration-of-srt-files-in-windows-macos/"><u>In 2024, Seamless Integration of SRT Files in Windows, MacOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/messengers-new-ar-tools-a-social-revolution/"><u>Messenger's New AR Tools: A Social Revolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaai-revolutionizing-conversational-intelligence/"><u>MetaAI: Revolutionizing Conversational Intelligence</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/moons-magic-dos-and-donts-of-immersive-night-photography/"><u>Moon's Magic Do's & Don'ts of Immersive Night Photography</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-tecno-spark-10-4g-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Tecno Spark 10 4G Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-exodus-analyzing-four-reasons-for-social-media-dwindle/"><u>The Unseen Exodus: Analyzing Four Reasons for Social Media Dwindle</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-7-video-enhancement-cameras-to-skyrocket-your-blogging/"><u>Top 7 Video Enhancement Cameras To Skyrocket Your Blogging</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-mystery-behind-accepting-friend-requests-on-fb/"><u>Unveiling the Mystery Behind Accepting Friend Requests on FB</u></a></li>
 </ul></div>
 

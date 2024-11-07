@@ -1,7 +1,7 @@
 ---
 title: Facing Accusations, FB Stands by Advertising Principles
-date: 2024-10-20T01:01:50.606Z
-updated: 2024-10-20T19:51:28.263Z
+date: 2024-11-04T01:49:41.167Z
+updated: 2024-11-07T08:41:29.850Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
  In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Responds to Signal's Move
@@ -52,10 +52,10 @@ Facebook responded with the following statement to the media:
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Signal's Ads You’ll Never See on Instagram
@@ -67,10 +67,10 @@ Facebook responded with the following statement to the media:
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is This Nothing But a PR Stunt on Signal's Part?
@@ -98,24 +98,24 @@ Facebook responded with the following statement to the media:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitter-takeover-1-10-must-watch-threads/"><u>[New] 2024 Approved Twitter Takeover #1-#10 Must-Watch Threads</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unlocking-full-potential-with-final-cut-pro/"><u>[New] 2024 Approved Unlocking Full Potential with Final Cut Pro</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-customize-and-captivate-thumbnail-magic-for-shorts/"><u>[Updated] Customize & Captivate Thumbnail Magic for Shorts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-download-youtube-tunes-with-these-10plus-no-cost-audio-crackers-for-2024/"><u>[Updated] Download YouTube Tunes with These 10+ No-Cost Audio Crackers for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-superior-corporate-space-for-storage/"><u>2024 Approved Superior Corporate Space for Storage</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-poco-m6-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Poco M6 5G | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-igtv-status-strategies-for-viewership-surge/"><u>Elevate Your IGTV Status Strategies for Viewership Surge</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-orders-judgment-for-trumps-prohibition/"><u>Facebook Orders Judgment for Trump's Prohibition.</u></a></li>
-<li><a href="https://driver-download.techidaily.com/how-to-securely-update-and-enhance-your-broadcom-gigabit-ethernet-drivers-on-windows-11/"><u>How to Securely Update and Enhance Your Broadcom Gigabit Ethernet Drivers on Windows 11</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-effortless-pc-sound-logging-with-x-recorder-software/"><u>In 2024, Effortless PC Sound Logging with X-Recorder Software</u></a></li>
-<li><a href="https://extra-support.techidaily.com/masterful-windows-melodies-for-2024/"><u>Masterful Windows Melodies for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-drops-the-fall-of-facial-recognition-with-fb/"><u>Meta Drops: The Fall of Facial Recognition with FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/oculus-quests-account-privacy-meta-or-fb/"><u>Oculus Quest's Account Privacy: Meta or FB?</u></a></li>
-<li><a href="https://facebook.techidaily.com/prevent-data-theft-check-for-illicit-pcemail-usage/"><u>Prevent Data Theft: Check for Illicit PC/Email Usage</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-society-top-7-social-media-advantages/"><u>Revolutionizing Society: Top 7 Social Media Advantages</u></a></li>
-<li><a href="https://facebook.techidaily.com/silent-your-news-feed-from-political-strife/"><u>Silent Your News Feed From Political Strife</u></a></li>
-<li><a href="https://facebook.techidaily.com/telegram-notifies-tracking-upholds-user-friendly-features/"><u>Telegram Notifies: Tracking Upholds User-Friendly Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-review-of-this-years-most-engaging-podcasts/"><u>The Ultimate Review of This Year's Most Engaging Podcasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/users-rebel-against-ios-invasion/"><u>Users Rebel Against iOS Invasion</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-excellence-in-viewing-10-preeminent-iphoneipad-videos/"><u>[New] Excellence in Viewing 10 Preeminent iPhone/iPad Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-expert-strategies-for-high-quality-gopro-4k-footage-editing-for-2024/"><u>[New] Expert Strategies for High-Quality GoPro 4K Footage Editing for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-best-color-grading-plugins-top-15-luts-for-action-cams/"><u>[New] In 2024, Best Color Grading Plugins Top 15 LUTs For Action Cams</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-guide-to-spotify-ads-learn-how-to-successfully-advertise-on-spotify/"><u>[Updated] Guide to Spotify Ads - Learn How to Successfully Advertise on Spotify</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-sites-and-platforms-for-freelancers/"><u>Best Sites and Platforms for Freelancers</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-connectivitys-silver-lining-7-social-perks/"><u>Digital Connectivity's Silver Lining: 7 Social Perks</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-into-telegram-growth-spurt-after-facebook-halted/"><u>Diving Into Telegram Growth Spurt After Facebook Halted</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-deleting-your-social-media-snoop-records/"><u>Guide to Deleting Your Social Media Snoop Records</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-on-apple-iphone-6-plus-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID On Apple iPhone 6 Plus without Password?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-lava-yuva-3-prowithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Lava Yuva 3 Prowith/without a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-yourself-safe-while-exploring-fb-marketplace-deals/"><u>Keep Yourself Safe While Exploring FB Marketplace Deals</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-hd-content-efficient-posting-in-fb-app/"><u>Navigating HD Content: Efficient Posting in FB App</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/pcipaddvd/"><u>PCフリーでiPadにDVD映像コンテンツ取り込み・再生手順紹介</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactics-to-rejuvenate-non-loading-fb-news-feed-items/"><u>Tactics to Rejuvenate Non-Loading FB News Feed Items</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-facebook-business-pages-vs-personal-profiles-in-brand-strategy/"><u>The Power of Facebook Business Pages vs Personal Profiles in Brand Strategy</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/the-ultimate-playbook-navigating-tools-for-vimeo-content-grabs-for-2024/"><u>The Ultimate Playbook Navigating Tools for Vimeo Content Grabs for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-oppo-find-n3-flip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-lately-watched-fb-content/"><u>Uncovering Lately Watched FB Content</u></a></li>
 </ul></div>
 

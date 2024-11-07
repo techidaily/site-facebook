@@ -1,7 +1,7 @@
 ---
 title: The Need for Increased Vigilance Against Deceptive Online Content by Facebook & Google
-date: 2024-09-05T09:31:20.664Z
-updated: 2024-09-06T09:31:20.664Z
+date: 2024-11-06T07:12:42.951Z
+updated: 2024-11-07T08:41:19.028Z
 tags:
   - facebook
 categories:
@@ -13,28 +13,10 @@ keywords: Deceptive Online Content,Facebook's Social Responsibility,Google Conte
 thumbnail: https://thmb.techidaily.com/66f3a5314b7f0b6f994f976b66c33a57ff0466854aa08d5996bdfaffcb47f66d.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Need for Increased Vigilance Against Deceptive Online Content by Facebook & Google
 
  According to a report by consumer watchdog Which?, big tech companies such as Facebook and Google aren't doing enough to prevent scam advertisements on their platforms.
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Scam Ads Are Rarely Removed Even After Being Reported
 
  The report by[Which?](https://press.which.co.uk/whichpressreleases/google-and-facebook-failing-to-remove-online-scam-adverts-reported-by-victims-which-finds/) laid out some statistics that show how little these companies are doing to remove scam adverts from their platforms.
@@ -52,11 +34,12 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The Response by Facebook and Google
 
 Facebook and Google both responded to the report by Which?
@@ -75,14 +58,11 @@ Facebook further stated:
 
  While Facebook and Google claim to be doing their part to battle bad ads, the report by Which? suggests that the opposite is true.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -91,4 +71,21 @@ Facebook further stated:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-tactical-guide-to-screening-meetings-on-mobilepc/"><u>[New] 2024 Approved Tactical Guide to Screening Meetings on Mobile/PC</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/utting-the-cord-of-creation-how-to-setup-a-youtube-channel-from-phone-to-platform/"><u>[New] Cutting the Cord of Creation How to Setup a YouTube Channel From Phone to Platform</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-expert-edits-for-an-uncluttered-tiktok-archive/"><u>[New] Expert Edits for an Uncluttered TikTok Archive</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-which-angle-works-better-for-social-sharing-vertical-or-horizontal-in-2024/"><u>[New] Which Angle Works Better for Social Sharing Vertical or Horizontal, In 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-elevate-your-content-top-rated-cameras-for-youtubers/"><u>[Updated] 2024 Approved Elevate Your Content Top-Rated Cameras for YouTubers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-finding-the-perfect-recorders-outside-microsofts-ecosystem/"><u>In 2024, Finding the Perfect Recorders Outside Microsoft's Ecosystem</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-oppo-a2-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Oppo A2 to iPad | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-tips-to-effortlessly-insert-music-into-video-editing-sessions/"><u>In 2024, Tips to Effortlessly Insert Music Into Video Editing Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-likes-and-shares-without-overstepping-boundaries/"><u>Leveraging Likes & Shares Without Overstepping Boundaries</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-your-whatsapp-experience-by-not-accepting-new-rules/"><u>Maintaining Your WhatsApp Experience by Not Accepting New Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-strategic-leap-in-artificial-intelligence-mastery/"><u>Meta's Strategic Leap in Artificial Intelligence Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-anonymizing-your-photo-feed/"><u>The Art of Anonymizing Your Photo Feed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unique-conversation-starters-for-streaming-for-2024/"><u>Unique Conversation Starters for Streaming for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-saying-goodbye-to-facebook-could-mean-a-better-you-a-top-10-list/"><u>Why Saying Goodbye to Facebook Could Mean a Better You - A Top 10 List</u></a></li>
+</ul></div>
 

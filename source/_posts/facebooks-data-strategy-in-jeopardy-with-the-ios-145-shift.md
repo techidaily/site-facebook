@@ -1,7 +1,7 @@
 ---
 title: Facebook's Data Strategy in Jeopardy with the iOS 14.5 Shift
-date: 2024-10-26T16:45:04.960Z
-updated: 2024-11-01T16:22:13.331Z
+date: 2024-11-04T04:06:11.039Z
+updated: 2024-11-07T01:42:11.209Z
 tags:
   - facebook
 categories:
@@ -38,9 +38,23 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Does Facebook Make Money?
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
 
@@ -51,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
  The Facebook and Instagram social media platforms account for the lion's share of revenue generated. In fact,[Investopedia](https://www.investopedia.com/ask/answers/120114/how-does-facebook-fb-make-money.asp) reported that 98% of Facebook's revenue in 2020 came from digital advertisements on Facebook and Instagram.
 
  The other 2% of Facebook's revenue comes from sources like Oculus sales and e-commerce payments.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What Is Facebook's Official Stance on App Tracking Transparency?
 
@@ -76,22 +83,15 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
 
@@ -104,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's Likely Response
@@ -135,17 +135,17 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-easy-steps-to-get-vrecorder-running-on-your-device/"><u>[Updated] 2024 Approved Easy Steps to Get VRecorder Running on Your Device</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-grainy-greyscale-to-dynamic-highs-a-complete-hdr-conversion/"><u>2024 Approved From Grainy Greyscale to Dynamic Highs A Complete HDR Conversion</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/evoke-christmas-cheer-thoughtful-stylish-window-designs/"><u>Evoke Christmas Cheer: Thoughtful, Stylish Window Designs</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/expert-recommendations-the-finest-skype-recorders-of-2023-for-2024/"><u>Expert Recommendations The Finest Skype Recorders of 2023 for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-launch-a-community-within-the-digital-square-of-fb/"><u>How to Launch a Community Within the Digital Square of FB</u></a></li>
-<li><a href="https://extra-support.techidaily.com/jumpstart-connections-winning-tinder-bios-at-a-glance-for-2024/"><u>Jumpstart Connections Winning Tinder Bios at a Glance for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-social-media-interaction-through-shortcut-personalization/"><u>Maximizing Social Media Interaction Through Shortcut Personalization</u></a></li>
-<li><a href="https://facebook.techidaily.com/mindful-browsing-a-future-suggestion-by-facebook/"><u>Mindful Browsing: A Future Suggestion by Facebook?</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/navigating-netflix-adjust-speed-settings/"><u>Navigating Netflix Adjust Speed Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/quick-and-agile-top-lite-android-productivity-tools/"><u>Quick and Agile: Top Lite Android Productivity Tools</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/say-hello-to-premium-entertainment-on-a-budget-the-impressive-lg-24lh4830-smart-tv/"><u>Say Hello to Premium Entertainment on a Budget: The Impressive LG 24LH4830 Smart TV</u></a></li>
-<li><a href="https://techidaily.com/y28-5g-messages-recovery-recover-deleted-messages-from-y28-5g-by-fonelab-android-recover-messages/"><u>Y28 5G Messages Recovery - Recover Deleted Messages from Y28 5G</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unlocking-mobile-tech-how-to-record-your-snapchat-content/"><u>[Updated] Unlocking Mobile Tech How to Record Your Snapchat Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensible-guide-to-protecting-teens-on-facebook/"><u>A Comprehensible Guide to Protecting Teens on Facebook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/defining-techniques-for-e-narrative-construction/"><u>Defining Techniques for E-Narrative Construction</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-on-apple-iphone-14-pro-by-drfone-ios/"><u>How to Fix Locked Apple ID on Apple iPhone 14 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-implements-e2e-encryption-postpone-details-behind-extension-to-23/"><u>Meta Implements E2E Encryption Postpone: Details Behind Extension to '23</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-samsung-galaxy-f54-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Samsung Galaxy F54 5G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-first-approach-to-fbs-memories-feature/"><u>Privacy-First Approach to FB's Memories Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/reeling-in-tiktoks-challenge-is-reel-a-facebook-savior/"><u>Reeling in TikTok's Challenge: Is Reel a Facebook Savior?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-data-breaches-how-common/"><u>Social Network Data Breaches: How Common?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-photographers-companion-to-master-color-correction-top-11-for-2024/"><u>The Photographer's Companion to Master Color Correction (Top 11) for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-science-of-writing-gripping-documentaries-for-2024/"><u>The Science of Writing Gripping Documentaries for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/umwandlung-von-flv-zu-mp4-professioneller-guide-mit-winx-hd-video-converter-deluxe/"><u>Umwandlung Von FLV Zu MP4: Professioneller Guide Mit WinX HD Video Converter Deluxe</u></a></li>
 </ul></div>
 

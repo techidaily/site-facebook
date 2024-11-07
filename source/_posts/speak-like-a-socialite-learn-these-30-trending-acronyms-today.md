@@ -1,7 +1,7 @@
 ---
 title: "Speak Like a Socialite: Learn These 30 Trending Acronyms Today"
-date: 2024-10-26T16:50:32.303Z
-updated: 2024-11-01T17:32:40.104Z
+date: 2024-11-02T09:45:24.526Z
+updated: 2024-11-06T21:06:50.558Z
 tags:
   - facebook
 categories:
@@ -30,30 +30,37 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  For example, a video saying "POV: You have no more chores to do" indicates that you should imagine a person in that position for the context of the video.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. FYP
 
  FYP is short for "For You Page", which is TikTok's personal recommendations feed. It shows you what it thinks you'll like based on the content you already enjoy. Every TikTok creator wants their videos to be featured on the FYP. In fact, the #FYP hashtag on TikTok had 49,775.4 billion views at the time of writing.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. IYKYK
 
  IYKYK stands for "if you know, you know". This abbreviation is used to refer to an inside joke or something that only certain people would understand. It's typically used without an explanation.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. GRWM
 
  GRWM means "get ready with me". The term is most popular on TikTok for videos showing creators getting ready for the day. This could be in preparation for running errands, attending an event, or going on a date.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. DM
@@ -63,6 +70,13 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 ## 6\. #F4F
 
  #F4F means "follow for follow". Users often leave this hashtag in your comments after following you. It's their way of letting you know they've just followed you and asking you to follow them back. You aren't necessarily obligated to follow them back, but you may lose them as a follower if you don't.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. #L4L
 
@@ -74,20 +88,27 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  While the terms "tweet" and "retweet" have technically been retired with X's rebranding in 2023, you'll still find people using the terms.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 9\. ATP
 
  ATP means "at this point". This abbreviation shows up in social media captions and comments. It means at this moment in time. For example, "I don't know what to do about this situation ATP." It's also commonly written in lowercase letters.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 10\. ATM
 
  ATM is short for "at the moment". Similar to ATP, ATM simply means right now.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 11\. FW
 
@@ -97,16 +118,16 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  IKTR means "I know that's right". This term is used when you agree with something or can relate to the situation. For example, someone may post that doing their nails is a form of self-care. Another user may comment "IKTR".
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 13\. ICYMI
 
  Popular on X, ICYMI stands for "in case you missed it". It's used to bring your audience up to speed about something that happened while they were away or that they missed on their timeline.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 14\. IJS
 
@@ -120,23 +141,9 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  OOMF means "one of my followers". You'll most likely see this abbreviation on X. It's used when a user refers to someone who follows them but doesn't want to reveal their name or handle.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 17\. TBH/TBQH
 
  TBH and TBQH stand for "to be honest" and "to be quite hones"t, respectively. These informal abbreviations are used in different contexts, including opinions, hot takes, and admissions.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 18\. FRFR
 
@@ -154,6 +161,13 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  MCM is short for "Man Crush Monday". This is similar to WCW but for men. And instead of Wednesdays, the posts are uploaded on Mondays.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 22\. TBT
 
  TBT means "Throwback Thursday". Thursdays are for walking down memory lane on social media. TBT is used with an old picture you're posting or reposting, and can be used as a hashtag.​​​​​​​
@@ -169,13 +183,6 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 ## 25\. OOTN
 
  OOTN means "outfit of the night". Like OOTD, OOTN is used to show off one's outfit for the night.​​​​​​​
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 26\. HT
 
@@ -197,13 +204,6 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  FOMO means "fear of missing out". The acronym FOMO is used in two contexts: to express that you don't want to miss out on something, or that you're missing out on something at the time. The feeling is often triggered by what you see others talking about online. Fortunately, there are[ways to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) .
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Never Get Left Behind
 
  It can be hard to keep up with all the new slang on social media. It would probably help if there were a dictionary you could use to keep up with all the new terms. Hopefully, this article helps you understand social media lingo a little better, so you don't experience FOMO next time you're online.
@@ -223,20 +223,24 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-incorporating-time-features-into-youtube-video-formats/"><u>[New] In 2024, Incorporating Time Features Into YouTube Video Formats</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-transform-your-tiktok-experience-with-new-user-numbers/"><u>[New] In 2024, Transform Your TikTok Experience with New User Numbers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/aximizing-profits-the-ultimate-guide-to-youtube-revenue/"><u>[New] Maximizing Profits The Ultimate Guide to YouTube Revenue</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-motorola-razr-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Motorola Razr 40 | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/affordable-easy-to-use-video-capture-tools-for-windows-for-2024/"><u>Affordable, Easy-to-Use Video Capture Tools for Windows for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/enriching-online-spaces-channels-and-group-connectivity/"><u>Enriching Online Spaces: Channels and Group Connectivity</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-iphone-13-pro-drfone-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-oneplus-12-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock OnePlus 12 Phone Password Without Factory Reset Full Guide Here</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-it-confidential-implementing-restricted-user-access-on-facebook/"><u>Keep It Confidential: Implementing Restricted User Access on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/procedure-for-alerting-underage-account-use-online/"><u>Procedure for Alerting Underage Account Use Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-operations-uncover-8-crowdflower-capabilities/"><u>Streamlining Operations: Uncover 8 CrowdFlower Capabilities</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-12-catalysts-of-covid-19-misinformation/"><u>The 12 Catalysts of Covid-19 Misinformation</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/350758-9781440636936-the-evolution-angel/"><u>The Evolution Angel | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-next-big-thing-facebook-and-spotifys-boombox-initiative/"><u>Unveiling the Next Big Thing: Facebook & Spotify's Boombox Initiative</u></a></li>
-<li><a href="https://facebook.techidaily.com/you-can-now-use-meta-ai-on-instagram-and-facebook-but-should-you/"><u>You Can Now Use Meta AI on Instagram and Facebook, but Should You?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-script-to-screen-your-guide-to-youtube-storytelling/"><u>[New] 2024 Approved Script to Screen Your Guide to YouTube Storytelling</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-game-on-mobile-funimate-apk-setup-simplified/"><u>[New] Game On Mobile Funimate APK Setup Simplified</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enrich-your-viewing-experience-with-these-leading-top-6-tools-to-download-youtubes-short-videos/"><u>[Updated] 2024 Approved Enrich Your Viewing Experience with These Leading Top 6 Tools to Download YouTubes' Short Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-comprehensive-guide-to-great-ig-videos/"><u>[Updated] 2024 Approved The Comprehensive Guide to Great IG Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-future-of-techno-gaming-revenue/"><u>[Updated] Future of Techno-Gaming Revenue</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/adonit-nest-usb-hub-unbeatable-price-at-just-65-for-remote-professionals-exclusive-insight/"><u>Adonit Nest USB Hub - Unbeatable Price at Just $65 for Remote Professionals! Exclusive Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/artistic-assets-transforming-video-content-into-money-through-metric-mastery/"><u>Artistic Assets: Transforming Video Content Into Money Through Metric Mastery</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/beginners-guide-going-live-with-ease-on-facebook-for-2024/"><u>Beginner’s Guide Going Live with Ease on Facebook for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-communication-platform-takes-stand-on-it-law-controversy/"><u>Digital Communication Platform Takes Stand on IT Law Controversy</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-freedom-6-compelling-reasons-to-ditch-facebook/"><u>Embrace Freedom - 6 Compelling Reasons to Ditch Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/expose-fraudsters-on-facebook-the-list-of-top-14-scams/"><u>Expose Fraudsters on Facebook: The List of Top 14 Scams</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-vivo-v27-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-establishing-your-facebook-community-hub/"><u>Guide to Establishing Your Facebook Community Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-safety-in-the-realm-of-social-media-quizzes/"><u>Navigating Safety in the Realm of Social Media Quizzes</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-chapter-facebook-endorses-rust-language/"><u>New Chapter: Facebook Endorses Rust Language</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-landslide-tech-giants-go-dark-for-days/"><u>Online Landslide: Tech Giants Go Dark for Days</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/quick-solution-resolve-update-failed-on-system-reserved-partition-issue/"><u>Quick Solution: Resolve 'Update Failed on System Reserved Partition' Issue</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secret-language-of-facebook-chat-emojis-and-glyphs/"><u>The Secret Language of Facebook Chat Emojis & Glyphs</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-malfunctioning-your-drivers-with-windows-device-manager-on-windows-11107-by-drivereasy-guide/"><u>Use Device Manager to identify malfunctioning your drivers with Windows Device Manager on Windows 11/10/7</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Steering Clear of Unwanted Facebook Screenshots
-date: 2024-10-31T17:20:23.178Z
-updated: 2024-11-01T17:27:22.667Z
+date: 2024-10-31T09:07:45.552Z
+updated: 2024-11-07T11:14:14.539Z
 tags:
   - facebook
 categories:
@@ -38,10 +38,10 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 * **Embarrassment:** Has someone posted a snap of you in a compromising position? You probably don't want your family or your boss to see it.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook and Photo Privacy
@@ -52,6 +52,13 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 ![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Let's start at the very beginning. Even if the privacy of your old photos is a mess, it's time to turn over a new leaf. So let's make sure the privacy is correct for all your new photos going forward.
 
  When you upload a new picture to Facebook, you can use the same privacy controls as you do for regular text posts. In the upper left-hand corner of the new post box, you'll see a dropdown menu. This menu controls who can see the post.
@@ -61,16 +68,16 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
 
 <!-- affiliate ads begin -->
-<span id="1982461">
+<span id="1983446">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Old Photos
@@ -80,13 +87,6 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  Luckily, it is possible to change the privacy level of your old snaps. You have three methods open to you:
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
@@ -112,13 +112,6 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Photos You're Tagged In
 
  Great, so that covers everything you've uploaded yourself, but what about photos of you that other people have uploaded? How can you make those private?
@@ -130,6 +123,13 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  Unfortunately, the photo will still be visible to other users on Facebook. As long as the image does not break the network's Statement of Rights and Responsibilities, there's nothing you can do.
 
  If you feel the image is abusive, you click on the**Report** link to let Facebook know. If the company agrees, it will remove the photo.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Tag Suggestions
 
@@ -158,24 +158,24 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-streamlining-your-social-space-stop-following-steps/"><u>[New] 2024 Approved Streamlining Your Social Space Stop Following Steps</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-from-drafts-to-masterpieces-top-10-essential-graphic-design-tools-for-2024/"><u>[New] From Drafts to Masterpieces Top 10 Essential Graphic Design Tools for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-elite-filmmaking-tools-for-gopro/"><u>[Updated] Elite Filmmaking Tools for GoPro</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-tiktok-pfp-innovation-standout-techniques-to-notice-for-2024/"><u>[Updated] TikTok PFP Innovation Standout Techniques to Notice for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/best-2024-reviews-for-stronger-cell-phone-connectivity-solutions/"><u>Best 2024 Reviews for Stronger Cell Phone Connectivity Solutions</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/effective-solutions-for-the-persistent-halo-e4ue4-crash-glitches-edition/"><u>Effective Solutions for the Persistent Halo E4UE4 Crash Glitches Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/group-features-face-off-casual-vs-career-focused-networking-spaces/"><u>Group Features Face-Off: Casual Vs. Career-Focused Networking Spaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/harnessing-harmony-with-facebooks-modern-group-management-functionalities/"><u>Harnessing Harmony with Facebook's Modern Group Management Functionalities</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-oppo-find-n3-flip-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Oppo Find N3 Flip to iPad | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-realme-c55-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Realme C55 | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-leading-free-graphic-websites-for-quality-vectors/"><u>In 2024, Leading Free Graphic Websites for Quality Vectors</u></a></li>
-<li><a href="https://facebook.techidaily.com/pretender-on-linkedin-check-for-copycat-profiles/"><u>Pretender on LinkedIn: Check for Copycat Profiles</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-rankings-which-is-safer-meta-or-fb-for-rift-2/"><u>Privacy Rankings: Which Is Safer, Meta or FB for Rift 2?</u></a></li>
-<li><a href="https://facebook.techidaily.com/redefining-digital-districts-with-facebook-written-content/"><u>Redefining Digital Districts with Facebook' Written Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguard-your-secrets-top-7-steps-for-fb-privacy/"><u>Safeguard Your Secrets: Top 7 Steps for FB Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/seamlessly-integrate-friends-on-facebook-messenger/"><u>Seamlessly Integrate Friends on Facebook Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/steering-who-sees-you-on-social-grids/"><u>Steering Who Sees You on Social Grids</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/uncovering-optimal-digital-patterns-for-learning-languages/"><u>Uncovering Optimal Digital Patterns for Learning Languages</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncovering-the-numbers-facebook-users-leaving/"><u>Uncovering the Numbers: Facebook Users Leaving</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-discover-variety-50-complimentary-youtube-banners-available/"><u>[New] 2024 Approved Discover Variety – 50 Complimentary YouTube Banners Available</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-maximizing-memory-storing-snapshots-in-photo-albums-from-snapchat/"><u>[New] 2024 Approved Maximizing Memory Storing Snapshots in Photo Albums From Snapchat</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-optimal-webp-to-jpg-transformation-guide/"><u>[New] In 2024, Optimal WebP-to-JPG Transformation Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-chuckle-and-sob-with-these-top-10-instagram-meme-collectives/"><u>[Updated] In 2024, Chuckle & Sob with These Top 10 Instagram Meme Collectives</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-splitting-screen-techniques-for-engaging-youtube-content-for-2024/"><u>[Updated] Splitting Screen Techniques for Engaging YouTube Content for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-unseen-by-fb-learn-to-use-the-off-fb-tool/"><u>Be Unseen by FB: Learn to Use the Off-FB Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-politics-and-religion-free-profile-spaces/"><u>Clean Slate: Politics and Religion-Free Profile Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/counteracting-the-social-media-addiction-fb-reels/"><u>Counteracting the Social Media Addiction: FB Reels</u></a></li>
+<li><a href="https://fox-that.techidaily.com/cracking-the-code-of-imessage-rejections-how-to-tell-if-youve-been-blacklisted/"><u>Cracking the Code of iMessage Rejections: How to Tell If You've Been Blacklisted</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivate-connections-not-clicks-leave-facebook/"><u>Cultivate Connections, Not Clicks: Leave Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-evolving-meanings-of-facebooks-page-names/"><u>Decoding the Evolving Meanings of Facebook's Page Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-the-digital-evolution-understanding-metaverse-in-fb/"><u>Embracing the Digital Evolution: Understanding Metaverse in FB</u></a></li>
+<li><a href="https://common-error.techidaily.com/end-of-buffering-woes-ultimate-fix-guide-for-kodi-users/"><u>End of Buffering Woes: Ultimate Fix Guide for Kodi Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/gauging-content-effectiveness-facebook-seeks-user-feedback/"><u>Gauging Content Effectiveness: Facebook Seeks User Feedback</u></a></li>
+<li><a href="https://win-top.techidaily.com/guida-rapida-allimplementazione-di-aomei-onekey-per-la-tua-azienda-di-recupero-dei-dati/"><u>Guida Rapida All'implementazione Di AOMEI OneKey per La Tua Azienda Di Recupero Dei Dati</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-realme-12plus-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Realme 12+ 5G to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-add-stickers-to-whatsapp-the-ultimate-guide/"><u>New How to Add Stickers to WhatsApp-The Ultimate Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/simple-livestreams-without-visualaudio-distractions/"><u>Simple Livestreams Without Visual/Audio Distractions</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-a-more-pleasant-online-space-escaping-irksome-fb-ads/"><u>Strategies for a More Pleasant Online Space: Escaping Irksome FB Ads</u></a></li>
 </ul></div>
 

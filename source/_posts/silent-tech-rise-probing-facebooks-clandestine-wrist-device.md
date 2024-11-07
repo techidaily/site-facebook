@@ -1,7 +1,7 @@
 ---
 title: "Silent Tech Rise: Probing Facebook's Clandestine Wrist Device"
-date: 2024-09-10T14:50:08.906Z
-updated: 2024-09-11T14:50:08.906Z
+date: 2024-11-01T01:41:31.745Z
+updated: 2024-11-07T11:49:44.895Z
 tags:
   - facebook
 categories:
@@ -25,9 +25,23 @@ thumbnail: https://thmb.techidaily.com/1e30b9de50d4ae50235fbe2427c86509d2c0711d9
 
  Though Facebook is yet to announce the features of its smartwatch,[news reports](https://www.theverge.com/2021/6/9/22526266/facebook-smartwatch-two-cameras-heart-rate-monitor) have already suggested how it could look. The smartwatch will have a steel frame and be powered by the open-source Android operating system. The smartwatch will be available in black, white, and gold colors.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### A Dual-Camera System
 
  The Facebook smartwatch will likely have two cameras. The front camera allows users to make video calls. While the other camera, on the back, can be detached from the steel frame and used for capturing images and videos. The rear 1080p camera with autofocus allows you to capture high-quality images.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Integration with Facebook Apps
 
@@ -35,19 +49,12 @@ thumbnail: https://thmb.techidaily.com/1e30b9de50d4ae50235fbe2427c86509d2c0711d9
 
  Since it's intended as a communication device, you'll also be able to apps like Messenger and WhatsApp.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### LTE Connectivity
 
@@ -57,43 +64,9 @@ thumbnail: https://thmb.techidaily.com/1e30b9de50d4ae50235fbe2427c86509d2c0711d9
 
 ![smartwatch-fitness-tracking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-fitness-tracking.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 [Facebook aims to add fitness tracking features](https://www.theinformation.com/articles/facebook-plans-smartwatch-with-focus-on-messaging-health) to its watch in a bid to attract fitness enthusiasts. This means that it’ll have a heart rate monitor and other health features.
 
  Rumors also suggest that the watch allows integration with apps and devices from fitness companies like Peloton. As the device will have LTE connectivity, you would be able to leave your phone behind when working out or jogging.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Price, Launch Date, and News
 
@@ -105,43 +78,9 @@ thumbnail: https://thmb.techidaily.com/1e30b9de50d4ae50235fbe2427c86509d2c0711d9
 
  These next-gen watches will have AR features. CTRL-Lab, a startup acquired by Facebook, has been working to control computers using wrist movements. So the company might use its smartwatch as an input device for the[AR glasses it has released with Ray-Ban](https://www.makeuseof.com/facebook-ray-ban-stories-what-are-they-how-much/) .
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Competition and Concerns
 
 ![apple-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/apple-watch.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  With Apple having[sold more than 34 million smartwatches](https://www.statista.com/chart/15035/worldwide-smartwatch-shipments/) last year (more than the Swiss watch industry), it’s easy to understand why Facebook is striving to get its product into the market. Apple and Samsung have already taken the control of the smartwatch market, and Facebook will have to face tough competition.
 
@@ -149,25 +88,12 @@ thumbnail: https://thmb.techidaily.com/1e30b9de50d4ae50235fbe2427c86509d2c0711d9
 
  Related:[Should You Trust Facebook With Oculus Quest 2 Privacy?](https://www.makeuseof.com/should-you-trust-facebook-with-oculus-quest-2-privacy/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Facebook Is Getting More Into the Hardware Race
 
@@ -175,14 +101,11 @@ thumbnail: https://thmb.techidaily.com/1e30b9de50d4ae50235fbe2427c86509d2c0711d9
 
  But with the launch of the Facebook smartwatch, the company is opening another battlefront with Apple. Only time will tell if Facebook would be able to establish its place in the Apple-dominated smartwatch market. Until the Facebook smartwatch is released, you can already get your hands on a few pretty good smartwatches.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -191,4 +114,23 @@ thumbnail: https://thmb.techidaily.com/1e30b9de50d4ae50235fbe2427c86509d2c0711d9
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-hdr-portrait-perfection-professional-photography-techniques-for-2024/"><u>[New] HDR Portrait Perfection Professional Photography Techniques for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-astute-selection-of-12-motion-cameras-with-onboard-positioning/"><u>[Updated] 2024 Approved Astute Selection of 12 Motion Cameras With Onboard Positioning</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-advanced-photo-manipulation-focus-on-content-not-backdrop/"><u>[Updated] Advanced Photo Manipulation Focus on Content, Not Backdrop</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-tecno-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Tecno?</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-legitimacy-of-facebooks-safety-mail-service-securityfb/"><u>Examining the Legitimacy of Facebook's Safety Mail Service @Security@fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/groups-on-fb-or-linkedin-finding-your-preference/"><u>Groups on FB or LinkedIn: Finding Your Preference</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/mycam-review-is-there-a-better-alternative-available-for-2024/"><u>MyCam Review Is There A Better Alternative Available for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-the-easiest-way-to-convert-4k-videos-to-mp4-for-offline-viewing-for-2024/"><u>New The Easiest Way to Convert 4K Videos to MP4 for Offline Viewing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-online-presence-with-ripl-strategies/"><u>Optimize Your Online Presence With Ripl Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-privacy-fb-safe-status/"><u>Safeguarding Privacy: FB Safe Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-approaches-to-unfollow-pages-on-facebook/"><u>Tactical Approaches to Unfollow Pages on Facebook</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-art-of-iphone-framing-finding-the-best-camera-positions/"><u>The Art of iPhone Framing Finding the Best Camera Positions</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-science-of-creating-audience-driven-fb-groups-polls/"><u>The Science of Creating Audience-Driven FB Groups Polls</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-xiaomi-redmi-k70e-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Xiaomi Redmi K70E to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-higher-interactions-12-insider-facebook-tricks/"><u>Unlocking Higher Interactions: 12 Insider Facebook Tricks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/zoom-assisted-video-production-for-tiktok-for-2024/"><u>Zoom-Assisted Video Production for TikTok for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: From Leader in Faces to Phasing Out? Meta on FB's ID Tech
-date: 2024-09-10T14:50:09.920Z
-updated: 2024-09-11T14:50:09.920Z
+date: 2024-11-03T06:22:53.507Z
+updated: 2024-11-07T09:07:25.985Z
 tags:
   - facebook
 categories:
@@ -21,43 +21,9 @@ thumbnail: https://thmb.techidaily.com/39891eff73508b464f66ea96b5a005498dc7a497b
 
  Now, Meta is deleting all these profiles. Let us examine what this means and why Meta is doing it.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## What Is Facial Recognition?
 
 ![Pixabay facial recognition image of man's face](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pixabay-facial-recognition.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Facial recognition is a piece of software that recognizes a human face by mapping its features from a photograph or video. The most important features are the distance between the eyes and the distance from forehead to chin.
 
@@ -69,37 +35,23 @@ thumbnail: https://thmb.techidaily.com/39891eff73508b464f66ea96b5a005498dc7a497b
 
  Related:[How Dark Patterns Mislead You Into Making Bad Privacy Choices](https://www.makeuseof.com/tag/dark-patterns-bad-privacy-choices/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Why Is Meta Disabling Facial Recognition on Facebook?
 
 ![blonde woman taking photo with phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/blonde-woman-pixabay.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  The official reason, given in a[Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
 
@@ -113,25 +65,12 @@ thumbnail: https://thmb.techidaily.com/39891eff73508b464f66ea96b5a005498dc7a497b
 
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Will Meta's Disabling of Facebook's Facial Recognition Enhance Privacy?
 
@@ -143,14 +82,11 @@ thumbnail: https://thmb.techidaily.com/39891eff73508b464f66ea96b5a005498dc7a497b
 
  Will users have full control of their biometric data in the Metaverse? Will they be requested to provide written consent for it to be used? Or will other forms of abuse that we haven't thought about arise in the Metaverse? It remains to be seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,4 +95,18 @@ thumbnail: https://thmb.techidaily.com/39891eff73508b464f66ea96b5a005498dc7a497b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-revealed-top-10-powerful-fcp-plugin-tools/"><u>[New] 2024 Approved Revealed Top 10 Powerful FCP Plugin Tools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-viral-success-the-most-loved-ae-themes-for-social-media/"><u>[New] In 2024, Viral Success The Most Loved AE Themes for Social Media</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-leveraging-huaweis-inbuilt-screen-capture-tech-on-its-phones/"><u>[New] Leveraging Huawei's Inbuilt Screen Capture Tech on Its Phones</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-mastering-color-grading-utilizing-luts-from-cg-central/"><u>[New] Mastering Color Grading Utilizing LUTs From CG Central</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-wants-10000-workers-to-build-the-metaverse-could-you-be-one-of-them/"><u>Facebook Wants 10,000 Workers to Build the Metaverse: Could You Be One of Them?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-hidden-features-for-improved-spotify-use/"><u>Facebook's Hidden Features for Improved Spotify Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-memory-purgatory-how-to-uninvite-acquaintances/"><u>FB's Memory Purgatory: How to Uninvite Acquaintances</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/keep-your-identity-under-wraps-while-livestreaming/"><u>Keep Your Identity Under Wraps While Livestreaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-your-way-back-into-a-locked-out-facebook/"><u>Navigating Your Way Back Into a Locked-Out Facebook</u></a></li>
+<li><a href="https://article-posts.techidaily.com/pushing-perceptions-with-the-advanced-dell-p2715q-display-review/"><u>Pushing Perceptions with the Advanced Dell P2715Q Display Review</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-20-tips-for-effortless-online-lithuanian-learning/"><u>Top 20 Tips for Effortless Online Lithuanian Learning</u></a></li>
+</ul></div>
 

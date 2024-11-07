@@ -1,7 +1,7 @@
 ---
 title: "WhatsApp, FB, Insta Inactivity: A Six-Hour Hiccup"
-date: 2024-09-10T14:50:08.226Z
-updated: 2024-09-11T14:50:08.226Z
+date: 2024-11-03T20:01:16.023Z
+updated: 2024-11-07T03:25:57.245Z
 tags:
   - facebook
 categories:
@@ -19,20 +19,6 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
 
  Facebook has since provided an explanation and apology for this outage. Keep reading to find out why you couldn't use any of Facebook's apps for so long.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How Facebook Went Offline for Six Hours
 
  On October 4, 2021, users around the world noticed they were[having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
@@ -47,19 +33,12 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
 
  So, why were Facebook's apps down? And what caused this epic outage?
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Why Facebook Went Down for Six Hours
 
@@ -77,19 +56,12 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
 
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Is Your Facebook Data Safe After the Outage?
 
@@ -97,14 +69,11 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
 
  We have no other option than to trust Facebook on this, but given the company's history and reputation, that's a big ask.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,4 +82,20 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-unveiling-the-elite-after-effects-plugins-compendium/"><u>[New] 2024 Approved Unveiling the Elite After Effects Plugins Compendium</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-infinix-note-30-vip-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/empowering-workplace-success-with-online-networks/"><u>Empowering Workplace Success with Online Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-personalities-using-social-polls-in-messages/"><u>Exploring Personalities Using Social Polls in Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/gymnastics-groups-reject-social-networking/"><u>Gymnastics Groups Reject Social Networking</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-realme-c67-4g-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Realme C67 4G FRP Bypass Instantly</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/iphone-troubleshooting-suite-comprehensive-guide-and-solutions-for-your-ios-device/"><u>IPhone Troubleshooting Suite: Comprehensive Guide & Solutions for Your iOS Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphones-escape-from-app-surveillance-prowess/"><u>IPhones Escape From App Surveillance Prowess</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-transforming-content-into-multilingual-masterpieces-a-filmora-based-approach-to-video-dubbing/"><u>New 2024 Approved Transforming Content Into Multilingual Masterpieces A Filmora-Based Approach to Video Dubbing</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-infinix-note-30-pro-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Infinix Note 30 Pro Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-details-for-your-youngsters-facebook-messenger/"><u>Streamlining Details for Your Youngster’s Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-birth-of-meta-redefining-how-we-connect-and-share-online/"><u>The Birth of Meta: Redefining How We Connect and Share Online</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-for-oddworld-soulstorm-pc-game-crash-issues/"><u>Troubleshooting Guide for Oddworld: Soulstorm PC Game Crash Issues</u></a></li>
+</ul></div>
 

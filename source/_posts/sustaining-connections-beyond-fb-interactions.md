@@ -1,7 +1,7 @@
 ---
 title: Sustaining Connections Beyond FB Interactions
-date: 2024-09-05T09:31:21.140Z
-updated: 2024-09-06T09:31:21.140Z
+date: 2024-11-04T12:00:18.929Z
+updated: 2024-11-07T01:09:25.457Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,6 @@ keywords: Connection Sustainability,Non-Facebook Bonds,Alternative Socializing,D
 thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a8ac533f579ade7f75a2ecaa.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Sustaining Connections Beyond FB Interactions
 
  Facebook has endured several scandals over the years, and these invariably concern the privacy and security of its users. This led to the #DeleteFacebook campaign, and you might have been tempted to delete Facebook as a result.
@@ -29,30 +23,12 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
 ![deleting or deactivating facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/03/quitting-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  There's a difference between deleting and deactivating your Facebook account. They're not interchangeable terms.
 
  Deactivation is for people who aren't certain they want to leave Facebook forever. If you just want to take a sabbatical from social media, deactivation is a good option, although it's not the only one. You could merely ignore Facebook without deactivating it, but that depends on how tempted you'll be to return.
 
  Deleting Facebook is more permanent. It's a decision that you shouldn't take lightly. If you delete your account, you can't come back and expect any of your data to still be intact. There is a way to start again, but we'll return to that later on.
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Can People Search for Me if I Deactivate Facebook?
 
  People can still search for you, but your profile shouldn't show up—that is, in theory.
@@ -66,11 +42,12 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  Otherwise, it takes 90 days for Facebook to remove information on a deleted account from its servers. Some details will still exist, but any personal identifiers will disappear. You'll become a statistic.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Does My Profile Completely Disappear if I Deactivate Facebook?
 
 ![name search on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/philip-profiles-on-facebook.jpg)
@@ -82,11 +59,12 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  If you still exist on Facebook, attempt to log back in, and then try to deactivate again. If this still doesn't work, you can[complain to Facebook](https://en-gb.facebook.com/help/reportlinks/) or take the next step: deletion. Before you do that, read on to find out what you need to do before deleting Facebook entirely.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Do My Comments Disappear if I Deactivate Facebook?
 
  If deactivation has worked, your posts on your own timeline won't be publicly visible, and your friends shouldn't be able to see them either. Your whole profile will have gone. But that doesn't mean comments you've made to others will disappear as well.
@@ -99,12 +77,6 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
  So what happens if you delete Facebook permanently? Facebook says it will erase your data within three months, but there are no guarantees that it will clear every last bit of flotsam and jetsam, i.e. comments, reactions, and posts on others' timelines. If you've had a large social media footprint, then some things might remain.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Tell if Someone Blocked You on Facebook or Deactivated Their Account
 
  What does a deactivated Facebook account look like? You won't be able to check their profile because links revert to plain text. Posts they've made on your timeline will still exist, but you won't be able to click on their name.
@@ -152,11 +124,12 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  The social network lets you download a copy of[all the data Facebook has stored about you](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) . That means you can get your account back up and running, although the process is a bit trickier than if you've merely deactivated it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What Happens to Tagged Photos After Deactivating Facebook?
 
  Because Facebook has saved your data for your potential return, tags in pictures will still exist. However, those tags will convert to plain text. No one can link those images to a profile. This is also true of any other posts you're tagged in. To reiterate, your profile isn't visible to anyone.
@@ -169,18 +142,22 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
  Worried about an embarrassing photo? Don't want people identifying you even after deactivation or deletion? Don't forget that[you can manually remove tags](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) anyway—but do so before taking further steps with your account.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Should You Deactivate or Delete Facebook?
 
  If you're reading this because you're not sure whether to delete or deactivate Facebook, choose the latter and stick with Facebook. Why? Because you're clearly unsure about the decision. It's better to start with the non-nuclear option which will allow you to return one day. Deleting Facebook is the Scorched Earth approach, so only do so if you're 100 percent sure.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -189,4 +166,21 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-navigating-facebook-live-a-comprehensive-tutorial-for-2024/"><u>[New] Navigating Facebook Live A Comprehensive Tutorial for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unraveling-the-lifecycle-of-windows-movie-maker-releases/"><u>[Updated] 2024 Approved Unraveling the Lifecycle of Windows Movie Maker Releases</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-the-seven-finest-stardew-valley-customizations-unveiled/"><u>2024 Approved The Seven Finest Stardew Valley Customizations Unveiled</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-honor-90-gt-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Honor 90 GT without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-realme-11x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/comprehensively-explore-github-desktop-capabilities-on-windows-11/"><u>Comprehensively Explore GitHub Desktop Capabilities on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-claims-behind-giphy-facebook-sale-speculations/"><u>Examining the Claims Behind Giphy-Facebook Sale Speculations</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/genre-grasped-and-mastered-with-gpts-nine-innovative-techniques/"><u>Genre Grasped and Mastered with GPT’s Nine Innovative Techniques</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-timeline-with-impactful-facebook-cover-pics/"><u>Master Your Timeline with Impactful Facebook Cover Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/netting-profits-through-digital-dialogues/"><u>Netting Profits Through Digital Dialogues</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactics-for-boosting-fb-reach/"><u>Tactics for Boosting Fb Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-industry-faces-trust-crisis-particularly-for-social-networking-giant/"><u>Tech Industry Faces Trust Crisis: Particularly for Social Networking Giant</u></a></li>
+</ul></div>
 

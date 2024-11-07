@@ -1,7 +1,7 @@
 ---
 title: "Invisible Influence: 7 Hidden Harmfulness of Networking Sites"
-date: 2024-10-18T20:52:24.206Z
-updated: 2024-10-20T17:24:41.087Z
+date: 2024-11-03T05:23:36.472Z
+updated: 2024-11-06T16:06:33.069Z
 tags:
   - facebook
 categories:
@@ -31,16 +31,10 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
 
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Depression and Anxiety
@@ -58,10 +52,10 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
@@ -98,19 +92,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Negative Body Image
 
 ​​​​​​
@@ -123,6 +104,13 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Surround yourself with people who love you for who you are, and you won't have to stress about fake Instagram beauty.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Unhealthy Sleep Patterns
 
  On top of increasing the cases of anxiety and depression, another bad thing about social media is that spending too much time on it can lead to poor sleep. Numerous studies have shown that increased use of social media has a negative effect on your sleep quality.
@@ -133,16 +121,16 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. General Addiction
 
 ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
@@ -173,22 +161,19 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-chuckle-chamber-fast-track-to-funny-memes/"><u>[New] Chuckle Chamber Fast Track to Funny Memes</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-essential-steps-for-effective-screen-capture-in-adobe-captivity/"><u>[New] In 2024, Essential Steps for Effective Screen Capture in Adobe Captivity</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-premier-guidance-leading-ringtone-artisans-iphone/"><u>[Updated] 2024 Approved Premier Guidance Leading Ringtone Artisans iPhone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/demystifying-the-concept-of-generative-ai-key-features-and-impacts-on-technology/"><u>Demystifying the Concept of Generative AI: Key Features & Impacts on Technology</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-sarcasm-facebooks-policy-amendments/"><u>Dissecting Sarcasm: Facebook’s Policy Amendments</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-oculus-sales-boom-amidst-cybersecurity-crisis/"><u>Facebook Oculus Sales Boom Amidst Cybersecurity Crisis</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-trust-dilemmas-a-close-look-at-the-top-5-user-disappointments/"><u>Facebook’s Trust Dilemmas: A Close Look at the Top 5 User Disappointments</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-newest-nvidia-rtx-2070-graphics-card-drivers-for-windows-10-8-and-nully-ws/"><u>Get the Newest Nvidia RTX 2070 Graphics Card Drivers for Windows 10, 8 & Nully WS</u></a></li>
-<li><a href="https://facebook.techidaily.com/identifying-prime-moments-to-share/"><u>Identifying Prime Moments to Share</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-oppo-reno-11-pro-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Oppo Reno 11 Pro 5G Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-vivo-t2-5g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Vivo T2 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/quick-login-sessions-across-diverse-facebook-pages/"><u>Quick Login Sessions Across Diverse Facebook Pages</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolve-your-computers-stuck-at-windows-setup-a-step-by-step-guide/"><u>Resolve Your Computer's 'Stuck at Windows Setup': A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/revisiting-previous-social-interactions-in-fb/"><u>Revisiting Previous Social Interactions in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-to-facebooks-day-on-day-tool/"><u>Unveiling the Secrets to Facebook's Day-on-Day Tool</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-s-top-free-security-camera-software-features-pros-and-cons/"><u>Updated In 2024, S Top Free Security Camera Software Features, Pros, and Cons</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-lies-within-the-world-of-facebook-dating/"><u>What Lies Within the World of Facebook Dating?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-optimize-your-facebook-streaming-experience-with-these-methods/"><u>[Updated] 2024 Approved Optimize Your Facebook Streaming Experience with These Methods</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-nighttime-nirvana-with-asmr-select-artists-for-2024/"><u>[Updated] Nighttime Nirvana with ASMR Select Artists for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-a-step-by-step-approach-to-masterful-screen-recordings-on-hp-systems/"><u>2024 Approved A Step-by-Step Approach to Masterful Screen Recordings on HP Systems</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-the-chronicle-of-creation-weaving-time-lapse-animations-via-movie-maker/"><u>2024 Approved The Chronicle of Creation Weaving Time-Lapse Animations via Movie Maker</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-effective-money-making-tactics-on-social-platforms/"><u>5 Effective Money-Making Tactics on Social Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boosting-engagement-perfect-time-stamping-techniques-for-videos/"><u>Boosting Engagement Perfect Time-Stamping Techniques for Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/channels-as-pathways-within-facebook-communities/"><u>Channels as Pathways Within Facebook Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealing-your-images-simplified-fb-guide/"><u>Concealing Your Images, Simplified: FB Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/deny-hidden-network-proposals-on-social-site/"><u>Deny Hidden Network Proposals on Social Site</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-potential-candidates-tips-on-posting-jobs-on-facebook/"><u>Engaging Potential Candidates: Tips on Posting Jobs on Facebook</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-apple-watch-or-apple-iphone-14-from-icloud-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Apple Watch Or Apple iPhone 14 from iCloud</u></a></li>
+<li><a href="https://facebook.techidaily.com/lost-and-found-precise-steps-to-restore-your-fb-sign-in/"><u>Lost and Found: Precise Steps to Restore Your FB Sign-In</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unleashing-your-sales-potential-writing-winning-proposals-using-chatgpt-techniques/"><u>Unleashing Your Sales Potential: Writing Winning Proposals Using ChatGPT Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/why-learn-croatian-unveil-the-top-7-compelling-benefits/"><u>Why Learn Croatian? Unveil the Top 7 Compelling Benefits!</u></a></li>
 </ul></div>
 

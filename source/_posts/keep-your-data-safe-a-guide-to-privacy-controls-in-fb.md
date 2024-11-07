@@ -1,7 +1,7 @@
 ---
 title: "Keep Your Data Safe: A Guide to Privacy Controls in FB"
-date: 2024-09-10T14:50:08.344Z
-updated: 2024-09-11T14:50:08.344Z
+date: 2024-11-01T06:40:29.831Z
+updated: 2024-11-06T19:21:11.318Z
 tags:
   - facebook
 categories:
@@ -48,20 +48,6 @@ To change the privacy of your Facebook post:
 
 ![Post a Facebook Status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Post-a-Facebook-Status.JPG)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Facebook post audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-post-audience.JPG)
 
 Close
@@ -75,39 +61,11 @@ Close
 
 ![Create a Facebook Story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Create-a-Facebook-Story.JPG)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Facebook Story privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Story-privacy.JPG)
 
 Close
 
  Facebook Stories expire after 24 hours, but since anyone can view them, it is better to change your settings to keep the Stories within your friend circle.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 4\. Lock Your Facebook Profile
 
@@ -121,39 +79,25 @@ To lock your Facebook profile:
 
 ![Facebook-Menu-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Menu-on-mobile.JPG)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
-
 ![Facebook-user-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-user-profile.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Lock Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Lock-Facebook-profile.JPG)
 
 ![Lock-your-profile-on-Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Lock-your-profile-on-Facebook.JPG)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Close
 
@@ -167,51 +111,23 @@ Close
 
 ![Facebook Settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Settings-and-privacy.JPG)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![Facebook Security and login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Security-and-login.JPG)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![Check where you are logged in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Check-where-you-are-logged-in.JPG)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Close
 
@@ -219,19 +135,12 @@ Close
 
  Do not save your Facebook account information on devices you do not own to ensure that you are only logged in where necessary.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 6\. Only Give Necessary Permissions to Facebook
 
@@ -249,41 +158,27 @@ Close
 
 ![Facebook app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-app-settings.JPG)
 
-
-
-
+![Turn off Allow Tracking option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Turn-off-Allow-Tracking-option.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-![Turn off Allow Tracking option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Turn-off-Allow-Tracking-option.JPG)
 
 ![Choose Selected Photos option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Selected-Photos-option.JPG)
 
 ![Choose Ask Next Time Or When I Share option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Ask-Next-Time-Or-When-I-Share-option.JPG)
 
-Close
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+Close
 
 ## 7\. Perform Privacy Checkups
 
@@ -305,19 +200,12 @@ To conduct the Facebook privacy checkup:
 
 ![Facebook Privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Privacy-checkup.JPG)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Close
 
@@ -329,14 +217,11 @@ Close
 
  Lastly, users must keep tabs on logged-in devices and perform regular privacy checks to ensure a safe experience.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -345,4 +230,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-how-to-record-high-quality-discord-chats/"><u>[Updated] 2024 Approved How to Record High-Quality Discord Chats</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unlock-higher-engagement-with-proven-video-tagging-methods/"><u>[Updated] 2024 Approved Unlock Higher Engagement with Proven Video Tagging Methods</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-download-facebook-stories-with-ease-essential-tips-and-tricks-mobiledesktop/"><u>2024 Approved Download Facebook Stories with Ease Essential Tips and Tricks (Mobile/Desktop)</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-oneplus-11-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from OnePlus 11 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/fighting-deception-on-the-internet-time-for-tech-to-step-up/"><u>Fighting Deception on the Internet: Time for Tech to Step Up</u></a></li>
+<li><a href="https://facebook.techidaily.com/go-wherever-you-want-facebooks-mobility-centric-portal/"><u>Go Wherever You Want: Facebook's Mobility-Centric Portal</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-step-into-fame-the-essential-blueprint-for-adding-channels-as-features-on-youtube/"><u>In 2024, Step Into Fame The Essential Blueprint for Adding Channels as Features on Youtube</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastodon-a-new-era-of-discourse/"><u>Mastodon: A New Era of Discourse</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/microsoft-unveils-copilot-enhanced-surface-line-boosting-productivity-for-enterprises-key-updates-revealed/"><u>Microsoft Unveils Copilot-Enhanced Surface Line, Boosting Productivity for Enterprises: Key Updates Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-messages-discovering-new-auditory-features-on-messenger/"><u>Revolutionizing Messages: Discovering New Auditory Features on Messenger</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/schneller-zugriff-und-exportierung-erfolgreichen-datentransfers-unter-windows-11/"><u>Schneller Zugriff Und Exportierung Erfolgreichen Datentransfers Unter Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/significance-of-missing-messenger-availability/"><u>Significance of Missing Messenger Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-facebooks-inner-circle-with-dossiers-revealed/"><u>Unmasking Facebook’s Inner Circle with Dossiers Revealed</u></a></li>
+</ul></div>
 

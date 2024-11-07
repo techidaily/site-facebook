@@ -1,7 +1,7 @@
 ---
 title: "IOS 14.5: A Blow for Facebook's Data Collection?"
-date: 2024-10-29T17:30:13.116Z
-updated: 2024-11-01T16:56:04.608Z
+date: 2024-11-04T11:07:39.787Z
+updated: 2024-11-07T06:08:02.206Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Does Facebook Make Money?
@@ -64,10 +64,10 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
@@ -78,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
@@ -85,13 +92,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
 
@@ -104,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's Likely Response
@@ -135,19 +135,22 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-complete-code-of-conduct-for-youtube-creators/"><u>[New] 2024 Approved Complete Code of Conduct for YouTube Creators</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-drone-visual-spectrum-20-first-time-free-luts-included-for-2024/"><u>[New] Drone Visual Spectrum - 20 First-Time FREE LUTS Included for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/cookiebot-enabled-sites-enhance-user-experience-and-tracking/"><u>Cookiebot-Enabled Sites: Enhance User Experience & Tracking</u></a></li>
-<li><a href="https://facebook.techidaily.com/hide-and-seek-in-the-social-media-universe/"><u>Hide-and-Seek in the Social Media Universe</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-get-the-latest-asus-laptop-graphics-card-driver/"><u>How to Get the Latest ASUS Laptop Graphics Card Driver</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-kick-start-your-digital-broadcast-today-for-2024/"><u>How to Kick-Start Your Digital Broadcast Today for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-lava-blaze-2-5g-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Lava Blaze 2 5G by Name | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-visionary-entry-critique-and-dissection/"><u>In 2024, Visionary Entry Critique and Dissection</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-why-watch-hd-switch-to-av1-codec-on-youtube/"><u>In 2024, Why Watch HD? - Switch to AV1 Codec on YouTube</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-5-best-online-mp3-tag-editor-websites-that-you-cant-miss/"><u>New 5 Best Online MP3 Tag Editor Websites That You Cant Miss</u></a></li>
-<li><a href="https://facebook.techidaily.com/post-hack-habits-social-network-headsets-and-user-spending-patterns/"><u>Post-Hack Habits: Social Network Headsets and User Spending Patterns</u></a></li>
-<li><a href="https://facebook.techidaily.com/sheryl-sandbergs-influence-on-corporate-culture/"><u>Sheryl Sandberg's Influence on Corporate Culture</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-dichotomy-of-utilizing-facebook-for-event-planning-success/"><u>The Dichotomy of Utilizing Facebook for Event Planning Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-are-the-facebook-papers-everyone-is-talking-about/"><u>What Are The Facebook Papers Everyone Is Talking About?</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-addressing-hearing-gaps-in-video-content-sharing/"><u>[New] In 2024, Addressing Hearing Gaps in Video Content Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-simple-method-for-clearing-facebook-dings/"><u>A Simple Method for Clearing Facebook Dings</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-into-digital-distaste-for-global-community-sites/"><u>Digging Into Digital Distaste for Global Community Sites</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/expert-tools-for-photography-driven-film-production/"><u>Expert Tools for Photography-Driven Film Production</u></a></li>
+<li><a href="https://facebook.techidaily.com/friday-the-new-frontier-of-fbs-live-purchasing/"><u>Friday: The New Frontier of FB’s Live Purchasing</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/improving-detail-on-far-crys-rendering/"><u>Improving Detail on Far Cry's Rendering</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Xiaomi Redmi 12? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-thread-feature-to-cease-in-dec/"><u>Instagram's Thread Feature to Cease in Dec</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-social-opportunities-the-case-for-facebook/"><u>Maximizing Social Opportunities: The Case for Facebook</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/mp4swf/"><u>MP4形式へのSWF変換方法と、失敗する理由分析</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-space-for-group-interaction-a-comparative-study/"><u>Navigating Social Space for Group Interaction: A Comparative Study</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-future-with-6-key-uses-of-facebook-today/"><u>Navigating the Future with 6 Key Uses of Facebook Today</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/pattern-locks-are-unsafe-secure-your-samsung-galaxy-m14-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Samsung Galaxy M14 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/scrutinizing-the-most-notable-tech-slip-ups-in-22/"><u>Scrutinizing The Most Notable Tech Slip-Ups in '22</u></a></li>
+<li><a href="https://extra-information.techidaily.com/strategic-cloud-cost-management-best-price-options/"><u>Strategic Cloud Cost Management Best Price Options</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-the-magic-of-meta-instructions-to-formulate-an-oculus-questquest-2-user-profile/"><u>Unlocking the Magic of Meta: Instructions to Formulate An Oculus Quest/Quest 2 User Profile</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-edit-mp4-files-on-mac-mavericks-a-comprehensive-guide-for-2024/"><u>Updated Edit MP4 Files on Mac Mavericks A Comprehensive Guide for 2024</u></a></li>
 </ul></div>
 

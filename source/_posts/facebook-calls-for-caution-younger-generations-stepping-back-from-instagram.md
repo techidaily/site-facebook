@@ -1,7 +1,7 @@
 ---
 title: "Facebook Calls for Caution: Younger Generations Stepping Back From Instagram"
-date: 2024-10-16T01:29:36.435Z
-updated: 2024-10-20T22:18:24.699Z
+date: 2024-11-01T02:27:38.811Z
+updated: 2024-11-07T08:08:17.917Z
 tags:
   - facebook
 categories:
@@ -41,10 +41,10 @@ This feature could possibly address those concerns.
  Related:[Is an Instagram for Kids a Good or Bad Idea? The Pros and Cons](https://www.makeuseof.com/instagram-for-kids-pros-and-cons/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Nudging Teens Away From Potentially Harmful Content
@@ -58,10 +58,10 @@ Here's how Clegg explained it:
  Related:[Why Instagram Is Forcing You to Add Your Birthday](https://www.makeuseof.com/instagram-forcing-you-add-birthday/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Facebook Introducing These Features?
@@ -75,10 +75,10 @@ Here's how Clegg explained it:
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
@@ -106,22 +106,21 @@ Here's how Clegg explained it:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ive-into-design-get-a-complimentary-set-of-50-banner-pieces/"><u>[New] Dive Into Design Get a Complimentary Set of 50 Banner Pieces!</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-in-2024-achieve-seamless-retrieval-of-twitters-humor-gifs-on-your-system/"><u>[New] In 2024, Achieve Seamless Retrieval of Twitter's Humor (GIFs) on Your System</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-new-chapter-fbs-hefty-bet-of-5-million-on-authorship-and-publishing-sector/"><u>A New Chapter: FB's Hefty Bet of $5 Million on Authorship & Publishing Sector</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1722993374604-euro-truck-simulator-2-troubleshooting-pc-crash-issues-solved/"><u>Euro Truck Simulator 2: Troubleshooting PC Crash Issues - Solved!</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-defensive-measures-explored-and-equipped/"><u>Facebook's Defensive Measures Explored & Equipped</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/gratis-modul-converter-em-formato-wav-online-easy-and-fast-com-movavi/"><u>Gratis Modul Converter Em Formato WAV Online - Easy & Fast Com Movavi</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-asus-rog-phone-8-pro-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Asus ROG Phone 8 Pro Unlock Without Password</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-tecno-spark-go-2023-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Tecno Spark Go (2023)</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-understanding-audio-confluence-the-essence-of-crossfade/"><u>In 2024, Understanding Audio Confluence The Essence of Crossfade</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-seal-of-approval-is-it-worth-it/"><u>Meta's Seal of Approval - Is It Worth It?</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-more-fb-notifications-the-complete-process/"><u>No More FB Notifications: The Complete Process</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/overcoming-inaudibility-in-obs-captured-audio-for-2024/"><u>Overcoming Inaudibility in OBS Captured Audio for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Itel A60s | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/security-breaches-in-social-media-worldwide/"><u>Security Breaches in Social Media Worldwide</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networking-platform-launches-precision-moderation-aids/"><u>Social Networking Platform Launches Precision Moderation Aids</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networks-vs-online-communities-the-shift-explained/"><u>Social Networks Vs. Online Communities: The Shift Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-fb-pages-vs-unames-key-insights-and-tips/"><u>Understanding FB Pages vs UNAMES: Key Insights & Tips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ffortless-guide-to-free-melodies-in-youtube-productions/"><u>[New] Effortless Guide to Free Melodies in YouTube Productions</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-ideal-applications-to-elevate-your-vtubers-sound-identity/"><u>[New] Ideal Applications to Elevate Your Vtuber's Sound Identity</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-superior-script-architect-space/"><u>[New] Superior Script Architect Space</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-tinyframe-videotaker-assessment-with-alternatives/"><u>[Updated] 2024 Approved TinyFrame Videotaker Assessment with Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-sarcasm-facebooks-policy-amendments/"><u>Dissecting Sarcasm: Facebook’s Policy Amendments</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-solutions-to-prevent-adobe-premiere-pro-crashing-incidents-on-windows-1110-platforms/"><u>Expert Solutions to Prevent Adobe Premiere Pro Crashing Incidents on Windows 11/10 Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-oculus-sales-boom-amidst-cybersecurity-crisis/"><u>Facebook Oculus Sales Boom Amidst Cybersecurity Crisis</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-trust-dilemmas-a-close-look-at-the-top-5-user-disappointments/"><u>Facebook’s Trust Dilemmas: A Close Look at the Top 5 User Disappointments</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-nokia-g42-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Nokia G42 5G Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-oppo-f23-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-motorola-by-drfone-android/"><u>How to Show Wi-Fi Password on Motorola</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-prime-moments-to-share/"><u>Identifying Prime Moments to Share</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-update-procedures-for-your-childs-messengers/"><u>Profile Update Procedures for Your Child’s Messengers</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-previous-social-interactions-in-fb/"><u>Revisiting Previous Social Interactions in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-to-facebooks-day-on-day-tool/"><u>Unveiling the Secrets to Facebook's Day-on-Day Tool</u></a></li>
 </ul></div>
 

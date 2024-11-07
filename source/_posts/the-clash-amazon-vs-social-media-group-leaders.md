@@ -1,7 +1,7 @@
 ---
 title: "The Clash: Amazon Vs. Social Media Group Leaders"
-date: 2024-10-14T23:16:05.588Z
-updated: 2024-10-21T01:00:36.994Z
+date: 2024-11-05T00:11:11.334Z
+updated: 2024-11-07T08:10:23.493Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Amazon Filed the Case
@@ -50,10 +50,16 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
@@ -65,10 +71,10 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -82,10 +88,10 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -109,22 +115,16 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://network-issues.techidaily.com/corrected-halo-tt-fail-to-launch-dx12-windows-error/"><u>[CORRECTED] Halo: TT Fail to Launch - DX12 Windows Error</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-pioneering-changes-to-your-pubg-characters-speech/"><u>[New] 2024 Approved Pioneering Changes to Your PUBG Character's Speech</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-share-it-all-video-watchlist-for-2024/"><u>[New] Share-It-All Video Watchlist for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-transform-your-videos-using-video-enhancer-v22/"><u>[New] Transform Your Videos Using Video Enhancer V2.2</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-unlocking-the-vault-of-online-videos-via-facebook/"><u>[New] Unlocking the Vault of Online Videos via Facebook</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-elite-tech-for-saving-your-on-camera-video-memories/"><u>[Updated] In 2024, Elite Tech for Saving Your On-Camera Video Memories</u></a></li>
-<li><a href="https://facebook.techidaily.com/anticipating-the-next-chapter-fbs-move-into-physical-retail-expansion/"><u>Anticipating the Next Chapter: FB's Move Into Physical Retail Expansion</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-clear-spotifys-link-with-facebook/"><u>How To Clear Spotify's Link With Facebook</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-set-up-chromecast/"><u>How To Set Up Chromecast</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-lava-blaze-2-pro-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Lava Blaze 2 Pro to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-a-low-profile-on-social-networks/"><u>Keeping a Low Profile on Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/proclaim-your-trustworthiness-with-meta-us/"><u>Proclaim Your Trustworthiness with Meta US</u></a></li>
-<li><a href="https://facebook.techidaily.com/retrieving-history-of-your-facebook-friends/"><u>Retrieving History of Your Facebook Friends</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-shunned-the-triple-list-of-no-facebook-nations/"><u>Social Media Shunned: The Triple List of No-Facebook Nations</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-communication-via-facebooks-symbol-language/"><u>The Art of Communication via Facebook's Symbol Language</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-honor-magic5-ultimate-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Honor Magic5 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-you-should-purge-facebooks-view-logs-today/"><u>Why You Should Purge Facebook's View Logs Today</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-video-broadcasts-wirecast-and-its-allies/"><u>[Updated] Mastering Video Broadcasts Wirecast and Its Allies</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-spectacular-top-liquid-physics-gaming-for-2024/"><u>[Updated] Spectacular Top Liquid Physics Gaming for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/all-you-need-to-know-about-macos-15-sequoia-launch-timeline-innovative-features-and-exciting-news/"><u>All You Need to Know About MacOS 15 Sequoia: Launch Timeline, Innovative Features, and Exciting News</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Motorola Moto G24 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leverage-the-latest-privacy-tools-in-facebooks-comprehensively-redesigned-hub/"><u>Leverage the Latest Privacy Tools in Facebook’s Comprehensively Redesigned Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-end-of-your-facebook-era-key-steps/"><u>Navigating the End of Your Facebook Era: Key Steps</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211279469-9798869282538-sensual-sorcery/"><u>Sensual Sorcery | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-to-upgrade-your-social-media-agebirthdate/"><u>Step-by-Step to Upgrade Your Social Media Age/Birthdate</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-vivo-v27-pro-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Vivo V27 Pro Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-enhancing-your-online-impression/"><u>The Ultimate Guide to Enhancing Your Online Impression</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/transform-wmv-videos-into-3gpp-format-for-free-using-movavis-web-service/"><u>Transform WMV Videos Into 3GPP Format for Free - Using Movavi's Web Service</u></a></li>
 </ul></div>
 

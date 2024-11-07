@@ -1,7 +1,7 @@
 ---
 title: "Instant Recognition: Identifying Unauthorized FB Visitors"
-date: 2024-09-05T09:31:24.623Z
-updated: 2024-09-06T09:31:24.623Z
+date: 2024-11-01T06:33:32.001Z
+updated: 2024-11-07T08:53:45.593Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,6 @@ keywords: Instant Access Checking,FB Account Anomaly Detection,Unauthorized Prof
 thumbnail: https://thmb.techidaily.com/172d2b5e16d3f59f8f3e9aeaa8db2d7a1dcd42c1282454326ca1c10c6fe01b75.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Instant Recognition: Identifying Unauthorized FB Visitors
 
  If someone has unauthorized access to your Facebook account, it's bad news. If you don't react quickly, it probably won't end well. But how do you know if someone else is accessing your account?
@@ -39,12 +33,6 @@ thumbnail: https://thmb.techidaily.com/172d2b5e16d3f59f8f3e9aeaa8db2d7a1dcd42c12
 
 ![Facebook's where you're logged in page on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-s-where-you-re-logged-in-page-on-desktop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  You will see a list of all the devices and locations that are currently authorized to access your account. If you find a notification about**Unrecognized logins** , click**Review devices.** You can also select your Facebook profile and check out the**Logins on other devices** section.
 
  Look for any devices you don't use or haven't recently used to sign in to Facebook. Also look for devices from locations you don't recognize.
@@ -53,18 +41,6 @@ thumbnail: https://thmb.techidaily.com/172d2b5e16d3f59f8f3e9aeaa8db2d7a1dcd42c12
 
  If you suspect your Facebook account has been breached, you must remove the suspicious device's access. Then you should change your password and set up two-factor authentication (2FA) for an added layer of security. You can also set up alerts for unrecognized logins and log out of all devices.
 
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Remove Device Access to Facebook
 
  If you see something that looks suspicious, you can use this list to revoke that device's access. Keep in mind that some IP address glitches might occasionally see one of your legitimate devices pop up in an unrecognized location. Using a VPN set to a server in a different location will do this, too. These cases are safe to ignore.
@@ -77,20 +53,15 @@ To revoke device access on your Facebook account:
 
 ![Facebook login listed on desktop app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-login-listed-on-desktop-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The access will be revoked, but the unauthorized person could potentially log in again if they know your password.
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Change Your Facebook Password
 
  Once you've revoked the unauthorized person's access, you need to take steps to make sure it doesn't happen again.
@@ -104,17 +75,12 @@ To revoke device access on your Facebook account:
 ![Change password form on Facebook for desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/change-password-form-on-facebook-for-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How to Set Up Two-Factor Authentication (2FA)
 
  Changing your password is only half the story. You should also consider setting up 2FA. 2FA can use either a text message, a security key, or an authentication app.
@@ -128,12 +94,6 @@ To turn on 2FA on Facebook:
 
 ![Re-entering password to enable two-factor authentication on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/re-entering-password-to-enable-two-factor-authentication-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Set Up Alerts for Unrecognized Logins
 
  You should also set up alerts for unrecognized logins. By enabling the feature, Facebook will notify you if it sees a login from a suspicious source. It will allow you to react more quickly in the event of a breach.
@@ -147,17 +107,12 @@ To set up the feature:
 ![setting up login alerts on Facebook for desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/setting-up-login-alerts-on-facebook-for-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### How to Log Out of All Devices
 
  This final step logs you out of all devices except for the one you're currently using.
@@ -168,6 +123,20 @@ To set up the feature:
 4. Now click**Select all** in the top-right corner of the list and click the **Log out** button.
 
 ![Logging out of all devices on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/logging-out-of-all-devices-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Has Your Facebook Account Been Breached?
 
@@ -186,14 +155,11 @@ Let's quickly summarize what we have learned:
 
  For example, don't use the same password on two different sites, use 2FA where available, and don't access highly sensitive data on either public computers or public Wi-Fi networks. Always use a VPN, especially when using a public Wi-Fi network.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -202,4 +168,18 @@ Let's quickly summarize what we have learned:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/blending-memories-a-guide-to-online-photo-collage-crafting/"><u>Blending Memories: A Guide to Online Photo Collage Crafting</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-locations-to-uncover-freelancing-gigs/"><u>Critical Locations to Uncover Freelancing Gigs</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-teamwork-with-facebook-connectivity/"><u>Enhancing Teamwork with Facebook Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chat-vs-linkedin-connect-group-benefits-evaluated/"><u>Facebook Chat Vs. LinkedIn Connect: Group Benefits Evaluated</u></a></li>
+<li><a href="https://games-able.techidaily.com/game-disconnect-no-more-ejecting-games-in-series-x/"><u>Game Disconnect No More! Ejecting Games in Series X</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-discerning-true-value-from-recordcasts-promises/"><u>In 2024, Discerning True Value From RecordCast’s Promises</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-navigating-the-world-of-tweets-starting-fresh/"><u>In 2024, Navigating the World of Tweets Starting Fresh</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-tech-savvy-strategies-recording-gotomeeting-on-any-gear/"><u>In 2024, Tech-Savvy Strategies Recording GoToMeeting on Any Gear</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-your-images-on-social-media-hub/"><u>Protecting Your Images on Social Media Hub</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-guide-corrective-measures-for-the-advapi3j2-dll-file-absence-error/"><u>The Ultimate Guide: Corrective Measures for the Advapi3j2 Dll File Absence Error</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/zooming-in-on-podcast-quality-an-ultimate-video-recording-guidebook/"><u>Zooming In on Podcast Quality An Ultimate Video Recording Guidebook</u></a></li>
+</ul></div>
 

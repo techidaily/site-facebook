@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2024-10-27T17:16:52.531Z
-updated: 2024-11-01T16:51:44.288Z
+date: 2024-11-06T09:13:06.953Z
+updated: 2024-11-07T04:06:42.749Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -66,17 +66,22 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-gamers-quest-1000plus-game-adventures-unfolded/"><u>[New] 2024 Approved Gamer's Quest 1,000+ Game Adventures Unfolded</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-ascend-in-the-youtube-arena-through-creative-studio-mastery/"><u>[New] Ascend in the YouTube Arena Through Creative Studio Mastery</u></a></li>
-<li><a href="https://win-data.techidaily.com/excel-excel/"><u>自動でExcelデータをコピー保存する手順 - Excelファイル効率化ガイド</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-group-creation-in-social-media-landscape/"><u>Mastering Group Creation in Social Media Landscape</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-danger-zone-recognizing-and-evade-online-trading-scams/"><u>Navigating the Danger Zone: Recognizing & Evade Online Trading Scams</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/professionals-choice-leading-video-editors-for-sierra/"><u>Professional's Choice Leading Video Editors for Sierra</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-process-of-granting-access-in-facebook/"><u>The Process of Granting Access in Facebook</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-selecting-a-quality-projector-what-you-need-to-know/"><u>The Ultimate Guide to Selecting a Quality Projector – What You Need to Know</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/topmost-comfortable-ergonomic-keyboard-models/"><u>Topmost Comfortable Ergonomic Keyboard Models</u></a></li>
-<li><a href="https://blog-min.techidaily.com/understanding-the-winxdvd-eula-by-digiarty-software-key-points-revealed/"><u>Understanding the WinXDVD EULA by Digiarty Software - Key Points Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-power-of-photo-descriptions-on-social-media/"><u>Unveiling the Power of Photo Descriptions on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-ultimate-guide-to-fb-visual-privacy-control/"><u>Your Ultimate Guide to FB Visual Privacy Control</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-saving-big-on-vr-equipment-from-china/"><u>[Updated] Saving Big on VR Equipment From China</u></a></li>
+<li><a href="https://techidaily.com/1724312958750-abbyy/"><u>「言語無関係な請求書管理 - フレックスキャプチャABBYYの日本語対応完了！」</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-social-medias-biggest-loser-facebooks-users/"><u>Analyzing Social Media's Biggest Loser: Facebook’s Users</u></a></li>
+<li><a href="https://driver-install.techidaily.com/blend-hp-envy-5530-software-into-win10-device/"><u>Blend HP Envy 5530 Software Into Win10 Device</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpts-role-in-enhancing-creative-writing-skills-6-techniques-to-try/"><u>ChatGPT's Role in Enhancing Creative Writing Skills: 6 Techniques to Try</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-the-ban-facebook-board-assessment-of-executive-decision/"><u>Curbing the Ban: Facebook Board Assessment of Executive Decision.</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-support-for-nfts-in-meta-drops-trial-phase/"><u>Cutting-Edge Support for NFTs in Meta Drops Trial Phase</u></a></li>
+<li><a href="https://facebook.techidaily.com/did-a-facebook-error-expose-our-conversational-numbers-unintentionally/"><u>Did a Facebook Error Expose Our Conversational Numbers Unintentionally?</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-your-phone-number-been-leaked-through-facebook/"><u>Has Your Phone Number Been Leaked Through Facebook?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-105-classic-phone-without-pin-by-drfone-android/"><u>How to Unlock Nokia 105 Classic Phone without PIN</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/imessageiphonepc/"><u>IMessage通知のデジタルアーカイブ化:iPhoneからPCへの簡単手順</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-10-must-have-strategies-for-podcast-visuals-excellence/"><u>In 2024, 10 Must-Have Strategies for Podcast Visuals Excellence</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-full-exploration-new-features-in-videoshow-app-24/"><u>In 2024, Full Exploration New Features in VideoShow App '24</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-mastery-unlock-the-potential-of-hashtags-for-fb-success/"><u>Social Media Mastery: Unlock the Potential of Hashtags for FB Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quiet-after-deactivating-your-fb-page/"><u>The Quiet After Deactivating Your FB Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-do-you-see-these-specific-fb-advertisements/"><u>Why Do You See These Specific FB Advertisements?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Understanding VK: Russia’s Answer to Global Social Sites"
-date: 2024-09-05T09:31:20.459Z
-updated: 2024-09-06T09:31:20.459Z
+date: 2024-11-03T02:58:59.453Z
+updated: 2024-11-07T02:01:32.399Z
 tags:
   - facebook
 categories:
@@ -23,18 +23,6 @@ thumbnail: https://thmb.techidaily.com/7572b835422df4a46e1dde0ebf1594c94500d035c
 
 ![VK is the most popular social media site in Russia.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk.png)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Image Credit:[Statista](https://www.statista.com/statistics/284447/russia-social-network-penetration/)
 
  With Facebook coming in at number four (behind VK and other popular social media sites Odnoklassniki and Instagram), VK actually has its closest competitor beat by nearly twofold in terms of monthly messages and posts exchanged between users.
@@ -46,11 +34,12 @@ thumbnail: https://thmb.techidaily.com/7572b835422df4a46e1dde0ebf1594c94500d035c
 ![Distribution of VK users by age groups.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/vk-users-by-age.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Image Credit:[ResearchGate](https://www.researchgate.net/figure/Distribution-of-VK-users-by-age-groups%5Ffig3%5F321459360)
 
  The majority of VK users are between the ages of 25 to 34\. This is an interesting demographic wedge to be dialed into, given that Facebook's users are mostly ages 35 and up.
@@ -70,16 +59,24 @@ Some potential explanations for this difference include:
 ![Creating a profile on VK.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk-social-media.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  To name one example, the sign-up process asks that you add your education to your profile. I expected to drop my university's name in and move on.
 
  This website actually continued to show me a list of the individual schools and colleges within my university; some of these were departments that even I had never heard of. After that, it asked me my major and even went on to specify which emphasis I chose for my degree.
 
  This level of detail carries over to nearly every part of your profile. By collecting data in this way, VK can unite me not only with others in my graduating class currently living in my city, but with those who participated in my program of study specifically.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. VK Has a Complicated Political History
 
@@ -90,17 +87,12 @@ Some potential explanations for this difference include:
  Needless to say, things got complicated. Durov was eventually coerced into forfeiting his stake in the company in 2014\. Everything went to Alisher Usmanov, the richest man in Russia at the time.
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Russian Users Believe VK is Better than Facebook
 
  Call it a healthy sense of nationalism or simply a matter of convenience, most Russians simply prefer VK to Facebook. Sorry, Mark Zuckerberg.
@@ -109,36 +101,12 @@ Some potential explanations for this difference include:
 
  Related:[The Top 20 Social Media Apps and Sites in 202](https://www.makeuseof.com/tag/top-social-media-apps-sites/)
 
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. VK Has Suffered Major Security Breaches
 
  In June 2016, VK actually experienced a significant[security breach](https://www.makeuseof.com/historic-data-breaches/) , exposing the data of over 171 million users.
 
  Included in the spoils: names, email addresses, passwords, and other sensitive contact information, all found being sold on the dark web shortly after. VK isn't the first, nor the last. Still, it makes you think. We should always be careful about what we share online, even on a website as huge as this one.
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. The Most Common Password on VK is "123456"
 
  One insight gleaned from the breach described above is that[the most common password on VK is "123456"](https://www.makeuseof.com/tag/7-password-mistakes-will-likely-get-hacked/) . If you're guilty of that, change your password now.
@@ -161,26 +129,17 @@ Some potential explanations for this difference include:
 
  It's a brilliant ethos to live by; VK keeps things comfortable and consistent, just like an old blanket.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## There's a World Outside of Facebook
 
  VK is a streamlined and serene experience, far from the ones that we're familiar with, all punctuated by the out-loud-and-proud stylings of TikTokers and Instagram influencers dying to make a name for themselves.
 
  If you've got friends in Russia or Ukraine, this site is a great way to connect. Even if you don't, the brand's legacy offers westerners an uncanny glimpse through the looking glass. We could have sworn that we were staring at a circa 2014 Facebook splash page immediately after logging on.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -189,4 +148,26 @@ Some potential explanations for this difference include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-zoom-assisted-video-production-for-tiktok/"><u>[New] 2024 Approved Zoom-Assisted Video Production for TikTok</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-enhance-music-mixing-with-our-comprehensible-online-tempo-tools/"><u>[New] In 2024, Enhance Music Mixing with Our Comprehensible Online Tempo Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitter-jokes-made-accessible-with-3-simple-steps-pc/"><u>[New] In 2024, Twitter Jokes Made Accessible with 3 Simple Steps (PC)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-maximizing-creativity-find-your-next-project-on-these-top-12-photo-websites/"><u>[Updated] Maximizing Creativity - Find Your Next Project on These Top 12 Photo Websites</u></a></li>
+<li><a href="https://games-able.techidaily.com/adraise-the-curtain-on-amd-rdna-35-when-to-expect/"><u>ADRaise the Curtain on AMD RDNA 3.5 - When to Expect?</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-eloquence-your-guide-to-the-top-30-social-media-abbreviations/"><u>Engaging Eloquence: Your Guide to the Top 30 Social Media Abbreviations</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-install-intel-network-drivers-on-windows/"><u>How to Install Intel Network Drivers on Windows</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Samsung Galaxy A05? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-conversations-leveraging-the-latest-soundemojis/"><u>Innovative Conversations: Leveraging the Latest Soundemojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-health-alert-rethinking-our-screen-time-habits/"><u>Instagram's Health Alert: Rethinking Our Screen Time Habits</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-telegrams-ascension-during-facebook-breakdown/"><u>Investigating Telegram’s Ascension During Facebook Breakdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/lost-entry-key-let-us-reacquaint-you-with-facebook-access/"><u>Lost Entry Key? Let Us Reacquaint You with Facebook Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-social-strength-3-reasons-for-concern/"><u>Meta’s Social Strength: 3 Reasons for Concern</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-online-video-editing-essentials-download-edit-and-publish-like-a-pro-for-2024/"><u>New Online Video Editing Essentials Download, Edit, and Publish Like a Pro for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/securely-detach-spotify-from-your-facebook-profile/"><u>Securely Detach Spotify From Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-duo-boosting-earnings-on-facebook-and-instagram-together/"><u>The Power Duo: Boosting Earnings on Facebook & Instagram Together</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-add-and-edit-background-music-to-video-with-filmora/"><u>Updated In 2024, Add & Edit Background Music to Video with Filmora</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-did-giants-of-connectivity-go-dark/"><u>Why Did Giants of Connectivity Go Dark?</u></a></li>
+</ul></div>
 

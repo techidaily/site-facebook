@@ -1,7 +1,7 @@
 ---
 title: "Social Media Standstill: Facebook & Co.'s 6-Hour Pause"
-date: 2024-10-28T16:26:41.599Z
-updated: 2024-11-01T17:31:56.767Z
+date: 2024-11-01T19:22:13.404Z
+updated: 2024-11-07T03:28:22.622Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
@@ -62,10 +62,10 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
@@ -89,18 +89,20 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-metrics-top-10-instagram-tags-right-now/"><u>[New] Mastering Metrics Top 10 Instagram Tags Right Now</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-tricks-for-swift-vimeo-watch-for-2024/"><u>[New] Tricks for Swift Vimeo Watch for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-superior-hd-recording-systems/"><u>2024 Approved Superior HD Recording Systems</u></a></li>
-<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-vivo-v30-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Vivo V30 Isnt Compatible | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1721978090676-android-app-revolution-meet-the-new-ai-companion-chatgpt/"><u>Android App Revolution: Meet the New AI Companion, ChatGPT</u></a></li>
-<li><a href="https://win-webster.techidaily.com/1728503554521-aomei-fonebackup-iphone/"><u>AOMEI FoneBackup: 全面輸入方法保護您的iPhone</u></a></li>
-<li><a href="https://facebook.techidaily.com/erasing-a-profile-a-guide-to-page-blocking-on-facebook/"><u>Erasing a Profile: A Guide to Page Blocking on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/monetize-mastery-unveiling-instagrams-fresh-earnings-opportunities/"><u>Monetize Mastery: Unveiling Instagram's Fresh Earnings Opportunities</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/reviving-your-iphone-top-5-methods-for-repairing-damaged-or-unreadable-backup-files/"><u>Reviving Your iPhone: Top 5 Methods for Repairing Damaged or Unreadable Backup Files</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-pulse-drive-interest-in-your-fb-congregation/"><u>Social Pulse: Drive Interest in Your Fb Congregation</u></a></li>
-<li><a href="https://facebook.techidaily.com/thread-closure-coming-this-december-on-instagram/"><u>Thread Closure Coming This December on Instagram</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unbeatable-deal-alert-apples-m2-mac-mini-now-just-479-find-out-why-tech-experts-are-buzzing-on-zdnet/"><u>Unbeatable Deal Alert: Apple's M2 Mac Mini Now Just $479 - Find Out Why Tech Experts Are Buzzing on ZDNet</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/viral-hits-top-10-video-watches-in-an-hour-for-2024/"><u>Viral Hits Top 10 Video Watches in an Hour for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/inding-your-youtube-stored-melodies-easily/"><u>[New] Finding Your YouTube-Stored Melodies Easily</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-determining-view-counts-direct-effect-on-creator-revenue/"><u>[New] In 2024, Determining View Count's Direct Effect on Creator Revenue</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-record-and-evaluate-speech-files/"><u>[Updated] Record & Evaluate Speech Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/encrypting-convo-on-fb-and-ig-delayed-to-next-years-start/"><u>Encrypting Convo on FB & IG Delayed to Next Year's Start</u></a></li>
+<li><a href="https://facebook.techidaily.com/entryway-to-metas-account-administration-shelter/"><u>Entryway to Meta's Account Administration Shelter</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-new-reality-3-potential-pitfalls/"><u>Exploring Facebook’s New Reality: 3 Potential Pitfalls</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-chats-to-check-ins-downloading-your-entire-facebook-story/"><u>From Chats to Check-Ins: Downloading Your Entire Facebook Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-hush-zones-no-facebook-in-these-areas/"><u>Global Hush Zones: No Facebook in These Areas</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-revealing-gone-reddit-content-a-time-savers-guide/"><u>In 2024, Revealing Gone-Reddit Content A Time Saver's Guide</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-uninstall-guide-windows-11s-best-practices-102-chars/"><u>Quick Uninstall Guide: Windows 11'S Best Practices (102 Chars)</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-facebook-shortcut-tailoring-made-simple/"><u>Step-by-Step Facebook Shortcut Tailoring Made Simple</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/total-solution-for-your-iphone-needs-swiftly-tackle-all-ios-problems/"><u>Total Solution for Your iPhone Needs: Swiftly Tackle All iOS Problems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tough-and-bright-sunbritetv-55-inch-4k-hdr-veranda-tv-designed-to-endure-the-elements/"><u>Tough & Bright SunBriteTV 55-Inch 4K: HDR Veranda TV Designed to Endure the Elements</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-hidden-content-redoing-deleted-fb-posts/"><u>Unveiling Hidden Content: Redoing Deleted FB Posts</u></a></li>
 </ul></div>
 

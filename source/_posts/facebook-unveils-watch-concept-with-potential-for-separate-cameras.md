@@ -1,7 +1,7 @@
 ---
 title: Facebook Unveils Watch Concept with Potential for Separate Cameras
-date: 2024-09-10T14:50:08.609Z
-updated: 2024-09-11T14:50:08.609Z
+date: 2024-11-01T05:50:44.068Z
+updated: 2024-11-06T19:21:39.859Z
 tags:
   - facebook
 categories:
@@ -19,20 +19,6 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
 
  While most companies tend to design smartwatches to complement smartphones with their functionality, Facebook is taking a different approach. The company reportedly wants its smartwatch to be used in a similar fashion as smartphones.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Facebook's Smartwatch Could Feature Two Detachable Cameras
 
  A report from[The Verge](https://www.theverge.com/2021/6/9/22526266/facebook-smartwatch-two-cameras-heart-rate-monitor) claims that Facebook's smartwatch will have two detachable cameras, one at the front and another at the back. The front camera will be primarily used for video calling purposes.
@@ -43,37 +29,16 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
 
 ![facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-ui.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Facebook's smartwatch will run a customized version of Android. The company will be working with its partners and offer its own suite of apps to deliver a feature-rich user experience. It will launch a companion smartphone app for the watch as well.
 
  The report is light on the smartwatch's health tracking feature, but it will feature a heart rate monitor.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Facebook Could Still Scrap Its Smartwatch
 
@@ -87,33 +52,19 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
 
 ![Transfer Facebook posts and notes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/transfer-posts-notes-facebook-featured.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## This Will Be an Uphill Battle for Facebook
 
@@ -121,14 +72,11 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
 
  However, this will be an uphill battle for Facebook since many people are not comfortable sharing too much data with the company, given its[handling of user data in the past](https://www.makeuseof.com/whatsapp-forces-share-data-with-facebook/) . Many consumers might not be too comfortable with a Facebook smartwatch having access to their health data and other key metrics.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +85,18 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-getting-started-on-youtube-broadcasts-using-obs/"><u>[New] 2024 Approved Getting Started on YouTube Broadcasts Using OBS</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-transforming-virtual-worlds-enhancing-spark-ar-with-custom-luts/"><u>[New] Transforming Virtual Worlds Enhancing Spark AR with Custom LUTs</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-foremost-non-udemy-virtual-learning-experiences-reviewed/"><u>[Updated] 2024 Approved The Foremost Non-Udemy Virtual Learning Experiences Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/english-soccer-teams-are-boycotting-social-media-over-online-abuse/"><u>English Soccer Teams Are Boycotting Social Media Over Online Abuse</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-digital-representation-now-with-oculus/"><u>Enhanced Digital Representation Now With Oculus</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-suggestion-system-what-it-means-for-you/"><u>Facebook’s Suggestion System: What It Means for You</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/gary-weighs-in-exceptional-ms-sql-support-by-stellar-experts/"><u>Gary Weighs In: Exceptional MS SQL Support by Stellar Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonizing-social-media-and-playlists-facebooks-boombox-revelation/"><u>Harmonizing Social Media and Playlists: Facebook's Boombox Revelation</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Lava Agni 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-realme-c51-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Realme C51 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-assessment-pros-and-cons-of-facebook-events/"><u>The Impact Assessment: Pros & Cons of Facebook Events</u></a></li>
+</ul></div>
 

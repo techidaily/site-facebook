@@ -1,7 +1,7 @@
 ---
 title: Overlooked Technology Moments, Here's What You Missed Out!
-date: 2024-09-10T14:50:08.199Z
-updated: 2024-09-11T14:50:08.199Z
+date: 2024-11-03T06:11:59.007Z
+updated: 2024-11-07T09:59:54.622Z
 tags:
   - facebook
 categories:
@@ -23,20 +23,6 @@ thumbnail: https://thmb.techidaily.com/86eaf732ac0282547acec52c64c3976ebfde5c25b
 
 ![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Image Credit: u/lucushoule/[Reddit](https://www.reddit.com/r/wallstreetbets/comments/g5n0nz/made%5Fthis%5Fwsb%5Fkid%5Fgif%5Ffor%5Feveryone%5Fuse%5Fit%5Fas%5Fyou/)
 
  Making big money in stock trading is usually the domain of hedge funds and professional stock traders. However, one week in January 2021 destroyed this notion when investors from the subreddit r/wallstreetbets beat the professionals at their own game.
@@ -49,43 +35,9 @@ thumbnail: https://thmb.techidaily.com/86eaf732ac0282547acec52c64c3976ebfde5c25b
 
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## The $2.9 Million Tweet
 
 ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
@@ -97,23 +49,29 @@ thumbnail: https://thmb.techidaily.com/86eaf732ac0282547acec52c64c3976ebfde5c25b
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to[professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Welcome to the Metaverse
 
 ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
@@ -125,43 +83,23 @@ thumbnail: https://thmb.techidaily.com/86eaf732ac0282547acec52c64c3976ebfde5c25b
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Apple and Facebook's Privacy War
 
 ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
@@ -179,14 +117,11 @@ thumbnail: https://thmb.techidaily.com/86eaf732ac0282547acec52c64c3976ebfde5c25b
 
  And as we march into the new year, we can look back at these developments and see the changes they will bring to our society.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -195,4 +130,24 @@ thumbnail: https://thmb.techidaily.com/86eaf732ac0282547acec52c64c3976ebfde5c25b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-djis-sky-high-adventure-a-compreranal-of-the-pro-model-for-2024/"><u>[New] DJI’s Sky-High Adventure A Compreranal of the Pro Model for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-gamers-guide-to-seamless-screen-recording/"><u>[New] Gamers' Guide to Seamless Screen Recording</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-sizzling-social-hot-food-trends-on-tiktok-for-2024/"><u>[New] Sizzling Social Hot Food Trends on TikTok for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-shareable-podcast-episodes-on-instagram-platforms/"><u>2024 Approved Shareable Podcast Episodes on Instagram Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-subscription-strategy-overshadows-traditional-app-purchase-approaches/"><u>Facebook’s Subscription Strategy Overshadows Traditional App Purchase Approaches</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-fix-house-flipper-2-crashing-on-pc/"><u>How to Fix House Flipper 2 Crashing on PC</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-best-fb-video-extractors-for-ios-devices-ranked-1/"><u>In 2024, Best FB Video Extractors for iOS Devices Ranked #1</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-tecno-pop-8-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Tecno Pop 8 to iPad | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/seamless-screen-drivers-in-win10/"><u>Seamless Screen Drivers in Win10</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-7-ultimate-tools-for-organizing-your-feeds-timeline/"><u>The 7 Ultimate Tools for Organizing Your Feed's Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-insight-into-facebook-dating-system/"><u>The Insight Into Facebook Dating System</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pros-and-cons-of-dislike-features-online/"><u>The Pros & Cons of 'Dislike' Features Online</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/transform-your-vintage-gaming-journey-integrating-trophies-via-retroarch/"><u>Transform Your Vintage Gaming Journey: Integrating Trophies via Retroarch</u></a></li>
+<li><a href="https://facebook.techidaily.com/transformation-facebook-staff-now-referred-as-metamates/"><u>Transformation: Facebook Staff Now Referred as 'Metamates'</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-mystery-ios-145s-effect-on-social-networks/"><u>Unlocking the Mystery: IOS 14.5'S Effect on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-reason-behind-my-favorite-fb-ads/"><u>Unraveling the Reason Behind My Favorite FB Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-web-discovering-facebooks-linked-pages/"><u>Unveiling the Web: Discovering Facebook's Linked Pages</u></a></li>
+</ul></div>
 

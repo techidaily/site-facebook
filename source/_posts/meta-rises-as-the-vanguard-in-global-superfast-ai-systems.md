@@ -1,7 +1,7 @@
 ---
 title: Meta Rises as the Vanguard in Global Superfast AI Systems
-date: 2024-09-05T09:31:37.734Z
-updated: 2024-09-06T09:31:37.734Z
+date: 2024-10-30T18:21:50.265Z
+updated: 2024-11-06T21:53:19.464Z
 tags:
   - facebook
 categories:
@@ -13,40 +13,16 @@ keywords: AI SuperSpeed Leaders,Meta Global Innovation,Fast AI Tech Vanguard,Met
 thumbnail: https://thmb.techidaily.com/5648c434c12cbf88b15506d6d23b8724252689511d16fa18d7a28833e2a6d9c5.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Meta Rises as the Vanguard in Global Superfast AI Systems
 
  If you're curious about the metaverse or anything that Meta is doing around that, you'll probably be excited to know that the company is working on an AI supercomputer.
 
  Meta has announced that it is building the world's fastest AI supercomputer, which will aid its plans to build the metaverse. But why exactly is Meta Building the fastest AI supercomputer in the world? Keep reading to find out.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Meta Announces AI Supercomputer
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Meta has announced an AI supercomputer called "the AI Research SuperCluster" (RSC).
 
  Kevin Lee, Technical Program Manager at Meta, announced the supercomputer in a blog post, which read:
@@ -62,21 +38,23 @@ thumbnail: https://thmb.techidaily.com/5648c434c12cbf88b15506d6d23b8724252689511
  Read more:[The Facebook Metaverse, Explained (And Why You Should Care)](https://www.makeuseof.com/facebook-metaverse-explained/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Why Meta Is Building the Fastest AI Supercomputer in the World
 
 ![A man typing on a computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/pexels-eduardo-dutra-2115217.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  We've established that Meta's AI supercomputer is the virtual groundwork for building its ultimate metaverse. Now let's look at why Meta is building the fastest AI supercomputer in the world, starting with the context for the RSC.
 
  As stated in the blog post, Meta has been investing in AI for years, but the AI supercomputer is a fresh start towards achieving Meta's AI goals:
@@ -94,25 +72,23 @@ thumbnail: https://thmb.techidaily.com/5648c434c12cbf88b15506d6d23b8724252689511
  Meta believes this is the first time the company is tackling performance, reliability, security, and privacy at such a scale.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Meta Is Betting Big on the Metaverse
 
  Meta's founder Mark Zuckerberg has talked extensively about his vision and plans for the metaverse. The more he shares those plans, the more excited we are to see how they'll turn out.
 
  Meta's announcement of its AI supercomputer is just one more piece of information that makes the picture clearer in our heads—it's another way the company is showing its continued commitment to making the metaverse a reality.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,4 +97,20 @@ thumbnail: https://thmb.techidaily.com/5648c434c12cbf88b15506d6d23b8724252689511
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-secrets-to-writing-compelling-vlog-dialogues/"><u>[New] Secrets to Writing Compelling Vlog Dialogues</u></a></li>
+<li><a href="https://win-dash.techidaily.com/comprehensive-guide-fresh-install-and-upgrade-of-huion-graphics-tablet-software-for-windows-users/"><u>Comprehensive Guide: Fresh Install and Upgrade of Huion Graphics Tablet Software for Windows Users</u></a></li>
+<li><a href="https://win-answers.techidaily.com/effective-techniques-to-overcome-lagging-in-video-games-tips/"><u>Effective Techniques to Overcome Lagging in Video Games - Tips</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-your-logitech-bluetooth-mouse-driver-on-windows-pcs-here/"><u>Get Your Logitech Bluetooth Mouse Driver on Windows PCs Here!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-updated-broadcom-bluetooth-drivers-for-windows-11-8-and-7-easy-guide/"><u>Get Your Updated Broadcom Bluetooth Drivers for Windows 11, 8 & 7 - Easy Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-on-fixing-the-stutter-in-fb-notifications/"><u>Guidelines on Fixing the Stutter in FB Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/hear-and-engage-more-facebooks-updated-audio-platform/"><u>Hear and Engage More: Facebook's Updated Audio Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-will-transparency-affect-your-digital-interactions/"><u>How Will Transparency Affect Your Digital Interactions?</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-privacy-exiting-facebook-groups/"><u>Securing Privacy: Exiting Facebook Groups</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-in-depth-technique-for-formulating-youtube-playlists-for-2024/"><u>The In-Depth Technique for Formulating YouTube Playlists for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-smart-shower-systems/"><u>Top Rated Smart Shower Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-seeks-justice-against-g-f-t-for-censorship-claims/"><u>Trump Seeks Justice Against G-F-T for Censorship Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-not-everyone-is-still-checking-into-fb-today/"><u>Why Not Everyone Is Still Checking Into FB Today</u></a></li>
+</ul></div>
 

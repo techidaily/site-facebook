@@ -1,7 +1,7 @@
 ---
 title: Facebook Foresees Fresh Approach Towards Teen Instagram Habits
-date: 2024-09-05T09:31:22.577Z
-updated: 2024-09-06T09:31:22.577Z
+date: 2024-11-02T02:45:56.009Z
+updated: 2024-11-07T03:03:59.623Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,6 @@ keywords: Teen Instagram Usage Trends,Facebook & Youth Engagement,Instagram's Ne
 thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d2162e7b2d2d4b3ce7e2a13800.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook Foresees Fresh Approach Towards Teen Instagram Habits
 
  Facebook is planning to introduce new measures to make its platforms safer for children amid increasing pressure over its effect on young users' mental health.
@@ -27,12 +21,6 @@ thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d21
 
 Here's what to know about the planned Instagram features.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Is the Planned "Take a Break" Feature?
 
  Facebook says it wants to play its part in ensuring that young Instagram users don't spend too much time on the app, so it will be launching a Take a Break feature. The feature will encourage teens to step away from using the app temporarily.
@@ -48,11 +36,12 @@ This feature could possibly address those concerns.
  Related:[Is an Instagram for Kids a Good or Bad Idea? The Pros and Cons](https://www.makeuseof.com/instagram-for-kids-pros-and-cons/)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Nudging Teens Away From Potentially Harmful Content
 
  In addition to prompts to take a break, Facebook will nudge teens away from content that is potentially harmful. When Facebook's systems alert it that a young user is repeatedly viewing or engaging with content that is potentially harmful, Facebook will step in to "nudge" the teen away from that content and turn their attention towards other content.
@@ -64,17 +53,12 @@ Here's how Clegg explained it:
  Related:[Why Instagram Is Forcing You to Add Your Birthday](https://www.makeuseof.com/instagram-forcing-you-add-birthday/)
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Why Is Facebook Introducing These Features?
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
@@ -86,11 +70,12 @@ Here's how Clegg explained it:
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
 
  While Facebook is doing something to help reduce the harm it allegedly causes children on its platforms, these new measures fall short of making a real impact.
@@ -101,14 +86,11 @@ Here's how Clegg explained it:
 
  For instance, since Facebook is aware of what type of content is potentially harmful, it should work on not showing that content to children in the first place, instead of intervening after it has been viewed multiple times.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,4 +99,22 @@ Here's how Clegg explained it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-unleashing-wit-within-walls-a-guide-to-crafting-metaverse-jokes/"><u>[New] 2024 Approved Unleashing Wit Within Walls – A Guide to Crafting Metaverse Jokes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unveiling-top-techniques-for-mastering-srt-file-generation/"><u>[New] Unveiling Top Techniques for Mastering SRT File Generation</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-mastering-live-show-recordings-the-modern-way-for-2024/"><u>[Updated] Mastering Live Show Recordings The Modern Way for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exciting-virtual-horizons-6-major-changes-ahead-for-fbs-metaverse/"><u>Exciting Virtual Horizons: 6 Major Changes Ahead for FB’s Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-judicial-committee-prepares-to-rule-on-trump-exclusion/"><u>Facebook's Judicial Committee Prepares to Rule on Trump Exclusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/fourfold-tailoring-techniques-for-a-unique-social-media-feed/"><u>Fourfold Tailoring Techniques for a Unique Social Media Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-selfie-to-story-designing-an-fb-cover-with-your-avatar/"><u>From Selfie to Story: Designing an FB Cover With Your Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/handling-late-friends-online-presence-with-sensitivity-and-care/"><u>Handling Late Friends' Online Presence with Sensitivity and Care</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-turn-off-find-my-iphone-6-when-phone-is-broken-drfone-by-drfone-ios/"><u>How to Turn Off Find My iPhone 6 when Phone is Broken? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-4-ways-to-mirror-apple-iphone-se-2020-to-laptop-via-usb-or-wi-fi-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Mirror Apple iPhone SE (2020) to Laptop via USB or Wi-Fi | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-xiaomi-redmi-note-12-5g-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Xiaomi Redmi Note 12 5G to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-interruption-the-impact-of-taking-a-step-back-online/"><u>Instagram Interruption: The Impact of Taking a Step Back Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-void-living-without-online-spaces/"><u>Social Void: Living Without Online Spaces?</u></a></li>
+<li><a href="https://win11.techidaily.com/tackling-windows-update-hurdles-effortlessly/"><u>Tackling Windows Update Hurdles Effortlessly</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-ultimate-guide-learning-creating-with-gpts-my-bot-technology/"><u>The Ultimate Guide: Learning, Creating with GPT's My Bot Technology</u></a></li>
+</ul></div>
 

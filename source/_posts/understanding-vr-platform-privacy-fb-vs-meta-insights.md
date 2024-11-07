@@ -1,7 +1,7 @@
 ---
 title: "Understanding VR Platform Privacy: FB Vs. Meta Insights"
-date: 2024-09-10T14:50:10.259Z
-updated: 2024-09-11T14:50:10.259Z
+date: 2024-11-04T02:05:53.018Z
+updated: 2024-11-07T03:06:21.559Z
 tags:
   - facebook
 categories:
@@ -19,20 +19,6 @@ thumbnail: https://thmb.techidaily.com/d141dd05ed10b1bd39fa40502c6b028dc88f2f05d
 
  Meta eventually announced that Quest users would no longer need a Facebook login. Instead, they could create a Meta account. This solved a lot of those usability problems but, is it more private for users?
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Understanding the Meta Account
 
 [“Meta” is the new name of “Facebook Company”](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) as of October 2021\. This is the conglomerate that owns the social media companies Facebook, Instagram, and WhatsApp. It’s also the conglomerate that purchased VR pioneer Oculus in 2014, and several game studios and other tech companies since then.
@@ -45,43 +31,29 @@ thumbnail: https://thmb.techidaily.com/d141dd05ed10b1bd39fa40502c6b028dc88f2f05d
 
  Some argue that there’s no real difference between using a Meta account and using a Facebook account from a privacy perspective. Others believe that the Meta account requirement is better than a Facebook account requirement. Trying to decide who’s right is less rewarding than presenting both sides of the discussion.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## The Meta Account Requirement Is Not Better
 
  There are a few strong pillars holding up this position. Whether you support it or not, the common ground we all walk on is that Meta owns Facebook.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Meta Gets Your Info Either way
 
  There are a lot of[reasons to be concerned about Facebook](https://www.makeuseof.com/why-do-people-hate-facebook/) . It can be tempting to think that giving your data to anyone else is an improvement. But, Meta owns Facebook anyway. Let’s put it another way:
 
  Suppose that you know someone that you see at work as well as socially. There’s something you’re afraid to tell this person, so you tell them at work. This person might keep your secret around friends (or might not) but either way they still have the information. So, giving your information to Meta might just be giving your information to Facebook wearing a different hat.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Two Accounts for Double the Info
 
@@ -93,29 +65,16 @@ thumbnail: https://thmb.techidaily.com/d141dd05ed10b1bd39fa40502c6b028dc88f2f05d
 
  It could be argued that these are moot points as far as the Meta account is concerned. After all, these things are required for a VR headset and ecosystem. So, they aren’t new concerns since Meta accounts appeared, as they’ve been true since Facebook bought Oculus. They’ve even been true since Meta replaced the Oculus login with a Facebook login.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Meta Requirement Is Better
 
  Despite all of the criticisms of the move, Facebook accounts and Meta accounts are different. Yes, that does make a difference.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### VR and Social Media Are Different
 
@@ -123,25 +82,12 @@ thumbnail: https://thmb.techidaily.com/d141dd05ed10b1bd39fa40502c6b028dc88f2f05d
 
 ![Personal information fields for a Meta account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/How-much-do-you-share.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Now, think about the information that you enter into a VR account – arguably about the same as you enter into a game console at this point. Maybe your real name, maybe not. Maybe your personal friends, maybe not. Payment info, probably. Probably not your family. Probably not where you work. Probably not what you think and believe.
 
@@ -153,34 +99,17 @@ thumbnail: https://thmb.techidaily.com/d141dd05ed10b1bd39fa40502c6b028dc88f2f05d
 
  If you want to use a Quest but[deleted your Facebook account](https://www.makeuseof.com/delete-facebook-on-android/) or never had one, you can do that now. Before, the only option was to create a Facebook account just to use your Quest.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Pick Your Poison
 
  For most people, this is an academic exercise. Most people don’t think twice about giving data in exchange for services because that’s just how the world works these days. If you’re more discerning, you have some thinking to do.
 
  It’s true that using a VR headset means giving some of your info to someone. And it’s true that, if you want to use Quest, that means giving some of your info to Meta. However, giving info to Meta no longer means giving your info to Facebook. That’s particularly true if you use Meta and Facebook in ways that are mindful of your data privacy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -189,4 +118,20 @@ thumbnail: https://thmb.techidaily.com/d141dd05ed10b1bd39fa40502c6b028dc88f2f05d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-constructing-characters-settings-and-stories/"><u>[New] In 2024, Constructing Characters, Settings & Stories</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/op-10plus-free-video-intro-makers-for-youtubers/"><u>[New] Top 10+ Free Video Intro Makers for Youtubers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-quickly-uncover-lately-watched-facebook-videos/"><u>[Updated] In 2024, Quickly Uncover Lately Watched Facebook Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/exploring-the-best-10-editors-to-craft-professional-reels-for-2024/"><u>Exploring the Best 10 Editors to Craft Professional Reels for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-find-old-posts-on-your-facebook-timeline/"><u>How to Find Old Posts on Your Facebook Timeline</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-itel-s23plus-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Itel S23+.</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-googles-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Googles Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-approaches-for-striking-fb-cover-pics/"><u>Innovative Approaches for Striking FB Cover Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-your-way-through-facebooks-725-million-payout/"><u>Navigating Your Way Through Facebook's $725 Million Payout</u></a></li>
+<li><a href="https://facebook.techidaily.com/receive-instagram-2fa-codes-directly-on-whatsapp/"><u>Receive Instagram 2FA Codes Directly on WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-experts-guide-unveiling-hidden-online-communities/"><u>The Expert's Guide: Unveiling Hidden Online Communities</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/truth-unveiled-no-gpt-windows-client-is-not-malware/"><u>Truth Unveiled: No, GPT-Windows Client Is Not Malware</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-shadowban-strategies-for-avoidance/"><u>Understanding Shadowban: Strategies for Avoidance</u></a></li>
+</ul></div>
 

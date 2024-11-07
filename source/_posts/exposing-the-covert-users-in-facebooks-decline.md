@@ -1,7 +1,7 @@
 ---
 title: Exposing the Covert Users in Facebook's Decline
-date: 2024-09-05T09:31:20.971Z
-updated: 2024-09-06T09:31:20.971Z
+date: 2024-11-05T09:47:30.617Z
+updated: 2024-11-07T08:21:52.266Z
 tags:
   - facebook
 categories:
@@ -19,18 +19,6 @@ thumbnail: https://thmb.techidaily.com/25e355cfe41e9e10950c631e4aa9da16590e30c12
 
  For a company that has grown so rapidly since its inception, this might come as a shock. But, what's more important is the number of users that Facebook has actually lost and if this is something they should worry about.
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## So How Many Users Have Facebook Lost?
 
  The[2021 Q4 earnings report of Meta](https://app.quotemedia.com/data/downloadFiling?webmasterId=90423&ref=116418952&type=PDF&symbol=FB&companyName=Meta+Platforms+Inc.&formType=10-K&formDescription=Annual+report+pursuant+to+Section+13+or+15%28d%29&dateFiled=2022-02-03&CK=1326801) showed that Facebook’s daily active users (DAUs) have shrunk from 1.930 billion to around 1.929 billion. This means that Facebook lost between 500,000 and one million users, depending on the news source.
@@ -46,27 +34,23 @@ thumbnail: https://thmb.techidaily.com/25e355cfe41e9e10950c631e4aa9da16590e30c12
  Talking about other metrics, the monthly active users saw a rise of two million—which is again negligible. Meta’s revenue grew from $29.01 billion in Q3 2021 to $33.67 billion in the next quarter. But the lower-than-expected net income and forecast caused Meta's share price to plunge.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Mark Zuckerberg's Statement on Losing Users
 
 ![mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Credits:[Anthony Quintano via Flickr](https://www.flickr.com/photos/quintanomedia/47774197691)
 
  In the[fourth-quarter earnings call](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2021/q4/Meta-Q4-2021-Earnings-Call-Transcript.pdf) , Mark Zuckerberg acknowledged the competition his company has been facing from TikTok. With Facebook pushing Reels aggressively to the Newsfeed, it's evident that the company is trying to capture the short video market.
@@ -75,22 +59,17 @@ thumbnail: https://thmb.techidaily.com/25e355cfe41e9e10950c631e4aa9da16590e30c12
 
  But TikTok is not the only[reason for Facebook's declining users](https://www.makeuseof.com/why-facebook-is-losing-users/) . Lack of interest among the younger population, no markets to expand into, and its controversial privacy and tracking policies have all contributed to this trend.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Is Facebook’s End Near?
 
 ![facebook logo fallen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-logo-fallen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  A negligibly-small drop in the number of daily users, and that too for the first time, doesn’t mean that Facebook will fade away anytime soon. The Meta’s expansion into the metaverse will definitely help its flagship product, Facebook.
 
  The reason for declining users is perhaps a graver issue for the site than the drop itself. This slight dip will surely set off alarm bells within the company. Combined with pressure from authorities, the public, and competitors, Facebook might actually reconsider the policies that have brought it under scrutiny and contributed to the drop in users.
@@ -102,17 +81,12 @@ thumbnail: https://thmb.techidaily.com/25e355cfe41e9e10950c631e4aa9da16590e30c12
  As it aggressively promotes Horizon Worlds, VR devices, and Reels, Facebook might regain the interest of young adults—a step which is essential to increase its user base. Moreover, a change in its privacy program and ads infrastructure can also help the platform.
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Facebook's User Loss Is Not as Big as It Seems
 
  Losing half a million daily users, and that too for the first time in 18 years, is surely not a good sign for Facebook. But, thanks to its giant user base, this decline is only a drop in the ocean.
@@ -121,14 +95,11 @@ thumbnail: https://thmb.techidaily.com/25e355cfe41e9e10950c631e4aa9da16590e30c12
 
  But only time will tell if Facebook succeeds in regaining its lost users and the interest among the younger generation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +108,20 @@ thumbnail: https://thmb.techidaily.com/25e355cfe41e9e10950c631e4aa9da16590e30c12
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-win11s-quickest-image-viewing-experience/"><u>[Updated] 2024 Approved Win11's Quickest Image Viewing Experience</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-insider-secrets-to-record-sims-gaming/"><u>[Updated] In 2024, Insider Secrets to Record Sims Gaming</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-realme-c55-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Realme C55 Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-nokia-150-2023-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Nokia 150 (2023) to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/banish-blinky-monitor-phenomenon/"><u>Banish Blinky Monitor Phenomenon</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-access-your-apple-iphone-14-pro-when-you-forget-the-passcode-drfone-by-drfone-ios/"><u>How to Access Your Apple iPhone 14 Pro When You Forget the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-facebook-integrated-apps-and-sites/"><u>Navigating the Maze of Facebook-Integrated Apps and Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-quagmire-of-irksome-online-promotions/"><u>Navigating the Quagmire of Irksome Online Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/poll-indicates-growing-distrust-in-technology-leaders-with-facebook-worst-hit/"><u>Poll Indicates Growing Distrust in Technology Leaders, with Facebook Worst Hit</u></a></li>
+<li><a href="https://facebook.techidaily.com/respect-in-relationships-navigating-facebook-humor/"><u>Respect in Relationships: Navigating Facebook Humor</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-gaming-advantage-unveiling-steams-benefits/"><u>The Ultimate Gaming Advantage: Unveiling Steam’s Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/trend-spotting-hacked-user-habits-drive-oculus-quest-sales/"><u>Trend Spotting: Hacked User Habits Drive Oculus Quest Sales</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/worth-your-while-or-not-a-deep-dive-into-chatgpt-plus-benefits/"><u>Worth Your While or Not? A Deep Dive Into ChatGPT Plus Benefits</u></a></li>
+</ul></div>
 

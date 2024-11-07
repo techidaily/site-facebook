@@ -1,7 +1,7 @@
 ---
 title: How to Optimize Fb Visual Data Control
-date: 2024-10-18T18:13:39.454Z
-updated: 2024-10-20T18:27:21.146Z
+date: 2024-11-02T04:52:46.653Z
+updated: 2024-11-07T10:47:17.427Z
 tags:
   - facebook
 categories:
@@ -41,6 +41,13 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Inline Privacy Controls
 
 ![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
@@ -53,13 +60,6 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Old Photos
 
  OK, so making sure your new photos are private is quite straightforward, but what about your old photos?[Depending on your addiction level](https://www.makeuseof.com/tag/social-media-detox/) , we could be talking about thousands of images.
@@ -67,13 +67,6 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
  Luckily, it is possible to change the privacy level of your old snaps. You have three methods open to you:
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
@@ -85,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
 
  This covers your photos, but also your videos, wall posts, comments, Likes, and other content.
@@ -94,13 +94,6 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 ### Pro Tip: Use the Activity Log
 
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
@@ -123,15 +116,22 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
  In the latest version of Facebook, you need to disable the face recognition feature to prevent the suggestions from appearing. Go to**Settings and Privacy > Settings > Face Recognition** and make sure the setting displays**No** .
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Does Facebook Photo Privacy Concern You?
 
@@ -152,19 +152,17 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-boosting-channel-traffic-with-youtube-backlink-tactics/"><u>[New] 2024 Approved Boosting Channel Traffic with YouTube Backlink Tactics</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-best-mkv-player-for-pc-and-mobile/"><u>[New] Best Mkv Player for PC and Mobile</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-innovation-in-display-tech-top-10-of-4k-displays/"><u>[New] Innovation in Display Tech #Top 10 of 4K Displays</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-how-to-bur-background-in-google-meet/"><u>[Updated] 2024 Approved How to Bur Background in Google Meet</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/correcting-disabled-audio-slider-errors-on-win1011/"><u>Correcting Disabled Audio Slider Errors on Win10/11</u></a></li>
-<li><a href="https://games-able.techidaily.com/crafting-adventures-six-methods-for-gpt-enhanced-dandd-guidance/"><u>Crafting Adventures: Six Methods for GPT-Enhanced D&D Guidance</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-revs-up-conversations-with-innovative-messaging-features-on-messenger-and-instagram/"><u>FB Revs Up Conversations with Innovative Messaging Features on Messenger & Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/hidden-no-more-delete-your-fb-activity-log/"><u>Hidden No More: Delete Your FB Activity Log</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/install-techkey-bluetooth-adapter-supported-on-windows-10-7-and-8-driver-downloads-available/"><u>Install Techkey Bluetooth Adapter – Supported on Windows 10, 7 & 8 - Driver Downloads Available</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-new-age-of-nba-fandom-with-fb-and-twt-partnership/"><u>The New Age of NBA Fandom with FB and Twt Partnership</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-russian-alternative-to-facebook-a-guide-to-vk/"><u>The Russian Alternative to Facebook: A Guide to VK</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-scoop-inside-the-latest-facebook-data-revelations/"><u>The Scoop: Inside the Latest Facebook Data Revelations</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-top-8-new-ai-tools-for-entrepreneurs-unveiling-legit-money-making-ventures/"><u>The Top 8 New AI Tools for Entrepreneurs - Unveiling Legit Money-Making Ventures!</u></a></li>
-<li><a href="https://facebook.techidaily.com/visual-vibes-crafting-an-attractive-profile-image/"><u>Visual Vibes: Crafting an Attractive Profile Image</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-guide-to-incredible-gopro-timelapse-cinematography-mastery/"><u>[New] 2024 Approved Guide to Incredible GoPro Timelapse Cinematography Mastery</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-essential-six-digital-communication-hubs-for-corporate-success/"><u>[New] Essential Six Digital Communication Hubs for Corporate Success</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-premier-list-all-time-great-general-knowledge-shows-24-for-2024/"><u>[New] The Premier List All-Time Great General Knowledge Shows '24 for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-optimal-speech-recognition-the-google-methodology/"><u>2024 Approved Optimal Speech Recognition The Google Methodology</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-google-pixel-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-profits-with-top-4-business-metadata-strategies/"><u>Boosting Profits with Top 4 Business Metadata Strategies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/building-a-successful-brand-presence-through-spotify-advertising-for-2024/"><u>Building a Successful Brand Presence Through Spotify Advertising for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-a-world-without-social-media/"><u>Exploring a World Without Social Media</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-unveiling-the-secrets-of-vimeo-videos-exploring-aspect-ratio-options/"><u>New 2024 Approved Unveiling the Secrets of Vimeo Videos Exploring Aspect Ratio Options</u></a></li>
+<li><a href="https://fox-info.techidaily.com/quick-guide-to-gopro-4k-video-enhancement-for-2024/"><u>Quick Guide to GoPro 4K Video Enhancement for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-competition-us-antitrust-law-updates/"><u>Redefining Competition: U.S. Antitrust Law Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-facebook-polling-in-communities/"><u>The Ultimate Guide to Facebook Polling in Communities</u></a></li>
 </ul></div>
 

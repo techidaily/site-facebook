@@ -1,7 +1,7 @@
 ---
 title: The Case for Dislikes on Digital Platforms
-date: 2024-09-10T14:50:10.807Z
-updated: 2024-09-11T14:50:10.807Z
+date: 2024-11-03T08:20:00.971Z
+updated: 2024-11-07T11:58:25.978Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,19 @@ thumbnail: https://thmb.techidaily.com/a23ef58f3369824904efee9f97817b15b093c9dc4
 
  Let's look at the benefits of not seeing the number of dislikes, starting with YouTube.
 
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Hate Campaigns Leave Less of an Impact
 
  A major reason YouTube shared for[hiding the number of dislikes](https://www.makeuseof.com/youtube-hiding-dislikes-on-videos/) is hate campaigns.
@@ -37,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/a23ef58f3369824904efee9f97817b15b093c9dc4
 
  Also, the creators of the videos garnering the dislikes can still see their number in their analytics. It's the viewers who have no concept of the number.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Less Stress When Posting
 
 ![stressed woman with laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/stressed-woman-with-laptop.jpg)
@@ -46,20 +66,6 @@ thumbnail: https://thmb.techidaily.com/a23ef58f3369824904efee9f97817b15b093c9dc4
  With the new policy on not showing the number of dislikes, however, that doesn't have to be such a major issue as it was before.
 
  Sure, the dislikes will still be there in your analytics, but they won't be there for all to see. And, unless you go looking for them, they won't affect you. So that can make posting a much more stress-free experience.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### It Helps Your Mental Health
 
@@ -81,37 +87,23 @@ What's more, it goes beyond affecting only the poster.
 
  Let's talk about the negatives that follow the action of hiding the dislikes number on posts.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### You Can't Discern Helpfulness
 
 ![how to video on youtube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/how-to-video.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  By having the dislikes hidden, you can't tell if a video is helpful or not with a glance.
 
@@ -121,49 +113,22 @@ What's more, it goes beyond affecting only the poster.
 
  By hiding dislikes, YouTube essentially took that practical trick away, and now you can't tell if a video is good or bad off the bat.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### You Can't Tell if It's Worth Seeing
 
 ![youtube open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/youtube-open-on-laptop.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  When the dislikes aren't visible, you can't gauge whether a video is worth your time.
 
  The like-to-dislike ratio is a good metric to decide whether certain videos are up to your viewing standards. When that's taken away, you might get suckered into watching something that's not worth it at all.
 
  Many YouTube viewers use the like-to-dislike ratio to decide whether to watch a video or move on to another. When you can't use that ratio to make your judgment, you might get duped into watching something that wastes your time.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Is It the Right Move to Have or Hide Dislikes?
 
@@ -183,20 +148,6 @@ What's more, it goes beyond affecting only the poster.
 
  The company also ensured that this was only a test to see what people wanted, and it hasn't been decided whether the change would follow or the company would hold off on it. If you don't like a post, you have the option to skip over it and not like it, or you can reply or quote retweet it and share your opinion on it. So, does a dislike button make sense at all?
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### You Can't Imagine the Platform Without It
 
  How can you not have a dislike button if it's an integral part of the platform?
@@ -209,40 +160,17 @@ What's more, it goes beyond affecting only the poster.
 
  Reddit needs the balance of both upvotes and downvotes to be the platform people signed up to use. So, instead of removing the button entirely, it chose to hide the count of both buttons it offers.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Are Hidden Dislikes the Future?
 
  YouTube and Reddit took the path of hiding the dislike count. Twitter is looking to introduce a dislike system. Facebook had a dislike button but chose to remove it.
 
  There's no clear answer yet on whether dislikes should remain a part of social media or not. As clearly visible, there are both pros and cons to removing the number of dislikes under a post.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -251,4 +179,23 @@ What's more, it goes beyond affecting only the poster.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-adaptive-gaming-techniques-by-pros-for-2024/"><u>[New] Adaptive Gaming Techniques by Pros for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-engage-with-mematics-cloud-note-application/"><u>[New] In 2024, Engage with Mematic's Cloud Note Application</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/abbyy-textgrabber-on-android-now-features-live-translation-available-at-no-cost/"><u>ABBYY TextGrabber on Android Now Features Live Translation, Available at No Cost</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-french-phonetics-a-beginners-approach/"><u>Decoding French Phonetics: A Beginner's Approach</u></a></li>
+<li><a href="https://win11.techidaily.com/enhancing-live-interaction-on-windows-discord-app/"><u>Enhancing Live Interaction on Windows Discord App</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-redefines-social-engagement-next-gen-features-for-instagram-and-messenger-chat/"><u>Facebook Redefines Social Engagement: Next-Gen Features for Instagram and Messenger Chat</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-motorola-moto-g13-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Motorola Moto G13</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-honor-x50-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Honor X50 to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-flips-the-tale-of-trumps-internet-presence/"><u>Meta Flips the Tale of Trump's Internet Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/politics-no-thanks-optimize-your-facebook-experience/"><u>Politics? No Thanks! Optimize Your Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionized-a-seamless-social-media-feed-customization/"><u>Revolutionized: A Seamless Social Media Feed Customization</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-sleep-mode-in-enhancing-the-user-experience-on-messenger-kids/"><u>The Role of Sleep Mode in Enhancing the User Experience on Messenger Kids</u></a></li>
+<li><a href="https://program-issues.techidaily.com/the-ultimate-fix-for-dragon-quest-xis-crash-concern-learn-how-to-play-uninterrupted/"><u>The Ultimate Fix for Dragon Quest XI's Crash Concern - Learn How to Play Uninterrupted</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/turn-your-iphone-into-an-external-storage-device-with-this-easy-usb-method/"><u>Turn Your iPhone Into an External Storage Device with This Easy USB Method!</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-network-ties-discovering-group-links-on-fb/"><u>Uncovering Network Ties: Discovering Group Links on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/upcoming-guidance-teenagers-time-away-from-instagram/"><u>Upcoming Guidance: Teenagers' Time Away From Instagram?</u></a></li>
+</ul></div>
 

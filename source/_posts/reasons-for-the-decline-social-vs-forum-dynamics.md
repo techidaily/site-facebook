@@ -1,7 +1,7 @@
 ---
 title: "Reasons for the Decline: Social vs Forum Dynamics"
-date: 2024-09-05T09:31:22.106Z
-updated: 2024-09-06T09:31:22.106Z
+date: 2024-11-03T08:43:28.461Z
+updated: 2024-11-07T03:40:03.699Z
 tags:
   - facebook
 categories:
@@ -13,56 +13,33 @@ keywords: Forum Dynamics Trends,Social Platform Growth,Declining Forums Reason,S
 thumbnail: https://thmb.techidaily.com/fe4b0191212c8e41c031bf23c61d1f9123e35ac3bb319d7b6d127b4e0747eef8.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Reasons for the Decline: Social vs Forum Dynamics
 
  If you've been on the internet for a while, chances are you've come across online forums in the past. The late 2000s and early 2010s were the heydays of online forums. While many are still online and enjoy an active user base, it's fair to say that they have much less popularity than before.
 
  The rise of social media killed online forums for a multitude of reasons; some you can probably guess, and others will be a surprise.
 
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. A Lack of Innovation From Forum Owners
 
  Online is a fast-moving place, and while social media tends to adapt and change with the times, forums remain fairly static. Most forums that continue to see regular use still run on myBB or phpBB (amongst other software), which—while solid and likely familiar to you—is fairly old software.
 
  While you may be happy with the familiarity that comes from forums, a lot of people expect much more innovation than these platforms typically get. Even if social media platforms are sometimes slow to implement changes that their user base wants, you're probably less likely to stick around for changes to happen on a forum that already falls short of many features that social media offers.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Social Media Is Designed to be Attention-Grabbing
 
 ![A class of students paying attention to a lecture.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/students-attention.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Social media, by design, knows how to grab your attention and then hold it. You likely find yourself scrolling for a while on Twitter, Facebook, or some other social media before realizing you've lost track of time. While you could have the same experience on a forum, social media platforms are more adept at maintaining users' attention. This is because they run on an[attention economy model](https://www.makeuseof.com/tag/what-is-attention-economy/) , as your sustained usage makes these platforms money.
 
  The fast-moving nature, mixed media types (text, image, and video), and design principle of scrolling through a "timeline" encourage you to "catch up" are all examples of social media trying to keep you on the platform for longer. On a forum, you have many subsections—each with their own threads. They tend to be a bit more narrow in focus and long-form and predominately text-based, which is easier to pull yourself out of because it takes more sustained focus to navigate.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Forums Seem Outdated
 
  Forums have been a part of the web for over two decades, so it's no surprise if you find them outdated. In many areas of life, not just technology, people tend to gravitate toward the newest thing. With social media becoming the dominant form of communication years ago, forums will fade further into obscurity as time goes on.
@@ -70,11 +47,12 @@ thumbnail: https://thmb.techidaily.com/fe4b0191212c8e41c031bf23c61d1f9123e35ac3b
  This is because young internet users will learn from people around them that are older about social media, and the less they see forums, the less chance they'll think to sign up for one. As time goes on, forums will likely become more obscure and more outdated—leading to fewer signups.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Forums Tend to Be Dedicated Around One Subject
 
  This isn't a hard-and-fast rule, of course, but forums typically are dedicated to one subject—even if the actual boards have sections for many topics. Examples include mothers for MumsNet, gamers for IGN boards, and so on.
@@ -82,11 +60,12 @@ thumbnail: https://thmb.techidaily.com/fe4b0191212c8e41c031bf23c61d1f9123e35ac3b
  Forums commonly have a subsection where you can talk about everyday life stuff, films, TV shows, games, anything that isn't related to the primary subject it was created for. However, because of this dedication to a single subject, it can lead to you thinking that they're very niche. This may not be favorable compared to Twitter, Facebook, or Instagram, all of which cover pretty much anything—and connect you to people based on a comprehensive algorithm or your manual searches.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Apps Are More User-Friendly
 
 ![Cluster of icons for popular social media apps.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/social-apps-icons.jpg)
@@ -94,6 +73,19 @@ thumbnail: https://thmb.techidaily.com/fe4b0191212c8e41c031bf23c61d1f9123e35ac3b
  You likely have dozens of apps on your phone. It's possible you even regularly use most of them, even if it's pretty common for most apps on a users' phone to go ignored for months at a time. In any case, you probably agree that apps are more user-friendly than simply using a browser. Even though[social media can negatively affect you](https://www.makeuseof.com/tag/negative-effects-social-media/) , you're more likely to prioritize the convenience that apps and social media provide rather than the negative impacts that usage can cause.
 
  This is a big reason social media killed online forums because they typically can be used on a mobile app as well as a browser, whereas forums can only be used on browsers. While you can access most forums via your mobile browser, it'll be clunky and less responsive than an app—and almost definitely less friendly to navigate. The accessibility that apps provide makes people more likely to stick to them rather than go out of their way to use a forum on a browser to connect with people.
+
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. The Rise of Facebook Groups
 
@@ -107,14 +99,11 @@ thumbnail: https://thmb.techidaily.com/fe4b0191212c8e41c031bf23c61d1f9123e35ac3b
 
  While there's a lot to love about forums, they simply don't have the same pull they used to. Gaming forums typically tend to perform well still, and you can find a lot of great discussion on them on a platform that promotes more long-form discussion than social media typically tends to.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,4 +112,24 @@ thumbnail: https://thmb.techidaily.com/fe4b0191212c8e41c031bf23c61d1f9123e35ac3b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-countermoves-in-media-how-to-reverse-videos/"><u>[New] In 2024, Countermoves in Media How to Reverse Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-rhythmic-rarities-assembling-the-best-dj-video-samples/"><u>[Updated] 2024 Approved Rhythmic Rarities Assembling the Best DJ Video Samples</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-the-ultimate-guide-to-facebook-live-recording/"><u>[Updated] 2024 Approved The Ultimate Guide to Facebook Live Recording</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-unlocking-the-door-to-seamless-zoom-sessions/"><u>[Updated] In 2024, Unlocking the Door to Seamless Zoom Sessions</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-update-the-latest-tp-link-ub400-bluetooth-adapter-drivers/"><u>Download and Update the Latest TP-Link UB400 Bluetooth Adapter Drivers</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-overcome-steam-account-access-problems-solutions-inside/"><u>How to Overcome Steam Account Access Problems - Solutions Inside</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-how-to-recover-hidden-shorts-thumbnails-in-videos/"><u>In 2024, How to Recover Hidden Shorts' Thumbnails in Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-fb-interactions-positive-guide-on-profile-banning/"><u>Keeping FB Interactions Positive: Guide on Profile Banning</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-hide-n-seek-of-fb-securing-personal-information/"><u>Master the Hide-N-Seek of FB: Securing Personal Information</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-facebook-interactions-with-ease/"><u>Navigating the Maze of Facebook Interactions with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-unveiled-delete-your-social-media-narrative/"><u>Secrets Unveiled: Delete Your Social Media Narrative</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-savvy-how-hashtags-drive-traffic-on-facebook/"><u>Social Media Savvy: How #Hashtags Drive Traffic on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-brand-potential-with-a-company-profile-on-facebook-top-8-insights/"><u>Unlocking Brand Potential with a Company Profile on Facebook - Top 8 Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-hidden-voices-fb-groups-edition/"><u>Unmasking Hidden Voices: FB Groups Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-presence-is-a-frightening-reality/"><u>Why Meta's Presence Is a Frightening Reality</u></a></li>
+</ul></div>
 

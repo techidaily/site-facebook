@@ -1,7 +1,7 @@
 ---
 title: Turning Our Tracks Into Treasure
-date: 2024-10-29T16:31:19.735Z
-updated: 2024-11-01T16:01:16.587Z
+date: 2024-11-02T16:53:27.066Z
+updated: 2024-11-07T10:21:39.340Z
 tags:
   - facebook
 categories:
@@ -40,28 +40,15 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Granular Data Gathering
 
 ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  For surveillance capitalism to work, its primary well of power lies in its ability to gather data as granular as possible.
@@ -75,6 +62,13 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 ### Emotional Volatility
 
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
@@ -90,16 +84,16 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  For this reason, social media becomes the perfect channel to market products and services. It sells the idea that you should always strive to be better, but the only way that you can do so is by adding to your cart, go on vacations that you can't really afford, or living someone else's life highlights.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Ease of Transactions
 
 ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  At first glance, we seem to be living in an ideal future. A decade ago, the instant nature of many online transactions such as the normalization of fast fashion, seamless checkout processes, and next day delivery options would have just been a dream. However, no one could have known the negative impacts it would have on our society as a whole.
 
@@ -108,19 +102,6 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
  The ease of transactions also make it easy to dissociate from the price we pay for consumption, such as the environmental toll and the human hands that make it possible. In exchange for cheap electronics and trendy clothing, we have learned to close our eyes to how it was made, which often has roots in human rights abuses and pollution.
 
 ![Amazon echo speaker beside a TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/rsz_loewe-technology-skqnm8v6dok-unsplash-1.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  In fact, a prime example of surveillance capitalism-driven conspicuous consumption is no other the the world's largest retailer, Amazon. With a[49.1 percent](https://techcrunch.com/2018/07/13/amazons-share-of-the-us-e-commerce-market-is-now-49-or-5-of-all-retail-spend/) ecommerce market share in the US alone, Amazon has transitioned from being an online marketplace to developing smart home products such as wandering smart speakers, security robots, home thermostats, and so on.
 
@@ -131,6 +112,13 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 ### The Commodification of Personal Experiences
 
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
 
@@ -165,19 +153,20 @@ In fact, we are already running out of ways to opt out.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-organize-your-fb-content-access-to-free-downloaders-online/"><u>[New] Organize Your FB Content Access to Free Downloaders Online</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-premium-video-collaboration-software-guides/"><u>[New] Premium Video Collaboration Software Guides</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unleash-the-full-potential-in-the-metaverse-with-this-list/"><u>[New] Unleash the Full Potential in the Metaverse with This List</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-transforming-ones-and-twosies-into-avis-with-ease/"><u>[Updated] Transforming Ones and Twosies Into Avis with Ease</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-gif-mastery-10-key-elements-to-perfect-creation/"><u>2024 Approved GIF Mastery 10 Key Elements to Perfect Creation</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-functionality-of-non-loading-fb-notifications/"><u>Enhancing Functionality of Non-Loading FB Notifications</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-endgame-data-afterlife/"><u>Facebook's Endgame: Data Afterlife</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-realme-11x-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Realme 11X 5G Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/immediate-actions-restoring-your-inaccessible-social-network-id/"><u>Immediate Actions: Restoring Your Inaccessible Social Network ID</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-top-choice-vr-game-engines-update-march-2023/"><u>In 2024, Top Choice VR Game Engines Update - March 2023</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-the-chamber-of-messages-newbie-essentials/"><u>Inside the Chamber of Messages: Newbie Essentials</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-race-to-redefine-computing-speed-the-supercomputer-evolution/"><u>Meta's Race to Redefine Computing Speed - The Supercomputer Evolution</u></a></li>
-<li><a href="https://facebook.techidaily.com/present-investors-in-facebook/"><u>Present Investors in Facebook</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/top-5-vivo-y27s-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Vivo Y27s Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-secrets-to-crystal-clear-zoom-meetings/"><u>[Updated] Secrets to Crystal Clear Zoom Meetings</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-hero-session-vs-cube-a-face-off-in-video-editors/"><u>2024 Approved Hero Session Vs. Cube A Face-Off in Video Editors</u></a></li>
+<li><a href="https://facebook.techidaily.com/chatting-with-flair-the-power-of-textual-variation/"><u>Chatting with Flair: The Power of Textual Variation</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-spotify-interface-tips-for-maximum-convenience/"><u>Facebook-Spotify Interface Tips for Maximum Convenience</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixes-and-solutions-for-the-initial-launch-problems-in-age-of-empires-4/"><u>Fixes and Solutions for the Initial Launch Problems in Age of Empires 4</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-the-star-wars-battlefront-2-black-screen-glitch-efficiently/"><u>How to Fix the Star Wars Battlefront 2 Black Screen Glitch Efficiently</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-eyeem-pro-your-ultimate-guide-to-freepaid-substitutes/"><u>In 2024, EyeEm Pro Your Ultimate Guide to Free/Paid Substitutes</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-safe-secure-and-stress-free-exclusive-list-of-free-video-call-apps-for-iphoneandroid/"><u>In 2024, Safe, Secure & Stress-Free Exclusive List of Free Video Call Apps for iPhone/Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/miniplayer-your-portable-spotify-experience-on-facebook/"><u>Miniplayer: Your Portable Spotify Experience on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-and-reactivating-your-fbs-hidden-security-codes/"><u>Retrieving and Reactivating Your FB's Hidden Security Codes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/securely-and-swiftly-acquiring-your-youtube-watch-lists/"><u>Securely and Swiftly Acquiring Your YouTube Watch Lists</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-enigma-of-shadowban-and-how-to-circumvent-it/"><u>The Enigma of Shadowban and How to Circumvent It</u></a></li>
+<li><a href="https://facebook.techidaily.com/trumps-dormant-accounts-on-meta-resurrected/"><u>Trump's Dormant Accounts on Meta Resurrected</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-stance-on-having-duplicate-user-identities-in-one-account/"><u>Understanding Facebook's Stance on Having Duplicate User Identities in One Account</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/unlocking-prime-content-top-8-facebook-tools-in-23-for-2024/"><u>Unlocking Prime Content Top 8 Facebook Tools in '23 for 2024</u></a></li>
 </ul></div>
 

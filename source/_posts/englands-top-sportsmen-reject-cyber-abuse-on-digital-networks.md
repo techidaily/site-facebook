@@ -1,7 +1,7 @@
 ---
 title: England's Top Sportsmen Reject Cyber Abuse on Digital Networks
-date: 2024-09-10T14:50:08.479Z
-updated: 2024-09-11T14:50:08.479Z
+date: 2024-10-31T09:48:22.276Z
+updated: 2024-11-06T22:43:57.872Z
 tags:
   - facebook
 categories:
@@ -18,20 +18,6 @@ thumbnail: https://thmb.techidaily.com/3ccfed125e4471bfeef796f7e1d53a32e1cb3d7ae
  The English Premier League, English Football League, and Women's Super League are joining forces to complete a four-day social media blackout.
 
  England's top soccer leagues are taking a social media stand against the ongoing abuse and discrimination experienced by players across all levels of the game. The English Football Association (The FA) is working closely with anti-discrimination charity Kick It Out and other organizations to coordinate the boycott.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## The Top English Soccer Teams Take a Social Media Stand
 
@@ -57,19 +43,12 @@ thumbnail: https://thmb.techidaily.com/3ccfed125e4471bfeef796f7e1d53a32e1cb3d7ae
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
@@ -89,14 +68,11 @@ thumbnail: https://thmb.techidaily.com/3ccfed125e4471bfeef796f7e1d53a32e1cb3d7ae
 
  Whatever your take on the social media regulation side of the issue, one thing is clear: online abuse, racism, and toxic behavior towards anyone is unacceptable, whether they're a highly paid soccer player or otherwise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,4 +81,21 @@ thumbnail: https://thmb.techidaily.com/3ccfed125e4471bfeef796f7e1d53a32e1cb3d7ae
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-essential-ios-gif-apps-compendium-for-latest-iphones/"><u>[New] In 2024, Essential iOS GIF Apps Compendium for Latest iPhones</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-funimate-pro-apk-review-and-how-to-guide/"><u>[Updated] Funimate Pro APK Review and How-To Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-cut-the-cord-clutter-simultaneous-playthrough-of-videos/"><u>[Updated] In 2024, Cut the Cord Clutter Simultaneous Playthrough of Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-top-audio-tools-for-professional-podcast-creators/"><u>[Updated] In 2024, Top Audio Tools for Professional Podcast Creators</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-top-ten-frame-enhancers-for-visual-artistry/"><u>2024 Approved Top Ten Frame Enhancers for Visual Artistry</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-hd-media-posting-mastery-on-social/"><u>Elevating Your HD Media: Posting Mastery on Social</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-pledges-5m-for-covd-19-global-response/"><u>Facebook Pledges $5M for COVD-19 Global Response</u></a></li>
+<li><a href="https://facebook.techidaily.com/fan-experience-elevated-with-fb-and-twt-coverage/"><u>Fan Experience Elevated with FB & Twt Coverage</u></a></li>
+<li><a href="https://facebook.techidaily.com/hurdles-in-the-horizon-facebooks-predictions/"><u>Hurdles in the Horizon: Facebook's Predictions</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-infinix-gt-10-pro-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Infinix GT 10 Pro</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-optimal-vr-experience-a-review-of-top-oculus-models/"><u>In 2024, Optimal VR Experience A Review of Top Oculus Models</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-in-2024-create-video-with-ppt/"><u>New In 2024, Create Video With PPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-best-facebook-home-assistants/"><u>Unveiling the Best Facebook Home Assistants</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebook-whatsapp-and-instagram-went-offline-for-six-hours/"><u>Why Facebook, WhatsApp, and Instagram Went Offline for Six Hours</u></a></li>
+</ul></div>
 

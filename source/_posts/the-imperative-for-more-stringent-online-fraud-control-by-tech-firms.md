@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2024-10-25T17:05:26.496Z
-updated: 2024-11-01T16:46:39.789Z
+date: 2024-10-31T19:45:19.404Z
+updated: 2024-11-06T17:19:28.275Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -78,17 +78,18 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-preserving-the-pixels-how-to-download-animated-tweets-from-twitter/"><u>[New] In 2024, Preserving the Pixels How To Download Animated Tweets From Twitter</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-simplify-your-tech-life-capture-and-store-youtube-streaming-effortlessly/"><u>[New] Simplify Your Tech Life Capture and Store YouTube Streaming Effortlessly</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-swift-searches-for-abandoned-reddit-discussions/"><u>[Updated] Swift Searches for Abandoned Reddit Discussions</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-precision-videoplayers-for-high-definition-on-android/"><u>2024 Approved Precision Videoplayers for High Definition on Android</u></a></li>
-<li><a href="https://win11.techidaily.com/accelerated-action-overcoming-wwe-2k23-freezes-in-windows/"><u>Accelerated Action: Overcoming WWE 2K23 Freezes in Windows</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-realme-12-pro-5g-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Realme 12 Pro 5G to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/making-choices-at-the-click-of-a-button-for-fb-feeds/"><u>Making Choices at the Click of a Button for FB Feeds</u></a></li>
-<li><a href="https://facebook.techidaily.com/post-deletion-reality-check-on-fb/"><u>Post-Deletion Reality Check on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-advent-of-advanced-moderation-systems-by-facebook/"><u>The Advent of Advanced Moderation Systems by Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-impact-of-vanishing-presence-in-messaging-apps/"><u>The Impact of Vanishing Presence in Messaging Apps</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-majority-of-french-users-top-five-francophone-states-analyzed/"><u>The Majority of French Users: Top Five Francophone States Analyzed</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-location-services-on-facebook-messenger/"><u>Unlock Location Services on Facebook Messenger</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-expert-picks-of-top-fee-free-live-streaming-tech-tools-for-everyone/"><u>[New] 2024 Approved Expert Picks of Top, Fee-Free Live Streaming Tech Tools for Everyone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-accelerating-operations-discover-the-leading-scheduling-tools/"><u>2024 Approved Accelerating Operations Discover the Leading Scheduling Tools</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/differentiating-authentic-and-erroneous-machine-learning-outputs/"><u>Differentiating Authentic and Erroneous Machine Learning Outputs</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-the-world-of-virtual-shopping-on-fb-fridays/"><u>Dive Into the World of Virtual Shopping on FB Fridays</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-huawei-nova-y91-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Itel S23? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/lock-your-likes-making-photo-sharing-on-facebook-private/"><u>Lock Your Likes: Making Photo Sharing on Facebook Private</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-user-engagement-facebook-vs-apple-with-custom-linkages/"><u>Revolutionizing User Engagement: Facebook Vs. Apple with Custom Linkages</u></a></li>
+<li><a href="https://facebook.techidaily.com/searching-for-archived-facebook-communication/"><u>Searching for Archived Facebook Communication</u></a></li>
+<li><a href="https://win11.techidaily.com/silent-speakers-resolving-microphone-glitches-in-microsoft-enabled-meet/"><u>Silent Speakers: Resolving Microphone Glitches in Microsoft-Enabled Meet</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-symphony-revisited-the-top-4-digital-renaissance-themes/"><u>Social Symphony Revisited: The Top 4 Digital Renaissance Themes</u></a></li>
+<li><a href="https://program-issues.techidaily.com/step-by-step-solutions-to-stop-outpost-infinity-siege-from-closing-unexpectedly-on-your-computer/"><u>Step-by-Step Solutions to Stop Outpost: Infinity Siege From Closing Unexpectedly on Your Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-emergence-as-a-formidable-competitor-to-facebook/"><u>TikTok's Emergence as a Formidable Competitor to Facebook</u></a></li>
 </ul></div>
 

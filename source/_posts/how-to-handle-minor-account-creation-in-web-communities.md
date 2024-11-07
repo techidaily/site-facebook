@@ -1,7 +1,7 @@
 ---
 title: How to Handle Minor Account Creation in Web Communities
-date: 2024-09-10T14:50:09.086Z
-updated: 2024-09-11T14:50:09.086Z
+date: 2024-11-05T09:22:45.512Z
+updated: 2024-11-07T02:52:34.957Z
 tags:
   - facebook
 categories:
@@ -35,41 +35,7 @@ thumbnail: https://thmb.techidaily.com/6de10ca092ea22440e0ee57b0e4d9c17ed8937d0a
 ![Add details of the person you want to report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-of-the-person-you-want-to-report.jpg)
 6. Tap**Send** to submit the report for review.
 
-
-
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
  Facebook might need your help or verification proof to proceed with the report. For recovery, the underage account must submit details like official documents or evidence of identity. Failure to do so will result in the account being permanently disabled.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to Request Data of Your Underage Child's Facebook Account From Facebook
 
@@ -81,18 +47,12 @@ thumbnail: https://thmb.techidaily.com/6de10ca092ea22440e0ee57b0e4d9c17ed8937d0a
 ![Child Data Request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Child-Data-Request-form.jpg)
 2. Enter the child’s first and last name.
 
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 3. Paste the URL of your child’s Facebook account.
 4. Enter the email address or mobile number your child used to register the account.  
@@ -105,43 +65,16 @@ thumbnail: https://thmb.techidaily.com/6de10ca092ea22440e0ee57b0e4d9c17ed8937d0a
 
  Successful verification will process the request and make you eligible for the data featuring your underage child's activities on Facebook.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Why Should You Report an Underage Facebook Account?
 
  Letting an underage child use Facebook might not feel dangerous to some people, but there are some genuine grounds to avoid it. Here are some reasons why you should report a Facebook account owned by an underage person.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Facebook Can Be Addictive
 
@@ -161,35 +94,21 @@ thumbnail: https://thmb.techidaily.com/6de10ca092ea22440e0ee57b0e4d9c17ed8937d0a
 
 ![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Children can face mental health issues, just like adults. Research has shown that regular use of Facebook might affect underage users' self-esteem. Looking at the so-called fake perfection on social media can make them constantly compare themselves with others and negatively impact their mind.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### It Might Expose Your Child to Inappropriate Content
 
@@ -205,14 +124,11 @@ thumbnail: https://thmb.techidaily.com/6de10ca092ea22440e0ee57b0e4d9c17ed8937d0a
 
  Requesting your child's Facebook data is another option, but verifying that you are their parent/guardian is mandatory.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -221,4 +137,23 @@ thumbnail: https://thmb.techidaily.com/6de10ca092ea22440e0ee57b0e4d9c17ed8937d0a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-5-top-action-cameras-with-full-hd-in-your-pocket/"><u>[New] 5 Top Action Cameras with Full HD in Your Pocket</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/arn-while-playing-games-online/"><u>[New] Earn While Playing Games Online</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-the-editors-toolkit-using-markers-in-professional-editing/"><u>[Updated] The Editor's Toolkit Using Markers in Professional Editing</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-comprehensive-guide-to-recording-and-embedding-audio-powerpoint/"><u>2024 Approved Comprehensive Guide to Recording & Embedding Audio (PowerPoint)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/composing-the-unseen-score-trailer-music-magic/"><u>Composing the Unseen Score Trailer Music Magic</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-ig-to-feature-more-digital-dollar-promotions/"><u>Facebook & IG to Feature More Digital Dollar Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-enhances-chat-security-with-new-encrypted-messaging-features/"><u>Facebook Enhances Chat Security with New Encrypted Messaging Features.</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-add-music-to-a-video-on-iphone-3-free-ways/"><u>How to Add Music to a Video on iPhone [3 FREE WAYS]</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-top-5-easy-android-image-fixes/"><u>In 2024, Top 5 Easy Android Image Fixes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-vhs-80s-effects-to-use-in-video-editing/"><u>In 2024, Top VHS 80S Effects to Use in Video Editing</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-control-with-facebooks-new-privacy-settings/"><u>Maximizing Control with Facebook's New Privacy Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-nexus-transformation-facebooks-progression-to-meta/"><u>Networking Nexus Transformation: Facebook's Progression to Meta</u></a></li>
+<li><a href="https://games-able.techidaily.com/optimizing-cash-flow-for-steam-gaming-purchases/"><u>Optimizing Cash Flow for Steam Gaming Purchases</u></a></li>
+<li><a href="https://facebook.techidaily.com/public-mistrust-mounting-towards-large-it-entities/"><u>Public Mistrust Mounting Towards Large IT Entities</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-digital-rebranding-changing-your-fb-name-gracefully/"><u>The Art of Digital Rebranding: Changing Your FB Name Gracefully</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-unplugging-a-guide-to-leaving-facebook/"><u>The Art of Unplugging: A Guide to Leaving Facebook</u></a></li>
+</ul></div>
 

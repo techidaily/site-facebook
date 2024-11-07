@@ -1,7 +1,7 @@
 ---
 title: "Redefining Connectivity: From Facebook to Meta Horizon"
-date: 2024-10-30T16:28:06.702Z
-updated: 2024-11-01T16:18:24.590Z
+date: 2024-11-03T19:22:55.988Z
+updated: 2024-11-06T23:45:24.066Z
 tags:
   - facebook
 categories:
@@ -36,13 +36,6 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
  By December 2005, Facebook had six million users. It also had several new features, including the infamous Facebook Wall and News Feed. In April 2006, Facebook was out on mobile, and in September, they made the platform available to everyone on the internet of age 13 or above.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2007–2009: The Inception of the Facebook Like Button
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
@@ -57,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  After the advent of the Like button, Facebook made several changes to the platform. It improved the tagging of people in photos, liking comments, and the home page. Later, it launched new features like Facebook Places, Groups, Timeline, and Video calling.
 
  By July 2010, Facebook had more than 500 million active users. And in November, it became the third-largest web company valued at a whopping $41 billion. Later, in August 2011, Facebook launched Messenger—a dedicated instant messaging app.
@@ -64,10 +64,10 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2013–2015: Facebook Enters New Territories
@@ -83,22 +83,15 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
  On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know[how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2016–2018: Controversies and Scandals
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
@@ -114,6 +107,13 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
 
  Throughout 2019, Facebook paid several fines to various governments. And the year ended with yet another major security breach. In December,[Forbes](https://www.forbes.com/sites/johnbbrandon/2019/12/19/267-million-names-and-phone-numbers-leaked-online---and-theyre-all-from-facebook/?sh=3733ada35a6b) reported that account info of over 267 million Facebook users was leaked, including phone numbers and email addresses.
@@ -128,13 +128,6 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
 
  Fast-forward to 2022, and Meta has already spent billions of dollars trying to build the metaverse and make its VR headsets as technologically advanced as possible—all while eroding more than 70% of its stock value amid a global recession.
@@ -142,6 +135,13 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 What comes next? Massive layoffs.
 
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Meta Is in a Rough Place, But When Is It Not?
 
@@ -164,22 +164,16 @@ What comes next? Massive layoffs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-1st-place-video-saver-download-anywhere-anytime/"><u>[New] In 2024, 1St Place Video Saver - Download Anywhere, Anytime</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-aviary-creator-searching-for-affordable-filters/"><u>[Updated] 2024 Approved Aviary Creator Searching for Affordable Filters</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-video-length-limit-every-details-you-need-to-know/"><u>[Updated] Instagram Video Length Limit - Every Details You Need to Know</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-replay-rare-relationship-recaps/"><u>[Updated] Replay Rare Relationship Recaps</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/easy-routines-for-preventing-vscode-freeze-on-w11/"><u>Easy Routines for Preventing VSCode Freeze on W11</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-social-networks-facebook-tests-b2b-news-feed-modifications/"><u>Enhancing Social Networks: Facebook Tests B2B News Feed Modifications</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-champions-worldwide-covid-19-relief-effort/"><u>Facebook Champions Worldwide COVID-19 Relief Effort</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-redefines-social-spaces-with-portable-portal-go/"><u>Facebook Redefines Social Spaces with Portable Portal Go</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-download-private-facebook-videos/"><u>How to Download Private Facebook Videos</u></a></li>
-<li><a href="https://win-forum.techidaily.com/how-to-enable-lan-magic-remotely-in-windows-10-and-11-a-comprehensive-guide/"><u>How To Enable LAN Magic Remotely in Windows 10 & 11: A Comprehensive Guide</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-best-iphone-selfie-gear-the-ultimate-compilation-8/"><u>In 2024, Best iPhone Selfie Gear - The Ultimate Compilation (#8)</u></a></li>
-<li><a href="https://facebook.techidaily.com/instant-switch-to-a-dimmer-interface-on-facebook/"><u>Instant Switch to a Dimmer Interface on Facebook</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/macbook-pro-vs-ipad-pro-an-in-depth-comparison/"><u>MacBook Pro Vs. IPad Pro: An In-Depth Comparison</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-subtle-like-game-online/"><u>Navigating the Subtle Like Game Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/scoping-out-social-network-supporters/"><u>Scoping Out Social Network Supporters</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-email-communications-easy-guide-to-two-factor-authentication-methods/"><u>Secure Your Email Communications: Easy Guide to Two-Factor Authentication Methods</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unlock-more-potential-in-ai-the-fourfold-advantage-of-choosing-claude-3-over-chatgpt/"><u>Unlock More Potential in AI: The Fourfold Advantage of Choosing Claude 3 Over ChatGPT</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebook-fb-upload-strategies-for-mobile-and-desktop/"><u>[Updated] In 2024, Facebook FB Upload Strategies for Mobile & Desktop</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-the-rollout-of-whatsapps-revised-privacy-rules/"><u>Delay in the Rollout of WhatsApp's Revised Privacy Rules</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Motorola G54 5G? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-agni-2-5g-by-fonelab-android-recover-data/"><u>How to recover lost data from Agni 2 5G?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-samsung-galaxy-a14-5g-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Samsung Galaxy A14 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interlinked-identities-examining-fb-insta-relationship/"><u>Interlinked Identities: Examining FB-Insta Relationship</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebooks-influence-maxed-out/"><u>Is Facebook's Influence Maxed Out?</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/premium-pc-liquid-coolers-often-fall-short-investigation-uncovers-low-copper-use-in-over-half-the-products-on-market/"><u>Premium PC Liquid Coolers Often Fall Short: Investigation Uncovers Low Copper Use in Over Half the Products on Market</u></a></li>
+<li><a href="https://facebook.techidaily.com/professional-progression-social-media-uses-demystified/"><u>Professional Progression: Social Media Uses Demystified</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-stealth-approach-to-display-restriction/"><u>The Stealth Approach to Display Restriction</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-recommended-mesh-wi-fi-setups/"><u>Top Recommended Mesh Wi-Fi Setups</u></a></li>
 </ul></div>
 

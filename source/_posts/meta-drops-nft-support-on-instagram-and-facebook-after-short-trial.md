@@ -1,7 +1,7 @@
 ---
 title: Meta Drops NFT Support on Instagram and Facebook After Short Trial
-date: 2024-09-05T09:31:20.944Z
-updated: 2024-09-06T09:31:20.944Z
+date: 2024-11-01T06:10:18.505Z
+updated: 2024-11-07T11:18:59.859Z
 tags:
   - facebook
 categories:
@@ -13,34 +13,10 @@ keywords: Meta NFT Support,Meta Social Media Integration,NFT Acceptance by Meta,
 thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1916f6c8fc284b58583f1b79.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Meta Drops NFT Support on Instagram and Facebook After Short Trial
 
  Before it has even truly begun, Meta has announced that it will end its NFT tools on Instagram and Facebook.The revelation, made by Meta commerce and fintech lead Stephane Kasriel, comes as a surprise given Facebook's pivot to Meta in recognition of its new focus on the metaverse.
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Meta Is "Winding Down" NFTs on Instagram and Facebook
 
  On 13 March 2023, Stephane Kasriel revealed that Meta was moving its focus from NFTs to other areas of focus where the company can make an impact.
@@ -50,11 +26,12 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
  Meta rolled out[NFT sales for Instagram creators in November 2022](https://www.makeuseof.com/meta-pushes-instagram-nfts-who-is-buying/) , so its quick retraction and change of direction won't do much to inspire confidence in the social media giant's other metaverse and Web3 plans.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What's Next for Meta, Crypto, and the Metaverse?
 
  Meta's move has caught the crypto world by surprise. While the initial rollout of NFTs on Instagram and Facebook was limited, it aligned with Meta's long-term vision of leading the world in metaverse services.
@@ -67,14 +44,11 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
  Whether the scramble to roll back NFT support on Instagram and Facebook is purely cost-cutting or is the start of a new approach to the metaverse for Meta remains to be seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -83,4 +57,24 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/updated-blur-and-bury-backgrounds-with-ease/"><u>[Updated] Blur and Bury Backgrounds with Ease</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-apex-equipment-prime-8k-cameras-unmatched/"><u>2024 Approved Apex Equipment Prime 8K Cameras Unmatched</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-lg-vr-headgear-review-complete-immersion-unlocked/"><u>2024 Approved LG VR Headgear Review Complete Immersion Unlocked</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ace-your-workflow-fast-signature-backdrop-elimination-for-2024/"><u>Ace Your Workflow Fast Signature Backdrop Elimination for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-online-presence-through-image-overhaul-on-fb/"><u>Elevating Online Presence Through Image Overhaul on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-significant-changes-to-symbolism-on-facebooks-pages/"><u>Exploring Significant Changes to Symbolism on Facebook's Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-can-reels-turn-around-tiktok-trends/"><u>Facebook, Can Reels Turn Around TikTok Trends?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/fix-lg-usb-driver-issue-in-windows-1187/"><u>Fix LG USB Driver Issue in Windows 11/8/7</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/from-novice-to-pro-learning-snapseed-essentials/"><u>From Novice to Pro Learning Snapseed Essentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-metas-approach-may-signal-changes-for-social-media-giants/"><u>How Meta's Approach May Signal Changes for Social Media Giants</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/iwatch-series-9-and-ultra-2-discontinued-from-e-commerce-existing-models-service-impacted-techinsight/"><u>IWatch Series 9 & Ultra 2 Discontinued From E-Commerce; Existing Models' Service Impacted | TechInsight</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubles-with-image-recognition-here-are-the-possible-causes-behind-iphones-look-up-failure/"><u>Troubles with Image Recognition? Here Are the Possible Causes Behind iPhone's Look Up Failure</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollow-path-severing-social-media-connections/"><u>Unfollow Path: Severing Social Media Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfriendship-a-guide-to-dissolving-online-bonds/"><u>Unfriendship: A Guide to Dissolving Online Bonds</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unveiling-techniques-for-pace-modification-on-snapchat-videos-for-2024/"><u>Unveiling Techniques for Pace Modification on Snapchat Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-photodna-and-how-does-it-work/"><u>What Is PhotoDNA and How Does It Work?</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-platform-do-you-adore-most/"><u>Which Platform Do You Adore Most?</u></a></li>
+</ul></div>
 

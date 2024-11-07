@@ -1,7 +1,7 @@
 ---
 title: "Shaking Up Stereotypes: The Factual Side of Facebook Probes"
-date: 2024-09-05T09:31:21.290Z
-updated: 2024-09-06T09:31:21.290Z
+date: 2024-11-02T01:29:57.186Z
+updated: 2024-11-06T19:00:35.686Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,6 @@ keywords: Facebook Probe Facts,Debunking Stereotypes,Social Media Investigations
 thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e468a1fcf01b032cc2430ea00.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Shaking Up Stereotypes: The Factual Side of Facebook Probes
 
  It seems like everybody's been talking about The Facebook Papers recently. The reports that reveal some of Facebook's shadier practices have been going around the web, and causing quite the discussion about the social platform.
@@ -43,34 +37,23 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
 ![Facebook Misinformation Warning](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Misinformation-Warning.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Image Credits: Facebook
 
  While not trying to downplay the significance of the misinformation problem on Facebook and the wider internet, it isn't particularly scandalous. It's less serious than Facebook's previous scandals, and it's much less serious that it could have been.
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Many Documents in The Facebook Papers Are Just Photos, Not Documents
 
  When you've been reading about The Facebook Papers, it certainly sounds as though the reports are leaked documents, as one might expect. But, as[Gizmodo](https://gizmodo.com/hey-kid-wanna-see-some-leaked-facebook-docs-1847936740) acknowledged, the majority of the “documents” are just photos of reports on a computer screen.
@@ -86,11 +69,12 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
  As a result, there's undeniably some context missing from the documents in question. As to what that missing context is, we don't know. But isn't there a rule about jumping to conclusions?
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Many Reports in The Facebook Papers Can Be Easily Explained Away
 
  When you read some of the reports about Facebook from The Facebook Papers, you're probably thinking that it's pretty bad for Facebook. But with lots of the reports, there's much more than meets the eye.
@@ -108,17 +92,12 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 ![Mark Zuckerberg Speaking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Mark-Zuckerberg-Speaking.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Image Credits: Anthony Quintano via Flickr
 
  Let's read that again. Zuckerberg claims 94 percent of the hate speech it finds**before a human reports it** is removed, and the report says less than five percent of**all hate speech** gets removed. Did you catch that? They're talking about two different things!
@@ -128,11 +107,12 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
  While these particular reports have been picked to provide an example, many more of The Facebook Papers can be explained away with other whistleblowers' leaks or that all-important missing context.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Facebook Did Some Things Wrong, But The Facebook Papers Are Too Damning
 
  The Facebook Papers did reveal that the company has done some massive things wrong. For example, setting up a test account which was led to QAnon posts and not doing anything about it, or weighting angry reactions against normal reactions are huge concerns.
@@ -141,14 +121,11 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
  The Facebook Papers are damning for the company, but certainly not as damning as they seem. Perhaps the saying should be “Don't judge a book by its hundreds of pages of whistleblown reports missing context”, though it's not quite as catchy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,4 +134,21 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-apex-titles-for-hd-video-recording-technologies-for-2024/"><u>[New] Apex Titles for HD Video Recording Technologies for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-biometric-battleground-face-id-vs-samsungs-facial-identification/"><u>[New] In 2024, Biometric Battleground Face ID Vs. Samsung's Facial Identification</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nfographic-led-exploration-of-future-social-trends/"><u>[New] Infographic-Led Exploration of Future Social Trends</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-advanced-tips-for-blending-modes-in-vfx-for-2024/"><u>[Updated] Advanced Tips for Blending Modes in VFX for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722855740922-apples-next-gen-audio-gadget-leak-insights-on-pricing-launch-timeline-and-features/"><u>Apple's Next-Gen Audio Gadget Leak: Insights on Pricing, Launch Timeline & Features</u></a></li>
+<li><a href="https://extra-information.techidaily.com/break-the-monotony-with-these-6-captivating-videos-for-2024/"><u>Break the Monotony with These 6 Captivating Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-connection-to-isolation-the-facebook-story/"><u>From Connection to Isolation: The Facebook Story</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-can-you-retrieve-photos-from-a-facetime-call-unveiling-the-process/"><u>How Can You Retrieve Photos From a FaceTime Call? Unveiling the Process</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-an-insiders-guide-to-screen-recording-on-macs/"><u>In 2024, An Insider's Guide to Screen Recording on Macs</u></a></li>
+<li><a href="https://facebook.techidaily.com/insta-interruption-the-strategy-behind-urging-a-social-media-vacation/"><u>Insta-Interruption: The Strategy Behind Urging a Social Media Vacation</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-past-interactions-in-fb-environment/"><u>Investigating Past Interactions in FB Environment</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-escaping-facebook-tags/"><u>Techniques for Escaping Facebook Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dangers-of-shadowbanning-steps-to-skirt-around-it/"><u>The Hidden Dangers of Shadowbanning: Steps to Skirt Around It</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/mp4avi-flv/"><u>오픈소스 영역에서 무료 핸드리행 MP4/AVI 파일을 FLV로 자유롭게 전환하는 방법</u></a></li>
+</ul></div>
 

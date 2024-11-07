@@ -1,7 +1,7 @@
 ---
 title: "Social Scope Expansion: Locating Page and Profile Links on FB"
-date: 2024-09-10T14:50:08.821Z
-updated: 2024-09-11T14:50:08.821Z
+date: 2024-11-06T00:18:39.745Z
+updated: 2024-11-07T02:10:08.474Z
 tags:
   - facebook
 categories:
@@ -49,37 +49,16 @@ To find the Facebook profile URL of another user:
 
  3\. Copy the URL from the address bar and paste it at the desired location. The format for the URL is <https://www.facebook.com/username>.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Finding a Facebook Profile URL on Mobile
 
  You can find a Facebook profile URL on your smartphone through the Facebook mobile app or the browser.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Finding a Profile URL on the Facebook App
 
@@ -87,21 +66,14 @@ To find the Facebook profile URL of another user:
 
 ![Go to see your profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Go-to-see-your-profile.jpg)
 
-![Copy link of your URL](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-of-your-URL.jpg)
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+![Copy link of your URL](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-of-your-URL.jpg)
 
 Close
 
@@ -113,57 +85,35 @@ Close
 
  To search for another profile using the Facebook app, use the search bar to open the profile. Click on the three dots to open the**Manage** menu. Copy the personalized link and paste it.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Finding Your Facebook Profile URL on a Mobile Web Browser
 
  If you're using the Facebook mobile website, follow these steps to find your profile's link:
 
 ![Three horizontal bars on the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Three-horizontal-bars-on-the-Facebook-app.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![Go to your Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Go-to-your-Facebook-profile.jpg)
 
-![Copy link from the drop down menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-from-the-drop-down-menu.jpg)
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+![Copy link from the drop down menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-from-the-drop-down-menu.jpg)
 
 Close
 
@@ -177,20 +127,6 @@ Close
 
 ![Search a profile on the browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Search-a-profile-on-the-browser.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![URL of another user on the browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/URL-of-another-user-on-the-browser.jpg)
 
 Close
@@ -198,9 +134,23 @@ Close
 1. Use the search bar to find the profile.
 2. Open the profile and click on the address bar. The link is their Facebook Profile URL. Copy and paste it to the desired field.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Find and Share a Facebook Page Link
 
  You can search for and find a Facebook page's link on both using either your PC or smartphone.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Finding a Facebook Page URL on PC
 
@@ -215,20 +165,6 @@ Close
 If you're using the Facebook app:
 
 ![Arrow-on-top-of-a-Facebook-page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Arrow-on-top-of-a-Facebook-page.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ![Copy link of the Facebook page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-of-the-Facebook-page.jpg)
 
@@ -250,20 +186,6 @@ Close
 2. Click the three dots on the right to open a new menu. Select**Share** if you want to post it on your profile.
 3. Copy the link in the address bar as it’s the URL of the page.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to Find a Facebook Group URL
 
  Facebook groups can be public or private. You can share any group by copying its link.
@@ -276,19 +198,12 @@ Close
 
 ![Go to Share and Copy Link](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Go-to-Share-and-Copy-Link.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### How to Find a Facebook Group Link on Mobile
 
@@ -298,35 +213,7 @@ If you opt for the Facebook app:
 
 ![Share Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Share-Facebook-group.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Copy link of Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-of-Facebook-group.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Close
 
@@ -338,21 +225,20 @@ If you're going with a mobile web browser:
 
 ![Go to the Facebook group on the browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Go-to-the-Facebook-group-on-the-browser.jpg)
 
-![Share the group via browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Share-the-group-via-browser.jpg)
-
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+![Share the group via browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Share-the-group-via-browser.jpg)
 
 Close
 
@@ -361,34 +247,17 @@ Close
 3. Tap on**More** to share the group on your timeline.
 4. Select the link on the address bar and copy it to paste on other platforms.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Sharing Made Simple With Facebook
 
  Facebook is a popular platform, and it allows sharing of profile, page, and group links so that you can easily connect with people.
 
  When copying URLs of profiles and groups, it is essential to remember that contents in the Private/Friends Only mode are only accessible by people added in that particular section.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -397,4 +266,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-innovative-strategies-for-youtube-video-closures/"><u>[New] In 2024, Innovative Strategies for YouTube Video Closures</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-download-verbatim-excerpt/"><u>[Updated] In 2024, Download Verbatim Excerpt</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-zte-nubia-z60-ultra-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/duplicate-device-printing-discovered-and-tackled/"><u>Duplicate Device Printing Discovered & Tackled</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebook-is-defining-satirical-expression/"><u>How Facebook Is Defining Satirical Expression</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-facebook-visibility-settings/"><u>Mastering Your Facebook Visibility Settings</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-realme-narzo-n55-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Realme Narzo N55 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/revive-your-facebook-session-common-fixes-at-hand/"><u>Revive Your Facebook Session: Common Fixes at Hand</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-lava-storm-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Lava Storm 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-print-screen-malfunctions-in-windows-operating-systems-a-step-by-step-approach/"><u>Solving Print Screen Malfunctions in Windows Operating Systems: A Step-by-Step Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-tale-of-two-sides-to-joining-expat-groups-online/"><u>The Tale of Two Sides to Joining Expat Groups Online</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/ultimate-guide-restoring-lost-documents-on-windows-10-7-and-8-with-ifind-data-recovery/"><u>Ultimate Guide: Restoring Lost Documents on Windows 10, 7 & 8 with iFind Data Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-you-should-incorrantegate-sleep-mode-into-your-daily-routine-with-messenger-kids/"><u>Why You Should Incorrantegate Sleep Mode Into Your Daily Routine with Messenger Kids</u></a></li>
+</ul></div>
 

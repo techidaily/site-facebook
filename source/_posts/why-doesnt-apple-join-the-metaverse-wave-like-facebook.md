@@ -1,7 +1,7 @@
 ---
 title: Why Doesn't Apple Join the Metaverse Wave Like Facebook?
-date: 2024-09-05T09:31:23.840Z
-updated: 2024-09-06T09:31:23.840Z
+date: 2024-10-31T17:45:57.802Z
+updated: 2024-11-06T20:35:13.441Z
 tags:
   - facebook
 categories:
@@ -13,22 +13,10 @@ keywords: Apple Metaverse Absence,Metaverse Facebook,Apple vs Metaverse,Apple Te
 thumbnail: https://thmb.techidaily.com/82e91f7db84fddd0d0cd74fd53de4decc4bc8c46a25aa2285ca573b91b9719e8.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why Doesn't Apple Join the Metaverse Wave Like Facebook?
 
  The metaverse is all the rage right now, but at least one member of the big tech club is not interested. According to rumors, Apple will launch its virtual reality headset in 2022\. With its record of industry-changing products, consumers might expect the device to be an entry point into the metaverse. Instead, Apple's vision is far more limited.So what is Apple planning to do, and why are they not boarding the metaverse train? Let's find out.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## A Different Approach
 
  When[Facebook rebranded to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , they presented a vision of an always-on virtual world, where humanity meets to work and play, all day, every day. Mark Zuckerberg is betting the future of Facebook on it and has announced 10,000 vacancies for engineers to build the metaverse.
@@ -38,31 +26,23 @@ thumbnail: https://thmb.techidaily.com/82e91f7db84fddd0d0cd74fd53de4decc4bc8c46a
  Instead, they seem to view it as a more powerful version of a smartphone. Its purpose will be "bursts of gaming, communication and content consumption". Once you are done with your activity, you are done. Facebook's vision, on the other hand, is apparently to keep you locked in permanently.
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Why Is Apple Avoiding the Metaverse?
 
  Apple has never been a big fan of Facebook's business model. Its decision to help users opt-out of advertiser tracking reportedly cost Facebook, and other social media companies, billions of dollars.
 
  Secondly, and most importantly, Apple is a hardware company. Building a virtual world would not be in keeping with its core business. Apple will not miss out on the metaverse though. Its reputation for high-quality devices means that when the metaverse is widely available, many users will opt to log in with an Apple device.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -71,4 +51,23 @@ thumbnail: https://thmb.techidaily.com/82e91f7db84fddd0d0cd74fd53de4decc4bc8c46a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-exploring-the-great-outdoors-choose-between-dji-action-4-gopro-max-360-and-insta360-x3/"><u>[New] Exploring the Great Outdoors Choose Between DJi Action 4, GoPro Max 360 & Insta360 X3</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/browser-based-ai-deployment-with-agentgpt-steps-for-setting-up-ai-bots-effectively/"><u>Browser-Based AI Deployment with AgentGPT: Steps for Setting Up AI Bots Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/confirming-the-authenticity-of-securityfacebookmailcom-as-fbs-safety-mail/"><u>Confirming the Authenticity of @security@facebookmail.com as FB's Safety Mail</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/creative-catalysts-da-vinci-ai-inspires-30-visual-wonders/"><u>Creative Catalysts: Da Vinci AI Inspires 30 Visual Wonders</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-imposes-fines-on-spreading-falsehoods/"><u>Facebook Imposes Fines on Spreading Falsehoods</u></a></li>
+<li><a href="https://facebook.techidaily.com/fast-tracking-access-to-multiple-user-ids-in-facebook/"><u>Fast-Tracking Access to Multiple User IDs in Facebook</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-xiaomi-redmi-12-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Xiaomi Redmi 12 5Gwith/without a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-stories-that-could-change-your-perception-of-tech-today/"><u>Hidden Stories That Could Change Your Perception of Tech Today!</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/how-to-add-motion-blur-in-davinci-resolve/"><u>How To Add Motion Blur In Davinci Resolve?</u></a></li>
+<li><a href="https://facebook.techidaily.com/improve-your-digital-life-essential-settings-in-fb-app-for-mobile/"><u>Improve Your Digital Life: Essential Settings in FB App for Mobile</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-everything-to-know-about-apple-id-password-requirements-for-apple-iphone-xr-by-drfone-ios/"><u>In 2024, Everything To Know About Apple ID Password Requirements For Apple iPhone XR</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-multilingual-publishing-features/"><u>Navigating Facebook's Multilingual Publishing Features</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-choices-the-premier-portable-devices-for-editors/"><u>Prime Choices The Premier Portable Devices for Editors</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transforma-peliculas-al-formato-mkv-sin-coste-con-la-herramienta-de-conversion-en-linea-de-movavi/"><u>Transforma Películas Al Formato MKV Sin Coste Con La Herramienta De Conversión en Línea De Movavi</u></a></li>
+<li><a href="https://windows11.techidaily.com/ultraportables-with-prime-windows-software/"><u>Ultraportables with Prime Windows Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-identity-of-the-whistleblowing-source/"><u>Uncovering the Identity of the Whistleblowing Source</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Premier League Withdrawal From Social Networking Against Hate Speech
-date: 2024-09-05T09:31:21.071Z
-updated: 2024-09-06T09:31:21.071Z
+date: 2024-11-01T20:06:04.040Z
+updated: 2024-11-07T06:53:15.469Z
 tags:
   - facebook
 categories:
@@ -13,24 +13,12 @@ keywords: Premier League Anti-Hate Speech Policies,Football Leagues Addressing O
 thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163bbbccbbc666c03d517f249c.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Premier League Withdrawal From Social Networking Against Hate Speech
 
  The English Premier League, English Football League, and Women's Super League are joining forces to complete a four-day social media blackout.
 
  England's top soccer leagues are taking a social media stand against the ongoing abuse and discrimination experienced by players across all levels of the game. The English Football Association (The FA) is working closely with anti-discrimination charity Kick It Out and other organizations to coordinate the boycott.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Top English Soccer Teams Take a Social Media Stand
 
  The social media blackout will commence from Friday, 30 April, through to Monday, 3 May, taking place over a busy weekend for English soccer.
@@ -56,11 +44,12 @@ thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -79,14 +68,11 @@ thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163
 
  Whatever your take on the social media regulation side of the issue, one thing is clear: online abuse, racism, and toxic behavior towards anyone is unacceptable, whether they're a highly paid soccer player or otherwise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,4 +81,19 @@ thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-weaving-external-pages-into-your-insta-narrative-for-2024/"><u>[New] Weaving External Pages Into Your Insta Narrative for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-laugh-track-in-the-air-parody-anthems/"><u>[Updated] 2024 Approved Laugh Track in the Air Parody Anthems</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-ace-your-edits-youtube-studios-time-saving-secrets-revealed/"><u>[Updated] Ace Your Edits YouTube Studio's Time-Saving Secrets Revealed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-fast-lanes-migrating-iphone-media-to-a-desktop/"><u>[Updated] In 2024, Fast Lanes Migrating iPhone Media to a Desktop</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-inside-the-world-of-vivacut-expert-editor-review-2024/"><u>[Updated] Inside the World of VivaCut Expert Editor Review 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/explore-the-upgraded-evolution-of-apples-airpod-lineup-the-4-most-notable-features-revealed-zdnet/"><u>Explore the Upgraded Evolution of Apple's AirPod Lineup - The 4 Most Notable Features Revealed | ZDNet</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-advanced-technology-insights-with-toms-hardware-hub/"><u>Exploring Advanced Technology Insights with Tom's Hardware Hub</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/integrating-windows-apps-into-linux-world/"><u>Integrating Windows Apps Into Linux World</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-digital-integrity-tech-pointed-at-curbing-online-scams-and-fake-ads/"><u>Securing Digital Integrity: Tech' Pointed at Curbing Online Scams and Fake Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-the-exit-strategy-for-your-facebook-enterprise-pages/"><u>Securing the Exit Strategy for Your Facebook Enterprise Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotting-duplicate-personalities-on-social-media/"><u>Spotting Duplicate Personalities on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-future-self-edit-past-blogs/"><u>Will Future Self Edit Past Blogs?</u></a></li>
+</ul></div>
 

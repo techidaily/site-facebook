@@ -1,7 +1,7 @@
 ---
 title: "Track Us, Target Ads: Data's New Frontier"
-date: 2024-09-05T09:31:46.074Z
-updated: 2024-09-06T09:31:46.074Z
+date: 2024-11-06T08:29:47.934Z
+updated: 2024-11-06T18:10:06.088Z
 tags:
   - facebook
 categories:
@@ -13,18 +13,6 @@ keywords: Tracking User Data,Ad Targeting Analysis,Data-Driven Marketing,Online 
 thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a05de89bd7149842bbd8e67a6.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Track Us, Target Ads: Data's New Frontier
 
  These days, almost every move we make somehow gets recorded online. Whether it's because we purposely share it, our devices do it for us, or someone else uploads it, there are endless ways that we refine our digital persona that determines everything from the content we see, what ads we get served, and even our insurance premiums.
@@ -35,12 +23,6 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
 
 ![Surveillance Cameras](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/Surveillance-Cameras.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Coined by Harvard Professor Shoshana Zuboff, surveillance capitalism is an economic system centered around the commodification of personal data with a core purpose of making profit.
 
  In theory, surveillance capitalism helps businesses create better products, hold efficient inventory, and serve customers exactly what they need as soon as possible. By accurately pinpointing or swaying supply and demand, surveillance capitalism opens up a world of endless convenience.
@@ -48,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
  However, the promised efficiency of surveillance captalism doesn't necessarily mean it is ethical.
 
  It's important to understand that while surveillance capitalism has its advantages, it essentially thrives in an environment where human beings are not believed to have intrinsic value. In layman's terms, it creates a system wherein a person's value is directly equated to their expected profitability.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How Does Surveillance Capitalism Work?
 
@@ -57,12 +46,6 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
 
 ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  For surveillance capitalism to work, its primary well of power lies in its ability to gather data as granular as possible.
 
  Unfortunately,[acquiring data has never been so easy](https://www.makeuseof.com/keep-advertisers-from-stealing-data/) . With the rise of social media, smart home devices, wearable technology, ecommerce, telemedicine, and online financial services, data brokers have a myriad of options to gather a terrifying amount of data on individuals in real-time.
@@ -76,22 +59,24 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
  While one can argue that it isn't the responsibility of a business to implement ethics, we have to also remember that some businesses are directly responsible for an online environment that breeds vulnerability and they know it.
 
 ![game streamer taking a selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/game-streamer-selfie.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  According to[Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many[teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
 
@@ -113,24 +98,12 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
 
 ![Amazon echo speaker beside a TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/rsz_loewe-technology-skqnm8v6dok-unsplash-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  In fact, a prime example of surveillance capitalism-driven conspicuous consumption is no other the the world's largest retailer, Amazon. With a[49.1 percent](https://techcrunch.com/2018/07/13/amazons-share-of-the-us-e-commerce-market-is-now-49-or-5-of-all-retail-spend/) ecommerce market share in the US alone, Amazon has transitioned from being an online marketplace to developing smart home products such as wandering smart speakers, security robots, home thermostats, and so on.
 
  With an unprecedented amount of data at their fingertips, Amazon has billions of items they push towards their consumers at exactly the right moment. Aside from this, Amazon is rife with[human rights abuses in its supply chain](https://www.oxfamamerica.org/press/oxfam-urges-amazon-address-human-rights-risks-its-supply-chain-and-protect-its-workers/) , known to[destroy of millions in unsold stock](https://www.itv.com/news/2021-06-21/amazon-destroying-millions-of-items-of-unsold-stock-in-one-of-its-uk-warehouses-every-year-itv-news-investigation-finds) , and allegedly[steals product data](https://www.wsj.com/articles/amazon-scooped-up-data-from-its-own-sellers-to-launch-competing-products-11587650015) from small businesses and independent sellers.
 
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The Commodification of Personal Experiences
 
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
@@ -142,17 +115,12 @@ thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a0
  Nowadays, the pressure to commodify ourselves can be seen in the obsession with influencer culture, plastic surgery, and going viral. Instead of rejecting this culture of commodification, we have actually embraced it, encouraged it, and accepted it as a part of the new normal.
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Running Out of Ways to Opt Out
 
  As time passes, the hold that surveillance capitalism has on us only grows. It's difficult to untangle ourselves from this endless feedback loop of having our data sold, being manipulated into purchases, and teaching the surrounding systems how to do it more precisely.
@@ -165,14 +133,11 @@ In fact, we are already running out of ways to opt out.
 
  Thankfully, there are still some things you can do to make it harder for them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -181,4 +146,24 @@ In fact, we are already running out of ways to opt out.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-in-2024-uncover-the-best-5-ios-applications-for-easy-podcasting/"><u>[New] In 2024, Uncover the Best 5 iOS Applications for Easy Podcasting</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-growth-strategies-for-youtube-videos-6-effortless-approaches-for-2024/"><u>[Updated] Growth Strategies for YouTube Videos 6 Effortless Approaches for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-strategize-music-mixes-your-guide-to-youtube-playlists/"><u>[Updated] In 2024, Strategize Music Mixes Your Guide to YouTube Playlists</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/conversione-gratuita-online-da-f4v-a-mp3-con-movavi-il-modo-piu-semplice/"><u>Conversione Gratuita Online Da F4V a MP3 Con Movavi - Il Modo Più Semplice</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-tools-provided-for-common-facebook-issues/"><u>Exploring Tools Provided for Common Facebook Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-see-who-follows-you-on-facebook/"><u>How to See Who Follows You on Facebook</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-crafting-memorable-dialogues-a-screenwriters-guide/"><u>In 2024, Crafting Memorable Dialogues A Screenwriter's Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-elevate-your-mac-experience-with-these-5-snippers/"><u>In 2024, Elevate Your Mac Experience with These 5 Snippers</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-iphone-14-pro-max-drfone-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-top-sony-vegas-alternatives-for-windows-a-comprehensive-guide-for-2024/"><u>New Top Sony Vegas Alternatives for Windows A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/reason-behind-my-curated-list-of-fb-ads/"><u>Reason Behind My Curated List of Fb Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryl-sandbergs-leadership-legacy-in-tech/"><u>Sheryl Sandberg’s Leadership Legacy in Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-you-use-facebook-events-the-pros-and-cons-explained/"><u>Should You Use Facebook Events? The Pros and Cons Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-modern-age-of-sharing-four-methods-for-a-tailored-newsfeed/"><u>The Modern Age of Sharing: Four Methods for a Tailored Newsfeed</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-keeping-your-data-private-in-fb/"><u>The Ultimate Guide to Keeping Your Data Private in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-non-facebook-direct-messaging-methods/"><u>Unlocking Non-Facebook Direct Messaging Methods</u></a></li>
+</ul></div>
 

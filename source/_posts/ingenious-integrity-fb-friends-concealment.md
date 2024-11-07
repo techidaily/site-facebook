@@ -1,7 +1,7 @@
 ---
 title: "Ingenious Integrity: FB Friends Concealment"
-date: 2024-09-05T09:31:22.286Z
-updated: 2024-09-06T09:31:22.286Z
+date: 2024-11-03T18:30:58.679Z
+updated: 2024-11-07T10:23:38.931Z
 tags:
   - facebook
 categories:
@@ -13,18 +13,6 @@ keywords: Ingenious Integrity,Facebook Secrets,Friendship Deception,Hidden Behav
 thumbnail: https://thmb.techidaily.com/c8e68cffef41fc4061ac722c7019bbd23a7bd74185b074d0cf9fcbe34770c5fd.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Ingenious Integrity: FB Friends Concealment
 
  Facebook is public. Too public. You want to have an account, you want to keep in touch with your friends, but sometimes it goes too far. Do_all_ your friends really have to know about_all_ your other friends? How can you gain more privacy on the social media platform?
@@ -39,12 +27,6 @@ thumbnail: https://thmb.techidaily.com/c8e68cffef41fc4061ac722c7019bbd23a7bd7418
 
  Another possible scenario is that no one can see your friends list, in which case it's already hidden. If you'd like to double-check your settings or make your friends list private, here's what to do...
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Hide Your Facebook Friends List
 
  You can hide your friends list either from the Facebook app or on the desktop website. Either way, you will be able to change the same setting.
@@ -64,33 +46,36 @@ thumbnail: https://thmb.techidaily.com/c8e68cffef41fc4061ac722c7019bbd23a7bd7418
 ![facebook more menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-more-menu.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![facebook settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-and-privacy.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![facebook settings scrolled down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-scrolled-down.jpeg)
 
 ![facebook how people find and contact you menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-how-people-find-and-contact-you-menu.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook who can view your friends list menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-who-can-view-your-friends-list-menu.jpeg)
 
 Close
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Hiding Your Friends List on Desktop
 
 The steps are similar on Facebook's desktop website.
@@ -106,21 +91,22 @@ The steps are similar on Facebook's desktop website.
 ![desktop facebook change friends list viewers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-change-friends-list-viewers.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  4\. Scroll to**How people find and contact you** .
 
 ![desktopfacebooksettings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktopfacebooksettings.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  5\. Click**Edit** next to**Who can see you friends list?** and change the setting to your preference.
 
  On either device, you can change your friends list from Public to only viewable by friends, only certain friends, or no one at all. This makes who can see your friends list easily customizable, and you can change the setting at any time. There are other[ways to boost your privacy on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) too if you are looking for more protection over your information.
@@ -133,14 +119,11 @@ The steps are similar on Facebook's desktop website.
 
  Not wanting people to see your friends list isn't a bad thing, and you may even benefit from hiding it. Hiding your Facebook network may protect you and your friends from dangerous or bothersome strangers messaging you. You may also protect yourself from drama related to your family or friends seeing who else you are friends with on Facebook. Gaining this privacy can keep you safe and free from stress.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,4 +132,26 @@ The steps are similar on Facebook's desktop website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-in-depth-exploration-of-razers-kiyo-cam/"><u>[Updated] In 2024, In-Depth Exploration of Razer's Kiyo Cam</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-monitoring-your-instagram-exit-strategy/"><u>[Updated] In 2024, Monitoring Your Instagram Exit Strategy</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-top-5-non-twitter-social-sites/"><u>[Updated] Top 5 Non-Twitter Social Sites</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-artistic-techniques-for-3d-text-effect/"><u>2024 Approved Artistic Techniques for 3D Text Effect</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-playback-paradox-starting-at-the-finish-line-on-youtube/"><u>2024 Approved The Playback Paradox Starting at the Finish Line on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-worthiness-of-meta-endorsements/"><u>Exploring the Worthiness of Meta Endorsements</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fix-that-frustrating-microsoft-word-error-in-just-five-steps/"><u>Fix That Frustrating Microsoft Word Error in Just Five Steps!</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-will-us-legislation-challenge-the-titans/"><u>How Will U.S. Legislation Challenge the Titans?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-compreranciales-en-fb-tecnicas-para-la-registro-de-llamadas-y-conversaciones/"><u>In 2024, Compreranciales en FB Técnicas Para La Registro De Llamadas Y Conversaciones</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-on-your-apple-iphone-7-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status On Your Apple iPhone 7</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-messaging-evolves-on-facebook-new-tools-for-messenger/"><u>Instant Messaging Evolves on Facebook: New Tools for Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacyayer-why-and-how-to-delete-your-facebook-view-trails/"><u>Privacy'ayer: Why and How to Delete Your Facebook View Trails</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-transition-to-a-fresh-looked-facebook-avatar/"><u>Seamless Transition to a Fresh-Looked Facebook Avatar</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/step-by-step-instructions-ensure-smooth-performance-by-downloading-or-refreshing-your-d-link-windows-drivers/"><u>Step-by-Step Instructions: Ensure Smooth Performance by Downloading or Refreshing Your D-Link Windows Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactics-to-decrease-fb-reel-viewing-frequency/"><u>Tactics to Decrease Fb Reel Viewing Frequency</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-a-safer-social-media-experience-with-facebooks-streamlined-privacy-control/"><u>Unlocking a Safer Social Media Experience with Facebook’s Streamlined Privacy Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/visual-storytelling-creating-collages-for-facebook-narratives/"><u>Visual Storytelling: Creating Collages for Facebook Narratives</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-shadowbanned-skirting-around-it/"><u>What Is Shadowbanned? Skirting Around It</u></a></li>
+</ul></div>
 

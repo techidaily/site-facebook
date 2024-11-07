@@ -1,7 +1,7 @@
 ---
 title: Facebook's New Feature for Enhanced Informed Sharing
-date: 2024-10-13T22:36:32.135Z
-updated: 2024-10-20T16:24:33.816Z
+date: 2024-10-31T16:12:05.032Z
+updated: 2024-11-06T18:29:25.046Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
  Facebook then gives you two ways to reply to this prompt: **Open Article** and **Continue Sharing** . In other words, you can choose to read the article you're about to post, or continue to share it without reading.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Twitter Already Unveiled a Similar Prompt
@@ -48,16 +48,10 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
  While[Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will Facebook Ever Be Free of Misinformation?
@@ -81,18 +75,24 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-channel-profitability-famebit-powered-sponsorship-tactics/"><u>[New] 2024 Approved Boosting Channel Profitability FameBit-Powered Sponsorship Tactics</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/a-detailed-study-of-vsdcs-screen-capture-prowess-and-competing-products/"><u>A Detailed Study of VSDC's Screen Capture Prowess & Competing Products</u></a></li>
-<li><a href="https://facebook.techidaily.com/expressive-exchanges-textual-embellishments-in-messages/"><u>Expressive Exchanges: Textual Embellishments in Messages</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/fb-link-savers-discover-8-free-and-easy-online-tools/"><u>FB Link Savers Discover 8 Free & Easy Online Tools</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/from-niche-to-notorious-the-journey-of-crafting-memetic-content-gifs/"><u>From Niche to Notorious The Journey of Crafting Memetic Content (GIFs)</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-access-your-allotment-from-the-725-million-facebook-award/"><u>How to Access Your Allotment From the $725 Million Facebook Award</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-deciphering-the-technicalities-of-recmeister-screen-recording/"><u>In 2024, Deciphering the Technicalities of Recmeister Screen Recording</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-livestream-titans-clash/"><u>In 2024, LiveStream Titans Clash</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/kid-friendly-amazon-fire-hd-10-tablet-evaluation-a-device-that-combines-learning-with-entertainment/"><u>Kid-Friendly Amazon Fire HD 10 Tablet Evaluation: A Device That Combines Learning with Entertainment</u></a></li>
-<li><a href="https://facebook.techidaily.com/say-no-to-fb-surveillance-with-off-facebook-activity-controls/"><u>Say No to FB Surveillance with Off-Facebook Activity Controls</u></a></li>
-<li><a href="https://facebook.techidaily.com/skillful-use-of-alternative-chat-platforms-not-fb/"><u>Skillful Use of Alternative Chat Platforms, Not FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/suspension-of-decision-facebooks-regulatory-board/"><u>Suspension of Decision: Facebook's Regulatory Board</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/visual-wit-composition-kapwings-meme-workshop/"><u>Visual Wit Composition Kapwing’s Meme Workshop</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-accelerate-how-to-swiftly-broadcast-playlists-for-2024/"><u>[New] Accelerate How To Swiftly Broadcast Playlists for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-essential-vr-games-for-oculus-users-of-all-ages/"><u>[New] Essential VR Games for Oculus Users of All Ages</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-essential-equipment-list-secure-your-zoom-sessions/"><u>2024 Approved Essential Equipment List Secure Your Zoom Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-sophisticated-social-media-scams-you-need-to-avoid/"><u>3 Sophisticated Social Media Scams You Need to Avoid</u></a></li>
+<li><a href="https://facebook.techidaily.com/altering-fb-contact-details-steps-included/"><u>Altering FB Contact Details: Steps Included</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-vivo-y27-5g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Vivo Y27 5G Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-safe-browsing-facebooks-privacy-and-security-blueprint/"><u>Ensuring Safe Browsing: Facebook's Privacy & Security Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-oversight-saga-the-top-5-user-failings-revealed/"><u>Facebook's Oversight Saga: The Top 5 User Failings Revealed</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-adjust-and-solve-mouse-issues-in-fortnite-gaming/"><u>How to Adjust and Solve Mouse Issues in Fortnite Gaming</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-motorola-razr-40-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Motorola Razr 40 to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On OnePlus Ace 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-xiaomi-redmi-k70-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Xiaomi Redmi K70 in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-the-benefits-and-reasons-of-multiple-profiles-on-one-facebook-account/"><u>Insight Into the Benefits and Reasons of Multiple Profiles on One Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/ripls-tips-for-making-viral-social-media-content/"><u>Ripl's Tips for Making Viral Social Media Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/trust-wanes-for-major-tech-firms-facebook-at-forefront-of-fears/"><u>Trust Wanes for Major Tech Firms; Facebook at Forefront of Fears</u></a></li>
+<li><a href="https://apple-account.techidaily.com/turning-off-two-factor-authentication-from-apple-iphone-se-2022-5-tips-you-must-know-by-drfone-ios/"><u>Turning Off Two Factor Authentication From Apple iPhone SE (2022)? 5 Tips You Must Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-ray-ban-stories-on-facebook-what-can-you-expect/"><u>Unveiling Ray-Ban Stories on Facebook - What Can You Expect?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/whistle-blowers-say-facebook-clamps-honesty-in-ads/"><u>Whistle-Blowers Say Facebook Clamps Honesty in Ads</u></a></li>
 </ul></div>
 

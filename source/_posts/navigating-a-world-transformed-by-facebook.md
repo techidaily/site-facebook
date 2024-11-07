@@ -1,7 +1,7 @@
 ---
 title: Navigating a World Transformed by Facebook
-date: 2024-10-24T20:05:54.883Z
-updated: 2024-10-26T20:52:01.879Z
+date: 2024-11-02T07:24:32.770Z
+updated: 2024-11-06T20:28:14.615Z
 tags:
   - facebook
 categories:
@@ -28,15 +28,22 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 
  While Facebook received a lot of negative press in recent years, it wasn't all negative. After all, Facebook did not get over 2 billion users by being a bad social media platform. So, these are some of the few good things the social media platform brought to humanity.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Facebook Brought People Together
 
 ![a group of friends sitting on a dock](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-group-of-friends-sitting-on-a-dock.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Although Facebook wasn't the first social media platform to bring people together, it is, by far, the most successful. With Facebook, many people can keep their circles updated with the events in their lives, no matter how near or far they are.
@@ -51,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 
 ![an old photo of two kids playing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/an-old-photo-of-two-kids-playing.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Aside from bringing people closer together, Facebook also lets us connect across time. You can easily find friends you've met over 20 years ago and have since lost contact with on the platform.
 
  Furthermore, Facebook occasionally reminds us of our noteworthy posts from the past. Whether this is your wedding, a holiday, or any other event, the social media platform uses its algorithm to send reminders to your feed. There's also an[effective way to use Facebook's "On This Day" feature](https://www.makeuseof.com/how-to-use-the-on-this-day-feature-facebook/) to ensure that Facebook knows you're celebrating an important milestone.
@@ -60,10 +74,10 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 ![A lady starting an online business selling home decor and gifts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-lady-starting-an-online-business-selling-home-decor-and-gifts.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  With its massive audience, Facebook is definitely one of[the best social media platforms for businesses](https://www.makeuseof.com/best-social-media-platforms-for-business/) . And because it knows that companies are more than willing to invest to tap into this market, the social media platform developed several tools they can use.
@@ -78,13 +92,6 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 
 So, what are some of the biggest things that affected us negatively?
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Misinformation on Facebook Deceived the Masses
 
 ![fake news typed on a typewriter with some books on misinformation to the right](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/fake-news-typed-on-a-typewriter-with-some-books-on-misinformation-to-the-right.jpg)
@@ -92,13 +99,6 @@ So, what are some of the biggest things that affected us negatively?
  With the democratization of media through Facebook and other social media platforms, it became easier for fake news and disreputable sites to spread their content. And when you couple this with sensational headlines and quick share buttons, misinformation spread like wildfire over the social media platform.
 
 [A study published by the National Library of Medicine](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9609763/) has shown a correlation between Facebook posts and COVID-19 vaccine hesitancy. That means false social media posts, especially those that go viral, could have a real and lasting impact on individuals and our society. Although[Facebook eventually took steps to control misinformation](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) , some say it was too little, too late.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Your Data, Cambridge Analytica, Presidential Elections, and International Politics
 
@@ -108,16 +108,16 @@ So, what are some of the biggest things that affected us negatively?
 
  According to[a Rappler report](https://www.rappler.com/technology/social-media/239606-cambridge-analytica-philippines-online-propaganda-christopher-wylie/) , Cambridge Analytica and SCL, its parent company, influenced presidential elections successfully in the Philippines. There were also allegations that unauthorized data mining on Facebook was used to affect the 2016 US Presidential Elections,[forcing Facebook to address the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) and fix its systems to avoid a repeat of this incident.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Facebook Increased Polarization
 
 ![a keyboard warrior sitting beside a window in front of a macbook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-keyboard-warrior-sitting-beside-a-window-in-front-of-a-macbook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Facebook allows people to express their opinions on nearly anything—from whether pineapple belongs on pizza to their political and religious affiliation. And while it's normal for others to react negatively and disagree with a post, our smartphone screens, computer displays, and keyboards serve as a shield when we reply.
 
@@ -146,20 +146,21 @@ So, what are some of the biggest things that affected us negatively?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-fabricate-personalized-viral-memes/"><u>[New] Fabricate Personalized Viral Memes</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-sonys-masterpiece-in-motion-graphics-xperia-xz-premium-unboxed/"><u>[Updated] In 2024, Sony's Masterpiece in Motion Graphics Xperia XZ Premium Unboxed</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-lava-yuva-3-pro-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Lava Yuva 3 Pro to Roku | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-apple-books-application-assessment/"><u>Comprehensive Apple Books Application Assessment</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-office-insights-essential-workplace-wisdom/"><u>Facebook Office Insights: Essential Workplace Wisdom</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-capturing-the-moment-advanced-tips-for-iphone-silhouettes/"><u>In 2024, Capturing the Moment Advanced Tips for iPhone Silhouettes</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-social-media-turn-off-algorithms-on-twitter-instagram-and-facebook/"><u>Mastering Social Media: Turn Off Algorithms on Twitter, Instagram, & Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/severing-digital-ties-separating-instagram-from-facebook/"><u>Severing Digital Ties: Separating Instagram From Facebook</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/snowy-seasonings-sharing-apps-from-microsofts-marketplace/"><u>Snowy Seasonings: Sharing Apps From Microsoft's Marketplace</u></a></li>
-<li><a href="https://facebook.techidaily.com/stealthy-step-down-tactics-to-delete-multiple-business-profiles-on-facebook/"><u>Stealthy Step-Down Tactics to Delete Multiple Business Profiles on Facebook</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/step-by-step-guide-to-perfecting-tiktok-broadcast-on-zoom/"><u>Step-by-Step Guide to Perfecting TikTok Broadcast on Zoom</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-man-or-woman-behind-60-minutes-facebook-scoop/"><u>The Man or Woman Behind 60 Minutes' Facebook Scoop</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/ultimate-gecata-analyzer-report-for-2024/"><u>Ultimate GECATA Analyzer Report for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-to-viral-content-on-facebook/"><u>Unlocking the Secrets to Viral Content on Facebook</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mastering-zoom-audio-high-fidelity-and-unmuted-channels/"><u>[New] Mastering Zoom Audio High Fidelity & Unmuted Channels</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-comprehensively-covering-the-top-tweets-cleanse-apps-for-2024/"><u>[Updated] Comprehensively Covering the Top Tweets Cleanse Apps for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-top-15-budget-friendly-online-editors-for-stunning-images/"><u>[Updated] In 2024, Top 15 Budget-Friendly Online Editors for Stunning Images</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-ultimate-guide-for-crafting-top-charting-youtube-titles/"><u>[Updated] In 2024, Ultimate Guide for Crafting Top-Charting YouTube Titles</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-thrifty-fliers-list-best-drones-for-the-price-point/"><u>2024 Approved Thrifty Flier's List Best Drones for the Price Point</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-digital-presence-how-to-close-your-fb-account/"><u>Dismantling Digital Presence: How to Close Your FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-advanced-conversational-ai-metaai/"><u>Exploring Advanced Conversational AI: MetaAI</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/fresh-start-strategy-budget-channels-to-purchase-for-2024/"><u>Fresh Start Strategy Budget Channels to Purchase for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/interactive-learning-strategies-in-video-editing/"><u>Interactive Learning Strategies in Video Editing</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-confidential-communication-on-fb-reliable/"><u>Is Confidential Communication on FB Reliable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-integrates-on-instagramfacebook-with-new-initiative/"><u>Meta Drops Integrates on Instagram/Facebook with New Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151843193-new-era-for-content-sharing-tackle-transfer-to-leading-3-platforms/"><u>New Era for Content Sharing: Tackle Transfer to Leading 3 Platforms!</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-misinformation-about-pandemic-on-digital-platforms/"><u>Preventing Misinformation About Pandemic on Digital Platforms</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/tips-and-tricks-for-setting-up-your-vivo-t2x-5g-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Vivo T2x 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-10-best-free-video-upload-sites-for-online-presence-and-visibility/"><u>Updated 10 Best Free Video Upload Sites for Online Presence and Visibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-to-anticipate-from-metas-privacy-policy-overhaul/"><u>What to Anticipate From Meta's Privacy Policy Overhaul?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Virtual Vacation: Deleting the Drama From Digital Dialogue"
-date: 2024-10-27T17:13:22.117Z
-updated: 2024-11-01T16:16:24.270Z
+date: 2024-10-31T21:22:14.516Z
+updated: 2024-11-07T08:52:40.816Z
 tags:
   - facebook
 categories:
@@ -29,10 +29,10 @@ thumbnail: https://thmb.techidaily.com/bab37a5357094e09dd42f37d3cc78e25fe907bbcf
  When you remove such comments, Facebook does not send notifications to the person who commented. However, they may notice their comments have been deleted when viewing the post.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete a Comment on Your Facebook Post
@@ -40,10 +40,10 @@ thumbnail: https://thmb.techidaily.com/bab37a5357094e09dd42f37d3cc78e25fe907bbcf
  Deleting an offensive comment is simply a few clicks away. Just follow the steps below on how you can delete them, whether you're accessing Facebook on a PC or through the mobile app.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Delete a Comment When Accessing Facebook From a PC
@@ -57,27 +57,20 @@ Here's how to remove comments using a PC:
 3. With a click of the cursor on**Delete** , a dialogue box opens. It reads**Are you sure you want to delete this comment?** with an option to either cancel or delete.
 4. Click on**Delete,** and the comment is deleted.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Delete a Comment on a Mobile App
 
  The process slightly differs on a Facebook mobile app. Follow these steps to delete a comment under your post directly from your mobile app.
 
 ![screenshot showing how to delete comment on facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-delete-comment-on-facebook-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![screenshot showing how to confirm comment deletion on facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-confirm-comment-deletion-on-facebook-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -86,6 +79,13 @@ Close
 3. Confirm you want to delete the comment on the next screen. And that's it. The comment is deleted.
 
  Related:[What Happens to Your Data if Facebook Ever Dies?](https://www.makeuseof.com/what-happens-to-facebook-data-if-it-dies/)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Get Rid of Negative Comments on Your Posts
 
@@ -108,17 +108,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-comprehensive-solution-for-partially-muted-fb-video-tracks/"><u>[New] 2024 Approved Comprehensive Solution for Partially Muted FB Video Tracks</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-camera-control-tips-for-unshakable-images/"><u>[New] Camera Control Tips for Unshakable Images</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-sharpen-your-images-the-ultimate-list-of-top-10-internet-apps/"><u>[Updated] Sharpen Your Images The Ultimate List of Top 10 Internet Apps</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-shorts-guide-what-is-it-and-how-to-make-shorts-video/"><u>2024 Approved YouTube Shorts Guide What Is It and How To Make Shorts Video?</u></a></li>
-<li><a href="https://win-answers.techidaily.com/defeat-the-problem-of-dauntless-crashing-during-playtime-on-desktop/"><u>Defeat the Problem of Dauntless Crashing During Playtime on Desktop</u></a></li>
-<li><a href="https://driver-install.techidaily.com/essential-webcam-driver-for-clear-video-capture-logitech-c270/"><u>Essential Webcam Driver for Clear Video Capture: Logitech C270</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-sony-xperia-10-v-phone-without-google-account-by-drfone-android/"><u>How to Unlock Sony Xperia 10 V Phone without Google Account?</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-my-personal-number-at-risk-in-facebook-networks/"><u>Is My Personal Number at Risk in Facebook Networks?</u></a></li>
-<li><a href="https://facebook.techidaily.com/nurturing-online-interactions-essential-tips-for-social-media-success/"><u>Nurturing Online Interactions: Essential Tips for Social Media Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-and-singleness-adapting-to-facebooks-dating-features/"><u>Social Media and Singleness: Adapting to Facebook's Dating Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/thread-feature-to-vanish-by-end-dec-month/"><u>Thread Feature to Vanish by End-Dec Month</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-did-i-officially-embrace-virtual-connectivity-facebooks-role/"><u>When Did I Officially Embrace Virtual Connectivity? - Facebook's Role</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-deep-dive-into-instagrams-daily-narrative-components/"><u>[New] 2024 Approved Deep Dive Into Instagram's Daily Narrative Components</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-stabilizing-your-motion-sensitive-cameras-a-step-by-step-guide/"><u>[New] 2024 Approved Stabilizing Your Motion-Sensitive Cameras A Step by Step Guide</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-prime-online-converter-options-for-instant-gif-to-video/"><u>[New] In 2024, Prime Online Converter Options for Instant GIF to Video</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-sprint-through-your-vimeo-media/"><u>[New] Sprint Through Your Vimeo Media</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/best-apps-for-high-school-students-a-selection-of-the-top-10-picks/"><u>Best Apps for High School Students: A Selection of the Top 10 Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/broadcasting-on-ig-live-cut-the-clutter/"><u>Broadcasting On IG Live: Cut the Clutter</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-queries-gain-friends-insights-via-chats/"><u>Crafting Queries: Gain Friends' Insights via Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-global-village-weighing-in-on-expat-community-joining/"><u>Facebook's Global Village: Weighing in on Expat Community Joining</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-mandate-forward-facing-free-from-faithpolitics/"><u>Facebook's Mandate: Forward-Facing, Free From Faith/Politics</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-flashlight-from-iphone-x-lock-screen-drfone-by-drfone-ios/"><u>How To Remove Flashlight From iPhone X Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-share-instagram-reels-to-facebook/"><u>How to Share Instagram Reels to Facebook</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-how-to-schedule-meetings-on-zoom-webdesktopmobile/"><u>In 2024, How to Schedule Meetings on Zoom [Web/Desktop/Mobile]</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-your-digital-self-how-to-change-facebook-name/"><u>Redefining Your Digital Self: How to Change Facebook Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/smart-strategies-no-cost-top-10-free-social-management-apps/"><u>Smart Strategies, No Cost - Top 10 Free Social Management Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-three-step-roadmap-to-efficiently-tag-friends-on-facebook/"><u>The Three-Step Roadmap to Efficiently Tag Friends on Facebook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-ultimate-guide-to-screenshot-and-record-mastery-on-mi-11/"><u>The Ultimate Guide to Screenshot & Record Mastery on Mi 11</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-nonfunctional-spacebar-keys-on-windows-10-pcs/"><u>Troubleshooting Nonfunctional Spacebar Keys on Windows 10 PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-metaais-distinctive-features-against-bots/"><u>Unveiling MetaAI's Distinctive Features Against Bots</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-samsung-galaxy-m14-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Samsung Galaxy M14 5G? Here Is the Answer | Dr.fone</u></a></li>
 </ul></div>
 

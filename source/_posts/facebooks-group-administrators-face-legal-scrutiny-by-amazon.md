@@ -1,7 +1,7 @@
 ---
 title: Facebook's Group Administrators Face Legal Scrutiny by Amazon
-date: 2024-10-19T17:07:33.137Z
-updated: 2024-10-20T22:29:03.330Z
+date: 2024-11-01T23:04:31.266Z
+updated: 2024-11-06T23:09:20.358Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Amazon Filed the Case
@@ -50,10 +50,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
@@ -65,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -82,10 +82,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -109,20 +109,16 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-science-of-luts-elevating-photo-aesthetics/"><u>2024 Approved The Science of LUTs Elevating Photo Aesthetics</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-the-motive-behind-facebooks-just-feed-change/"><u>Analyzing the Motive Behind Facebook's 'Just Feed' Change</u></a></li>
-<li><a href="https://techtrends.techidaily.com/as-principais-17-aplicativos-de-captura-de-tela-do-windows-comanalizados-por-usos-finais-e-recomendacoes-de-especialistas-movavi/"><u>As Principais 17 Aplicativos De Captura De Tela Do Windows Comanalizados Por Usos Finais E Recomendações De Especialistas – Movavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/clear-the-clutter-filter-out-politics-boost-joy/"><u>Clear the Clutter: Filter Out Politics, Boost Joy</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-the-pro-sound-free-focusrite-scarlett-solo-driver-install-for-pc-users/"><u>Get the Pro Sound: Free Focusrite Scarlett Solo Driver Install for PC Users</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/ideal-images-scenery-for-engaging-online-audiences-for-2024/"><u>Ideal Images Scenery for Engaging Online Audiences for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-are-high-end-tvs-with-aurora-hdr-worth-it-analyzed/"><u>In 2024, Are High-End TVs with Aurora HDR Worth It? Analyzed</u></a></li>
-<li><a href="https://win-lab.techidaily.com/losung-fur-schwarze-displays-auf-msi-laptops-anleitung-zur-fehlerbehebung/"><u>Lösung Für Schwarze Displays Auf MSI-Laptops - Anleitung Zur Fehlerbehebung</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/mastering-idevice-screenshots-latest-techniques-for-2024/"><u>Mastering iDevice Screenshots Latest Techniques for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/mastering-the-art-of-text-insertion-in-digital-pictures/"><u>Mastering the Art of Text Insertion in Digital Pictures</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-in-immediate-access-to-separate-facebook-profiles/"><u>Mastery in Immediate Access to Separate Facebook Profiles</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-privacy-metas-image-control-plan/"><u>Protecting Privacy: Meta's Image Control Plan</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-authenticity-on-meta-platforms/"><u>Social Authenticity on Meta Platforms</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-10-must-have-mobile-apps-every-teenager-needs/"><u>Top 10 Must-Have Mobile Apps Every Teenager Needs</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-extends-grace-period-for-new-privacy-acceptance/"><u>WhatsApp Extends Grace Period for New Privacy Acceptance</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-unveiling-the-10-best-free-os-agnostic-video-solutions/"><u>[New] Unveiling the 10 Best Free OS-Agnostic Video Solutions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-secrets-of-6-video-categories-for-viewer-retention/"><u>[Updated] In 2024, Secrets of 6 Video Categories for Viewer Retention</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-simplified-methods-to-record-gotomeeting-chats-for-2024/"><u>[Updated] Simplified Methods to Record GoToMeeting Chats for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-social-media-live-platforms-facebook-vs-youtube-live-and-twitter-periscope/"><u>[Updated] Social Media Live Platforms FACEbook Vs. YOUTube Live & Twitter Periscope</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Vivo S17t | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/shattered-in-silence-post-fb-information/"><u>Shattered in Silence: Post-FB Information</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-real-value-of-paying-a-premium-for-advanced-ai-outputs/"><u>The Real Value of Paying a Premium for Advanced AI Outputs</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-updated-privacy-center-strategies/"><u>Unveiling Facebook’s Updated Privacy Center Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-procedure-for-altering-your-facebook-nickname/"><u>Unveiling the Procedure for Altering Your Facebook Nickname</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-transparency-of-fbcta/"><u>Unveiling the Transparency of FBCTA</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-your-logitech-mk710-free-drivers-and-enhanced-features-available-now/"><u>Update Your Logitech MK710: Free Drivers and Enhanced Features Available Now!</u></a></li>
 </ul></div>
 

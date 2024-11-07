@@ -1,7 +1,7 @@
 ---
 title: Tap Into Newly Viewed Vids on Social Network
-date: 2024-10-30T17:08:34.075Z
-updated: 2024-11-01T16:03:29.497Z
+date: 2024-11-01T21:15:43.481Z
+updated: 2024-11-06T16:24:37.568Z
 tags:
   - facebook
 categories:
@@ -45,6 +45,13 @@ That's it. Here you will find all the recently watched videos.
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Filter Facebook Watched Videos by Date on the Web
 
  If you want to view videos watched in a particular month and year, you can do that too. Here's how:
@@ -54,20 +61,14 @@ That's it. Here you will find all the recently watched videos.
 ![Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date-option.jpg)
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
 
-![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
-
 <!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
 
@@ -77,21 +78,7 @@ That's it. Here you will find all the recently watched videos.
 
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
@@ -107,16 +94,10 @@ Close
  You'll now see all the videos you recently watched on your Facebook app.
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Filter Facebook Watched Videos by Date on Android and iOS
@@ -133,6 +114,13 @@ Close
 2. Slide the available activities to the left and choose the Videos watched option.
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
 
@@ -153,20 +141,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-cutting-edge-zooming-tactics-for-collaborative-ms-teams/"><u>[Updated] In 2024, Cutting Edge Zooming Tactics for Collaborative MS Teams</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-logic-pro-x-guide-to-cohesive-track-transitions-for-2024/"><u>[Updated] Logic Pro X Guide to Cohesive Track Transitions for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/amplifying-online-presence-focusing-on-details/"><u>Amplifying Online Presence Focusing on Details</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-apple-iphone-6-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For Apple iPhone 6 Lock Screen | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhanced-chat-on-the-horizon-for-facebook-users/"><u>Enhanced Chat on the Horizon for Facebook Users</u></a></li>
-<li><a href="https://games-able.techidaily.com/enhancing-xbox-d-pad-accuracy-and-stability/"><u>Enhancing Xbox D-Pad Accuracy and Stability</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-facebook-to-the-world-seamlessly-upload-your-posts-and-notes/"><u>From Facebook to the World: Seamlessly Upload Your Posts and Notes.</u></a></li>
-<li><a href="https://review-topics.techidaily.com/identify-malfunctioning-hardware-drivers-with-windows-device-manager-in-windows-11-and-10-by-drivereasy-guide/"><u>Identify malfunctioning hardware drivers with Windows Device Manager in Windows 11 & 10</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-xiaomi-civi-3-disney-100th-anniversary-editionwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Xiaomi Civi 3 Disney 100th Anniversary Editionwith/without a PC</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-oppo-a2-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Oppo A2 online without jailbreak</u></a></li>
-<li><a href="https://facebook.techidaily.com/initiating-polls-on-facebook-stories-and-pages-effectively/"><u>Initiating Polls on Facebook Stories and Pages Effectively</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-web-searches-post-fbcta-implementation/"><u>Navigating Web Searches Post-FBCTA Implementation</u></a></li>
-<li><a href="https://facebook.techidaily.com/permanently-dissolve-your-facebook-account-using-android/"><u>Permanently Dissolve Your Facebook Account Using Android</u></a></li>
-<li><a href="https://facebook.techidaily.com/preserve-your-anonymity-avoid-risky-privacy-apps/"><u>Preserve Your Anonymity: Avoid Risky Privacy Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-the-facebook-backed-diem-cryptocurrency-and-can-you-trust-it/"><u>What Is the Facebook-Backed Diem Cryptocurrency and Can You Trust It?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-mastering-social-connectivity-from-instagram-to-tiktoks-playground/"><u>[New] In 2024, Mastering Social Connectivity From Instagram to TikTok's Playground</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-ultra-fast-instagram-video-views-for-smartphone-users-for-2024/"><u>[New] Ultra-Fast Instagram Video Views for Smartphone Users for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-easytech-snapshot-quick-rundown/"><u>[Updated] 2024 Approved EasyTech Snapshot Quick Rundown</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-enhancing-youtube-popularity-editing-and-optimizing-content-metadata-for-2024/"><u>[Updated] Enhancing YouTube Popularity Editing & Optimizing Content Metadata for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-storing-image-frames-from-videos-on-windows-11/"><u>2024 Approved Storing Image Frames From Videos on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-revelations-from-a-no-snap-break/"><u>Digital Detox: Revelations From a No-Snap Break</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-metas-new-privacy-standards-and-impact/"><u>Dissecting Meta's New Privacy Standards and Impact</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-epson-artisan-1430-drivers-for-pc-compatible-with-win-11108/"><u>Get the Latest Epson Artisan 1430 Drivers for PC - Compatible with Win 11/10/8</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pro-equipment-list-for-adventure-documentaries-for-2024/"><u>Pro Equipment List for Adventure Documentaries for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-oneplus-11r-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/reasons-behind-decs-instagram-conversations-ending/"><u>Reasons Behind Dec’s Instagram Conversations Ending</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-back-your-privacy-from-facebooks-watchfulness/"><u>Taking Back Your Privacy From Facebook's Watchfulness</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-a-new-self-the-art-of-changing-your-fb-photo/"><u>Unveiling a New Self: The Art of Changing Your FB Photo</u></a></li>
 </ul></div>
 

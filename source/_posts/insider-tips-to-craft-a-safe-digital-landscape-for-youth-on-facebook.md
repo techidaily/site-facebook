@@ -1,7 +1,7 @@
 ---
 title: Insider Tips to Craft a Safe Digital Landscape for Youth on Facebook
-date: 2024-09-10T14:50:09.070Z
-updated: 2024-09-11T14:50:09.070Z
+date: 2024-11-03T06:33:19.264Z
+updated: 2024-11-06T21:23:15.320Z
 tags:
   - facebook
 categories:
@@ -19,73 +19,46 @@ thumbnail: https://thmb.techidaily.com/a0528aada037fb1ed089f58b7830637011a25b39b
 
  You can show them how to perform a privacy check on Facebook by going through it with them, or by doing it for them. Let's take a look at what you should be checking.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## What Is a Privacy Check on Facebook?
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about[what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
-![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
-
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 Close
 
  When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Privacy Setting Basics
 
@@ -113,37 +86,16 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Check Ad Settings
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
@@ -155,34 +107,17 @@ Close
 
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Why Online Safety Is More Important Than Ever
 
  Both posts and advertisements that your teen sees are unpredictable, and there is no such thing as being one hundred percent safe online. If you've never thought about checking their privacy settings on Facebook, it may be time to do so.
 
  By doing this, you will be able to make sure that when your teen posts something, it is only being seen by their close circle. You will also make sure that spammers have a limited chance of reaching them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -191,4 +126,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-the-verdict-on-toolwiz-top-notch-mobile-photo-editor/"><u>[Updated] 2024 Approved The Verdict on Toolwiz Top-Notch Mobile Photo Editor?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-churn-memetic-content-for-gif-hub/"><u>[Updated] Churn Memetic Content for GIF Hub</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-ultimate-list-of-hd-webcams-compatible-with-windows-11-pcs-for-2024/"><u>[Updated] Ultimate List of HD Webcams Compatible with Windows 11 PCs for 2024</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/get-free-santabanta-video-content-in-multiple-formats-using-the-santabanta-video-extractor-tool/"><u>Get Free SantaBanta Video Content in Multiple Formats Using the SantaBanta Video Extractor Tool</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-restore-windows-10-synchronization-functionality-when-its-disabled/"><u>How to Restore Windows 10 Synchronization Functionality When It's Disabled</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-htc-u23-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast HTC U23 to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-monetization-policy-updated-requirements-and-guidelines/"><u>In 2024, YouTube Monetization Policy Updated Requirements and Guidelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-appreciation-fb-likes-anonymity-guide/"><u>Masked Appreciation: FB Likes Anonymity Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/security-strategy-shift-oculus-q2-demand-skyrockets-post-hacks/"><u>Security Strategy Shift - Oculus Q2 Demand Skyrockets Post-Hacks</u></a></li>
+<li><a href="https://win-blog.techidaily.com/the-ultimate-guide-to-correcting-minecrafts-abrupt-termination-tackling-exit-code-0-problems/"><u>The Ultimate Guide to Correcting Minecraft's Abrupt Termination: Tackling Exit Code 0 Problems</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/transform-and-tailor-image-dimensions-with-these-key-steps-in-windows-11/"><u>Transform and Tailor Image Dimensions with These Key Steps in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-social-media-presence-with-page-update/"><u>Transform Social Media Presence with Page Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/transition-to-a-darker-facebook-experience/"><u>Transition to a Darker Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/trustworthiness-inquiry-for-facebook-security-email-securityfbcom/"><u>Trustworthiness Inquiry for Facebook Security Email @security@fb.com</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-holds-the-reins-at-facebook/"><u>Who Holds the Reins at Facebook?</u></a></li>
+</ul></div>
 

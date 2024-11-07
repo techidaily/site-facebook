@@ -1,7 +1,7 @@
 ---
 title: "Secure Communication Grows: Facebook Rolls Out Encrypted Chat for Messenger and DMs."
-date: 2024-09-05T09:31:24.307Z
-updated: 2024-09-06T09:31:24.307Z
+date: 2024-10-30T16:04:17.795Z
+updated: 2024-11-07T06:18:03.714Z
 tags:
   - facebook
 categories:
@@ -13,22 +13,10 @@ keywords: Facebook Encrypted Chat,Secure Messaging FB,FB Messenger Encryption,Me
 thumbnail: https://thmb.techidaily.com/a399a44beb5899ba48cdf59ba448623d828236f52b18cfdee70ac40508a6e091.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Secure Communication Grows: Facebook Rolls Out Encrypted Chat for Messenger and DMs
 
  Facebook is expanding end-to-end encryption to Messenger voice and video calls, as well as direct messages (DMs) on Instagram. Turning on the feature will let users communicate securely, whether over calls or text messages.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook Brings End-to-End Encryption to More Services
 
  A post on[Messenger News](https://messengernews.fb.com/2021/08/13/messenger-updates-end-to-end-encrypted-chats-with-new-features/) revealed that Facebook is amping up security on both Messenger and Instagram.[Facebook started offering encrypted messaging on Messenger in 2016](https://www.makeuseof.com/tag/enjoy-secret-facebook-messenger-conversations/) , and now that same protection is offered for voice and video calls.
@@ -46,11 +34,12 @@ thumbnail: https://thmb.techidaily.com/a399a44beb5899ba48cdf59ba448623d828236f52
  Aside from expanding end-to-end encryption, Facebook also said that it's giving users more control over their disappearing messages. Users in the chat can choose from a wider range of times when it comes to how long it takes for new messages to disappear. You'll now be able to choose from anywhere between five seconds and 24 hours.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Facebook Adapts to Growing Security Awareness Among Users
 
  Many messaging apps, such as Signal, WhatsApp, and Telegram already use end-to-end encryption. More users are prioritizing their security, and that means limiting the communication apps they use to those that offer end-to-end encryption.
@@ -59,14 +48,11 @@ thumbnail: https://thmb.techidaily.com/a399a44beb5899ba48cdf59ba448623d828236f52
 
  That said, Facebook doesn't have the best reputation when it comes to security, and its expansion of end-to-end encryption doesn't necessarily make its apps more appealing security-wise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -75,4 +61,16 @@ thumbnail: https://thmb.techidaily.com/a399a44beb5899ba48cdf59ba448623d828236f52
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-increasing-or-slowing-down-frame-rate-on-your-story-feed/"><u>[New] Increasing or Slowing Down Frame Rate on Your Story Feed</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-footage-to-fame-premiere-pro-edition-tricks-for-youtube-for-2024/"><u>[Updated] From Footage to Fame Premiere Pro Edition Tricks for YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-group-inclusion-comprehensive-member-listing-tactics/"><u>Ensuring Group Inclusion: Comprehensive Member Listing Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-older-friendships-on-the-social-media-site/"><u>Examining Older Friendships on the Social Media Site</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/free-digital-artistry-the-meme-generator-for-2024/"><u>Free Digital Artistry The Meme Generator for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/government-vs-gigacompanies-the-fight-for-competitive-equality/"><u>Government Vs. Gigacompanies: The Fight for Competitive Equality</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-tecno-spark-go-2023-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Tecno Spark Go (2023)? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/step-by-step-guide-validating-and-resolving-incompatible-device-drivers/"><u>Step-by-Step Guide: Validating and Resolving Incompatible Device Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-connecting-discovering-group-and-profile-links-on-fb/"><u>The Art of Connecting: Discovering Group & Profile Links on FB</u></a></li>
+</ul></div>
 

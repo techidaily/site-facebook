@@ -1,7 +1,7 @@
 ---
 title: Whistleblowers Pleased as Germany Halts Facebook From Collecting WhatsApp User Info
-date: 2024-10-26T17:41:34.965Z
-updated: 2024-11-01T16:38:50.212Z
+date: 2024-11-04T07:36:09.320Z
+updated: 2024-11-06T21:13:22.231Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -56,10 +56,10 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -83,18 +83,22 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-exclusive-mp4-uploader-to-facebook-platform/"><u>[Updated] 2024 Approved Exclusive MP4 Uploader to Facebook Platform</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-pursuit-of-perfection-wincams-listed-here/"><u>[Updated] In Pursuit of Perfection WinCams Listed Here</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-proiphone-close-up-techniques-unlocking-creative-vision/"><u>2024 Approved Proiphone Close-Up Techniques Unlocking Creative Vision</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-smb-video-marketing-success-factors/"><u>2024 Approved SMB Video Marketing Success Factors</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-stop-personalized-recommendations-for-podcasts-on-spotify/"><u>2024 Approved Stop Personalized Recommendations for Podcasts on Spotify</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/before-you-buy-think-about-these-screen-specs/"><u>Before You Buy, Think About These Screen Specs</u></a></li>
-<li><a href="https://facebook.techidaily.com/every-voice-heard-strategies-for-full-group-mentions-on-fb/"><u>Every Voice Heard: Strategies for Full Group Mentions on FB</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-asus-rog-phone-7-ultimates-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Asus ROG Phone 7 Ultimates Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://facebook.techidaily.com/marketing-momentum-shifts-as-carolyn-leaves/"><u>Marketing Momentum Shifts as Carolyn Leaves</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-verification-are-the-benefits-justifiable/"><u>Meta Verification: Are The Benefits Justifiable?</u></a></li>
-<li><a href="https://facebook.techidaily.com/syncopating-success-stories-facebook-and-spotifys-upcoming-boombox-feat/"><u>Syncopating Success Stories: Facebook & Spotify's Upcoming Boombox Feat</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-risks-lurking-in-entertainment-based-fb-quizzes/"><u>The Risks Lurking in Entertainment-Based FB Quizzes</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-governments-seek-to-curtail-the-power-of-technology-titans/"><u>Why Governments Seek to Curtail the Power of Technology Titans</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-audio-purging-techniques-for-streaming-success/"><u>[New] In 2024, Audio Purging Techniques for Streaming Success</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-boost-your-instagram-videos-watchability-and-speed/"><u>[New] In 2024, Boost Your Instagram Videos' Watchability and Speed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-youtubes-secret-to-flawless-video-spin-guide-and-tips/"><u>[New] In 2024, YouTube's Secret to Flawless Video Spin (Guide & Tips)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-incredibly-swift-blackouts/"><u>[New] Incredibly Swift Blackouts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-channel-upgrade-plans-standard-studio-or-beta-revolution/"><u>[Updated] 2024 Approved Channel Upgrade Plans Standard Studio or Beta Revolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-free-methods-to-schedule-facebook-updates/"><u>5 Free Methods to Schedule Facebook Updates</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/budget-savvy-shooters-top-5-under-200-cameras/"><u>Budget-Savvy Shooters Top 5 Under $200 Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/exiting-the-browser-without-using-fb-app/"><u>Exiting the Browser Without Using FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-swiftly-severing-online-group-ties-on-fb/"><u>Guide to Swiftly Severing Online Group Ties on FB</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-vivo-v29-pro-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Vivo V29 Pro Without PUK Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-smartwatch-rumors-facebook-prototype-might-feature-dual-cams/"><u>Innovative Smartwatch Rumors: Facebook Prototype Might Feature Dual Cams</u></a></li>
+<li><a href="https://facebook.techidaily.com/intellectual-property-users-photographic-domain/"><u>Intellectual Property: User's Photographic Domain</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-visuals-for-an-attention-grabbing-timeline-experience/"><u>Leveraging Visuals for an Attention-Grabbing Timeline Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/react-quickly-regain-authority-over-compromised-facebook-account/"><u>React Quickly: Regain Authority Over Compromised Facebook Account</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-constant-crashes-a-guide-for-stable-hearthstone-gameplay-on-pc/"><u>Resolving Constant Crashes: A Guide for Stable Hearthstone Gameplay on PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153446795-the-cryptic-connection-zuckerberg-goats-and-crypto-names/"><u>The Cryptic Connection: Zuckerberg, Goats & Crypto Names</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ins-and-outs-of-ussd-unstructured-supplementary-service-data/"><u>The Ins and Outs of USSD (Unstructured Supplementary Service Data)</u></a></li>
 </ul></div>
 

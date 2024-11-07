@@ -1,7 +1,7 @@
 ---
 title: Major Stakeholders Owning Facebook
-date: 2024-10-26T16:46:58.367Z
-updated: 2024-11-01T16:21:43.647Z
+date: 2024-11-06T06:18:30.926Z
+updated: 2024-11-06T16:55:46.273Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Who Owns Facebook Now?
@@ -46,16 +46,10 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
@@ -69,10 +63,10 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Did Facebook Rebrand to Meta?
@@ -84,16 +78,10 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Zuckerberg Still (Largely) Owns Meta
@@ -117,18 +105,24 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-essential-5-platforms-beyond-twitter/"><u>[Updated] 2024 Approved Essential 5 Platforms Beyond Twitter</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unlock-the-best-top-9-gamers-hubs/"><u>[Updated] Unlock the Best Top 9 Gamers' Hubs</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-a-deep-dive-into-cutting-edge-vr-technology/"><u>2024 Approved A Deep Dive Into Cutting-Edge VR Technology</u></a></li>
-<li><a href="https://facebook.techidaily.com/fostering-dialogue-implementing-facebook-stories-surveys/"><u>Fostering Dialogue: Implementing Facebook Stories Surveys</u></a></li>
-<li><a href="https://facebook.techidaily.com/friendship-finance-social-networks-money-story/"><u>Friendship Finance: Social Networks' Money Story</u></a></li>
-<li><a href="https://facebook.techidaily.com/highlighting-googles-influential-2022-news/"><u>Highlighting Google's Influential 2022 News</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-navigating-file-extraction-from-youtube-browser-os-and-terminal-methods/"><u>In 2024, Navigating File Extraction From Youtube Browser, OS and Terminal Methods</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/mastering-core-dll-error-troubleshooting-techniques/"><u>Mastering Core DLL Error Troubleshooting Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-giants-gridlock-lasting-six-hours/"><u>Online Giants' Gridlock Lasting Six Hours</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/quick-fixes-to-restore-battery-charging-functionality-on-your-laptop/"><u>Quick Fixes to Restore Battery Charging Functionality on Your Laptop</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210432855-9781684860081-satans-masterpiece-and-the-way-to-freedom/"><u>Satan's Masterpiece, And The Way To Freedom | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/seeking-solutions-to-privacy-concerns/"><u>Seeking Solutions to Privacy Concerns</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-daily-life-replay-facebook-guide/"><u>Unlocking Daily Life Replay: Facebook Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-superior-top-ten-nintendo-switch-combat-games-max-156/"><u>[New] 2024 Approved Superior Top Ten Nintendo Switch Combat Games (Max 156)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-twilight-crusaders-the-darkened-knight-vs-the-shining-one/"><u>[New] Twilight Crusaders The Darkened Knight vs the Shining One</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-shift-in-tech-monopoly-controls/"><u>Analyzing the Shift in Tech Monopoly Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/combat-the-quiescence-wake-up-your-facebook-account/"><u>Combat the Quiescence: Wake Up Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-communities-in-real-time-with-facebooks-update/"><u>Connecting Communities in Real-Time with Facebook's Update</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/conversion-avi-a-gif-sans-frais-guide-complet-avec-movavi/"><u>Conversion AVI À GIF Sans Frais – Guide Complet Avec Movavi</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easy-fixes-for-when-hulu-wont-work-a-comprehensive-guide-to-resolving-streaming-troubles/"><u>Easy Fixes for When Hulu Won't Work: A Comprehensive Guide to Resolving Streaming Troubles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-game-changing-power-of-the-imacs-m1-processor-a-detailed-assessment/"><u>Exploring the Game-Changing Power of the iMac's M1 Processor: A Detailed Assessment</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-enhances-user-chat-new-tools-for-instagram-messenger-users-announced/"><u>Facebook Enhances User Chat: New Tools for Instagram, Messenger Users Announced</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-more-ways-to-step-away-from-facebooks-clutches/"><u>Five More Ways to Step Away From Facebook's Clutches</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-oppo-reno-11-pro-5g-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Oppo Reno 11 Pro 5G FRP Locks</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-screensnap-it-all-high-quality-netflix-on-mac/"><u>In 2024, ScreenSnap It All High-Quality Netflix on Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-exclusion-in-fb-nostalgia/"><u>Master the Art of Exclusion in FB Nostalgia</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-path-to-influence/"><u>Mastering Social Media: Path to Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/slash-the-impact-of-selective-advertising-on-web-platforms/"><u>Slash the Impact of Selective Advertising on Web Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-6-steps-leading-from-forums-to-social-groups/"><u>The 6 Steps Leading From Forums To Social Groups</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-assassins-creed-valhalla-release-issues-solutions-revealed/"><u>Troubleshooting Assassin's Creed Valhalla Release Issues – Solutions Revealed!</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-fixing-error-code-0x80071ac3-corrupt-disk-issue/"><u>Troubleshooting Guide: Fixing Error Code 0X80071AC3 - Corrupt Disk Issue</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "From Chat Rooms to TikToks: The Evolutionary Journey"
-date: 2024-10-25T16:40:10.735Z
-updated: 2024-11-01T17:34:39.526Z
+date: 2024-11-01T02:40:06.528Z
+updated: 2024-11-07T00:56:25.896Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,16 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
  While you may be happy with the familiarity that comes from forums, a lot of people expect much more innovation than these platforms typically get. Even if social media platforms are sometimes slow to implement changes that their user base wants, you're probably less likely to stick around for changes to happen on a forum that already falls short of many features that social media offers.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Social Media Is Designed to be Attention-Grabbing
@@ -42,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
 ![A class of students paying attention to a lecture.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/students-attention.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Social media, by design, knows how to grab your attention and then hold it. You likely find yourself scrolling for a while on Twitter, Facebook, or some other social media before realizing you've lost track of time. While you could have the same experience on a forum, social media platforms are more adept at maintaining users' attention. This is because they run on an[attention economy model](https://www.makeuseof.com/tag/what-is-attention-economy/) , as your sustained usage makes these platforms money.
@@ -58,18 +64,18 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
 
  This is because young internet users will learn from people around them that are older about social media, and the less they see forums, the less chance they'll think to sign up for one. As time goes on, forums will likely become more obscure and more outdated—leading to fewer signups.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Forums Tend to Be Dedicated Around One Subject
 
  This isn't a hard-and-fast rule, of course, but forums typically are dedicated to one subject—even if the actual boards have sections for many topics. Examples include mothers for MumsNet, gamers for IGN boards, and so on.
 
  Forums commonly have a subsection where you can talk about everyday life stuff, films, TV shows, games, anything that isn't related to the primary subject it was created for. However, because of this dedication to a single subject, it can lead to you thinking that they're very niche. This may not be favorable compared to Twitter, Facebook, or Instagram, all of which cover pretty much anything—and connect you to people based on a comprehensive algorithm or your manual searches.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Apps Are More User-Friendly
 
@@ -86,10 +92,10 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
  While you may find that it's still harder to find older conversations on Facebook Groups than on a forum, the accessibility that they offer is undeniable. No other social media really has a competing feature, with LinkedIn Groups often littered with self-promotion, non-moderated conversations, and a lack of presence compared to Facebook Groups. This, combined with the popularity of Facebook's platform on the whole, means that their Groups feature is extremely popular—and these were also big reasons that online forums fell by the wayside over the past decade.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Social Media Is the Current-Day Online Forum
@@ -113,17 +119,20 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-zoom-precision-fine-tuning-meeting-settings-for-success/"><u>[New] 2024 Approved Zoom Precision Fine-Tuning Meeting Settings for Success</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-capturing-chats-complete-fbm-conversation-history/"><u>[New] In 2024, Capturing Chats Complete FBM Conversation History</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/ai-driven-naming-tools-for-dynamic-podcast-titles-for-2024/"><u>AI-Driven Naming Tools for Dynamic Podcast Titles for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-revolutionary-screen-technology-elite-4k-options-for-mac-enthusiasts/"><u>In 2024, Revolutionary Screen Technology Elite 4K Options for Mac Enthusiasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/like-and-share-carefully-how-marketers-target-you-on-facebook/"><u>Like and Share Carefully: How Marketers Target You on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-new-territories-with-facebooks-expat-groups/"><u>Navigating New Territories with Facebook's Expat Groups</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-transform-your-videos-10-online-rotators-to-try-for-2024/"><u>New Transform Your Videos 10 Online Rotators to Try for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/no-roku-no-problem-watch-your-favorite-shows-on-the-roku-channel-with-these-alternatives/"><u>No Roku? No Problem! Watch Your Favorite Shows on the Roku Channel with These Alternatives</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-titans-take-a-stand-against-the-invasion-of-scam-ads/"><u>Tech Titans, Take a Stand Against the Invasion of Scam Ads</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/top-10plus-instagram-content-downloaders-reviewed/"><u>Top 10+ Instagram Content Downloaders Reviewed</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-strategies-for-restoring-access-to-your-fb-profile/"><u>Top Strategies for Restoring Access to Your FB Profile</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/us-and-uk-grammar-variances/"><u>US and UK Grammar Variances</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-understanding-how-youtube-manages-post-upload-content/"><u>2024 Approved Understanding How YouTube Manages Post-Upload Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternative-communication-tools-stepping-away-from-fb-messenger/"><u>Alternative Communication Tools: Stepping Away From FB Messenger</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/deciding-on-top-notch-chatbots-an-in-depth-comparison-of-chatgpt-plus-and-perplexity/"><u>Deciding on Top-Notch Chatbots: An In-Depth Comparison of ChatGPT Plus and Perplexity</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-your-facebook-outage-rationale/"><u>Decoding Your Facebook Outage Rationale</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-remnrances-without-fbs-presence/"><u>Digital Remnrances Without FB’s Presence</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/downloading-cinema-favorites-to-kindle-fire-gratis-and-subscriber-only-content/"><u>Downloading Cinema Favorites to Kindle Fire - Gratis & Subscriber-Only Content</u></a></li>
+<li><a href="https://extra-information.techidaily.com/eternal-memory-keepsake-blend-free-cloud-services-with-elite-charged-spaces/"><u>Eternal Memory Keepsake Blend Free Cloud Services with Elite Charged Spaces</u></a></li>
+<li><a href="https://win-web3.techidaily.com/how-to-optimally-transfer-your-hard-drive-data-to-a-virtualbox-vm/"><u>How to Optimally Transfer Your Hard Drive Data to a VirtualBox VM</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-the-metaverse-simplified-avatar-designs/"><u>In 2024, Unlocking the Metaverse Simplified Avatar Designs</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-of-the-apple-watch-series-9/"><u>In-Depth Analysis of the Apple Watch Series 9</u></a></li>
+<li><a href="https://facebook.techidaily.com/leverage-languages-boosting-social-media-presence-on-facebook/"><u>Leverage Languages: Boosting Social Media Presence on Facebook</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-windows-tenth-casting-challenges-a-comprehensive-guide/"><u>Resolving Windows Tenth Casting Challenges - A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-digital-personas-set-to-revolutionize-vr/"><u>Tailored Digital Personas Set to Revolutionize VR</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/troubleshooting-0xc00000f-windows-problems/"><u>Troubleshooting 0xC00000F Windows Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-fake-deals-avoiding-phony-propositions-on-fb-marketplace/"><u>Unmasking Fake Deals: Avoiding Phony Propositions on FB Marketplace</u></a></li>
 </ul></div>
 

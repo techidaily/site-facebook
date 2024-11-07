@@ -1,7 +1,7 @@
 ---
 title: Ensuring Personal Security in FB Settings
-date: 2024-09-05T09:31:22.966Z
-updated: 2024-09-06T09:31:22.966Z
+date: 2024-11-06T00:08:33.550Z
+updated: 2024-11-06T17:22:36.564Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,6 @@ keywords: Facebook Privacy Controls,Secure FB Account,Protect Your FB Profile,En
 thumbnail: https://thmb.techidaily.com/36933db6d941c003b496fa9d41f25952922b64b713c335aa2dc61c27de44c438.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Ensuring Personal Security in FB Settings
 
  One of the positive things about social media is that it makes it easier for a person to quickly tell everyone in their network that they’re safe after a disaster.
@@ -49,22 +43,17 @@ The process is the same whether using a mobile or desktop device.
 
 ![crisis safety check page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/crisis-safety-check-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Facebook is not the only tech brand to become involved in disaster-related tech. For example, Google developed a system that sends earthquake alerts to people in California who have Android phones.
 
  Read more:[Common Facebook Problems and Errors (And How to Fix Them)](https://www.makeuseof.com/tag/fix-facebook-problems-errors/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Check a Friend’s Safety
 
  You can also go to the**Safety Check** tab to touch base with an affected friend if you don’t see them showing up as safe through this feature.
@@ -72,6 +61,28 @@ The process is the same whether using a mobile or desktop device.
 1. Select the**More** arrow and choose**Not marked as safe yet** .  
 ![friends not marked as safe yet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/friends-not-marked-as-safe-yet.jpg)
 2. Alternatively, use the**Search for friends** box under the**Friends in the area** heading.  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+![facebook safety check search for friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-safety-check-search-for-friends.jpg)
+3. Provided you have Facebook friends in the affected area, you’ll see an**Ask If Safe** button next to their name.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+ Suppose you don’t hear back from a friend after using the Safety Check feature to inquire about them? In that case, you should try other avenues of contacting them.
+
+ Related:[How to Find the Exact Date You Created Your Facebook Account](https://www.makeuseof.com/find-facebook-account-creation-date/)
+
 <!-- affiliate ads begin -->
 <span id="1328683">
 					<video width="200" height="200" style="cursor:pointer"
@@ -84,18 +95,6 @@ The process is the same whether using a mobile or desktop device.
 </span>
 <img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-![facebook safety check search for friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-safety-check-search-for-friends.jpg)
-3. Provided you have Facebook friends in the affected area, you’ll see an**Ask If Safe** button next to their name.
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
- Suppose you don’t hear back from a friend after using the Safety Check feature to inquire about them? In that case, you should try other avenues of contacting them.
-
- Related:[How to Find the Exact Date You Created Your Facebook Account](https://www.makeuseof.com/find-facebook-account-creation-date/)
 
 ## Good Intentions Can Backfire
 
@@ -105,26 +104,17 @@ The process is the same whether using a mobile or desktop device.
 
  It could also cause unnecessary worry among Facebook users. This is especially true if the person near the crisis doesn't use Facebook often and doesn't respond to requests to mark themselves as safe.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook Safety Check: Is It Worth Using?
 
  The next time you see a safety check notification pop up on Facebook, think carefully about responding to it.
 
  Do you have lots of friends who only communicate with you through the platform? If so, it may prove useful.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,4 +123,20 @@ The process is the same whether using a mobile or desktop device.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/updated-the-fundamentals-of-human-interface-recognition/"><u>[Updated] The Fundamentals of Human Interface Recognition</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlocking-instagrams-potential-successful-post-tactics/"><u>[Updated] Unlocking Instagram's Potential Successful Post Tactics</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-best-practice-mp4-director-to-fb/"><u>2024 Approved Best Practice MP4 Director to FB</u></a></li>
+<li><a href="https://program-issues.techidaily.com/battle-through-uninterrupted-gameplay-tackling-modern-warfare-3-pc-crashes-effectively/"><u>Battle Through Uninterrupted Gameplay: Tackling Modern Warfare 3 PC Crashes Effectively</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boses-newest-masterpiece-review-qc35-ii-evaluation/"><u>Bose's Newest Masterpiece Review - QC35 II Evaluation</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-nokia-130-music-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Nokia 130 Music FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-begin-your-online-romance-via-facebook/"><u>How to Begin Your Online Romance via Facebook</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-a15-5g-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy A15 5G Phone without PIN</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-infinix-note-30-pro-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Infinix Note 30 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/limit-sponsored-content-tailoring-on-networking-sites/"><u>Limit Sponsored Content Tailoring on Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-purchasing-perils-escaping-exaggerated-offers-in-the-social-commerce-world/"><u>Preventing Purchasing Perils: Escaping Exaggerated Offers in the Social Commerce World</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-savvy-for-the-corporate-world-on-fb-platforms/"><u>Social Savvy for the Corporate World on FB Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-swift-deletion-of-facebook-stories/"><u>Techniques for Swift Deletion of Facebook Stories</u></a></li>
+</ul></div>
 

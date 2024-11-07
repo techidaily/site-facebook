@@ -1,7 +1,7 @@
 ---
 title: Privacy Protocols for Personal Photographs on FB
-date: 2024-10-28T17:11:46.208Z
-updated: 2024-11-01T17:20:22.163Z
+date: 2024-11-04T00:46:06.555Z
+updated: 2024-11-07T04:38:47.621Z
 tags:
   - facebook
 categories:
@@ -47,18 +47,18 @@ thumbnail: https://thmb.techidaily.com/a8dc09aa00b57fb659621da31b365534682fa3f06
 
 ![Edit album option on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-edit-facebook-album-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook album editing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-edit-facebook-album-privacy-options.jpg)
 
 ![Privacy settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-facebook-album-privacy-setting.jpg)
 
 Close
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Make Albums Private on Facebook on the Web
 
@@ -69,45 +69,25 @@ Close
 
 ![Albums section on Facebook's Web version](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-web-albums.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Next, click the**three dots** in the top right of the album you wish to make private and select**Edit album** from the pop-up.
 
 ![Edit album option on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/edit-album-option-facebook-web.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * On the next page, click the button with a privacy option (e.g. Friends, Public, Friends except and others) in the top left.
 * Finally, select**Only me** from the pop-up window and click**Done > Save** to save your changes.
 
 ![Setting album privacy on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-album-privacy-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you don't want to make the photos completely private and still want to share them, just with a more limited audience, you can choose the audience options for**Friends** ,**Friends except** , or**Specific friends** .
 
  If you want to show the album only to a group of friends on a certain list, select**Custom** . This allows you to have fine-grained control over who can see your Facebook photos without totally hiding them from everyone. However, this option is only available on Facebook's website.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Make Individual Facebook Photos Private on Android and iOS
 
@@ -135,16 +115,22 @@ To make a single photo on Facebook private, follow these steps:
 
 ![Viewing a photo on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-photo-uploaded-to-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Photo settings options on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-facebook-photo-settings-options.jpg)
 
 ![Editing photo privacy settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-photo-privacy-settings-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -157,6 +143,19 @@ Close
 * Click**Photos > Your Photos** .
 
 ![Your photos in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-your-photos-album-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Click to open the photo you want to make private.
 * Next, click the**three dots** in the top right and select**Edit post audience** .
@@ -177,28 +176,15 @@ Close
 
 ![View as on Facebook.com](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/view-as-option-facebook-website.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  This will show you all the previous posts that people outside your Facebook friends list and the platform can see. You can not change the[privacy settings of your Facebook you're](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) while you’re in the View As mode, but you can take note of the photos and the dates so that you can find them later.
 
  Once you know which photos you want to set to private, leave View As public mode by clicking on your thumbnail in the top right corner of your screen or clicking back. Alternatively, tap**Exit View As** . On mobile, tap the**X** button at the top to exit View As mode.
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Hide Photos on Facebook From the Public in the Future
@@ -212,15 +198,28 @@ Close
 ![Making a Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-posting-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook audience options for a post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-post-audience-facebook.jpg)
 
 ![Adjusting audience settings on a Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-facebook-default-audience-option.jpg)
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -229,6 +228,19 @@ Close
  Also, regularly check your profile in View As mode to see if you may have accidentally shared anything with the public.
 
  Having a[Facebook privacy and security checklist](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) that you go through regularly will help make sure you catch any of these photos right away. Remember that the longer these photos are shared publicly on social media, the higher the chances of a scammer getting a hold of them. Although this helps, you can[make your Facebook private](https://www.makeuseof.com/how-to-make-facebook-private/) if you need more security.
+
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Now You Know How to Hide Photos on Facebook
 
@@ -251,19 +263,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-screensnapper-summit-the-ultimate-guide-to-capturing/"><u>[New] ScreenSnapper Summit The Ultimate Guide to Capturing</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-enhance-your-shorts-fresh-and-original-thumbnails-with-minimal-effort/"><u>2024 Approved Enhance Your Shorts Fresh and Original Thumbnails with Minimal Effort</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-reel-in-attention-by-emulating-tiktok-stardom-on-instagram/"><u>2024 Approved Reel In Attention by Emulating TikTok Stardom on Instagram</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/ai-at-your-fingertips-setting-up-auto-gpt-on-ubuntu/"><u>AI at Your Fingertips: Setting up Auto-GPT on Ubuntu</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/explore-elite-gaming-opening-tutorials-free-and-premium-alternatives/"><u>Explore Elite Gaming Opening Tutorials Free & Premium Alternatives</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-disable-broadcast-message-everyone/"><u>How to Disable Broadcast Message (@Everyone)</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-disable-the-people-you-may-know-feature-on-facebook/"><u>How to Disable the People You May Know Feature on Facebook</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-restore-functionality-to-your-google-meet-camera-a-step-by-step-fix/"><u>How to Restore Functionality to Your Google Meet Camera - A Step-by-Step Fix</u></a></li>
-<li><a href="https://facebook.techidaily.com/rethinking-the-use-of-negative-digital-tools/"><u>Rethinking the Use of Negative Digital Tools</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/secrets-to-high-quality-sims-4-gameplay-recordings/"><u>Secrets to High-Quality Sims 4 Gameplay Recordings</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-of-big-tech-and-americas-new-regulatory-framework/"><u>The Future of Big Tech and America's New Regulatory Framework</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/thrifty-approaches-to-youtube-video-card-production/"><u>Thrifty Approaches to YouTube Video Card Production</u></a></li>
-<li><a href="https://facebook.techidaily.com/tracing-outages-in-tech-giants-platforms/"><u>Tracing Outages in Tech Giants' Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-instagram-wants-you-to-take-a-break-from-social-media/"><u>Why Instagram Wants You to Take a Break From Social Media</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-indispensable-top-vr-movie-adventures/"><u>[New] Indispensable Top VR Movie Adventures</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-methods-to-validate-youtube-login-for-2024/"><u>[Updated] Methods to Validate YouTube Login for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-soundscape-scrutiny-listening-insights/"><u>[Updated] Soundscape Scrutiny Listening Insights</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-itel-p55-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Itel P55 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-brother-business-profit-from-peering/"><u>Big Brother Business: Profit From Peering</u></a></li>
+<li><a href="https://facebook.techidaily.com/breeze-and-boost-rapid-android-app-surges/"><u>Breeze and Boost: Rapid Android App Surges</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-strengthened-by-7-social-innovations/"><u>Community Strengthened by 7 Social Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-privacy-with-a-new-phrase/"><u>Enhancing Your Facebook Privacy with a New Phrase</u></a></li>
+<li><a href="https://facebook.techidaily.com/facing-the-tide-facebook-spends-5-million-to-diversify-from-substacks-authorship-model/"><u>Facing the Tide: Facebook Spends $5 Million to Diversify From Substack's Authorship Model</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-conversational-ai-can-transform-your-search-for-love-and-compannce/"><u>How Conversational AI Can Transform Your Search for Love and Compannce</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-halo-infinite-audio-problems/"><u>How to Fix Halo Infinite Audio Problems</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/investment-guidelines-for-effective-youtube-campaigns-for-2024/"><u>Investment Guidelines for Effective YouTube Campaigns for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-a-frozen-facebook-profile-step-by-step/"><u>Recovering a Frozen Facebook Profile: Step by Step</u></a></li>
+<li><a href="https://facebook.techidaily.com/revealing-newest-videos-on-social-media-hub/"><u>Revealing Newest Videos on Social Media Hub</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-role-of-hugging-face-in-machine-learning-explained/"><u>The Role of Hugging Face in Machine Learning - Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-facebooks-operations-a-guide-through-the-transparency-center/"><u>Unraveling Facebook's Operations: A Guide Through the Transparency Center</u></a></li>
+<li><a href="https://win-dash.techidaily.com/upgrade-your-system-with-recent-nvidia-quadro-rtx-8000-windows-drivers-win-1087/"><u>Upgrade Your System with Recent Nvidia Quadro RTX 8000 Windows Drivers (Win 10/8/7)</u></a></li>
+<li><a href="https://facebook.techidaily.com/visionaries-earning-vistas-creators-journey-with-metrics-and-money-through-reels/"><u>Visionaries Earning Vistas: Creators' Journey with Metrics & Money Through Reels</u></a></li>
+<li><a href="https://windows11.techidaily.com/what-is-hardware-reserved-memory-on-windows/"><u>What Is Hardware Reserved Memory on Windows?</u></a></li>
 </ul></div>
 

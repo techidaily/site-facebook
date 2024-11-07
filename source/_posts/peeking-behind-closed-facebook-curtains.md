@@ -1,7 +1,7 @@
 ---
 title: Peeking Behind Closed Facebook Curtains
-date: 2024-09-10T14:50:10.092Z
-updated: 2024-09-11T14:50:10.092Z
+date: 2024-11-03T19:57:39.633Z
+updated: 2024-11-06T22:58:09.016Z
 tags:
   - facebook
 categories:
@@ -27,20 +27,6 @@ thumbnail: https://thmb.techidaily.com/9f80d4896e94eaecc9b9d2fa222d6b7ea517f0365
 
 ![facebook-stories-captioning-featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-stories-captioning-featured.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 [A private Facebook profile](https://www.makeuseof.com/how-to-make-anonymous-facebook-profile/) is an account you cannot view without being friends. When you view a private Facebook profile, you don't see any user information and, in many cases, don't see a profile photo either. The user has switched off any public-facing profile settings, making the profile not quite anonymous but certainly more private.
 
  In the early days,[several Facebook tricks existed](https://www.makeuseof.com/tag/21-hidden-facebook-messenger-tricks-need-try-right-now/) that allowed at least a partial view of a private Facebook account. For instance, adding someone as a friend granted access to that person's Facebook page, regardless of privacy settings.
@@ -57,14 +43,6 @@ thumbnail: https://thmb.techidaily.com/9f80d4896e94eaecc9b9d2fa222d6b7ea517f0365
 
  There are a few methods people will use to get into a locked Facebook profile. Here's what you need to watch out for because even if you know the techniques below, someone else may try to use them against you.
 
-### 1\. Fake Facebook Friends
-
-![facebook logo with dislike thumbs surrounding](https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d6070583d2a1a451841876e1401.jpg)
-
-
-
-
-
 <!-- affiliate ads begin -->
 <a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
   <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
@@ -72,8 +50,9 @@ thumbnail: https://thmb.techidaily.com/9f80d4896e94eaecc9b9d2fa222d6b7ea517f0365
 <img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+### 1\. Fake Facebook Friends
 
-
+![facebook logo with dislike thumbs surrounding](https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d6070583d2a1a451841876e1401.jpg)
 
  Image Credit: TY Lim/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-10-2018-facebook-1065601421)
 
@@ -89,6 +68,13 @@ thumbnail: https://thmb.techidaily.com/9f80d4896e94eaecc9b9d2fa222d6b7ea517f0365
 
  You can[take control of your Facebook friend settings](https://www.makeuseof.com/tag/facebook-friend-requests-unwritten-rules-hidden-settings-weekly-facebook-tips/) , including hiding your Friends list and restricting who can send you a friend request.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Spyware Apps
 
  Once Facebook finally made it genuinely difficult to view a private Facebook profile, those desperate to view private Facebook profiles turned to more extreme options.
@@ -101,43 +87,16 @@ thumbnail: https://thmb.techidaily.com/9f80d4896e94eaecc9b9d2fa222d6b7ea517f0365
 
  Check out our[complete malware removal guide](https://www.makeuseof.com/tag/download-operation-cleanup-complete-malware-removal-guide/) or the[steps you should take when you discover malware](https://www.makeuseof.com/tag/10-steps-to-take-when-you-discover-malware-on-your-computer/) . They will help you discover if your device is hiding any spyware or malware and explain how to remove it.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 3\. Password Theft
 
 ![password entry image with padlock facebook color background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/password-entry-image-with-padlock-facebook-color-background.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  The third method for accessing a private Facebook profile is straight-up password theft. Facebook password creation rules are decent enough. You need a minimum of eight characters, including upper and lowercase letters, numbers, and symbols.
 
@@ -155,39 +114,18 @@ thumbnail: https://thmb.techidaily.com/9f80d4896e94eaecc9b9d2fa222d6b7ea517f0365
 
  If you have friends that constantly seem to have their Facebook accounts breached, you might consider[adding them to a Facebook restriction list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) or[even blocking them entirely](https://www.makeuseof.com/how-to-block-facebook/) .
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## What Is a Facebook Locked Profile Viewer?
 
  A Facebook locked profile viewer is as it sounds: a tool that promises to unlock any Facebook account and reveal its contents to you. While the idea of using a free online tool to unlock a private Facebook account sounds tempting, these websites are typically filled with all kinds of scams and other nasties, and you could end up doing real harm to your computer. The threat of malware is an issue, and you could lose more than your Facebook data in an attempt to see someone's locked Facebook profile.
 
  Furthermore, there are also Android APKs that promise to reveal a private Facebook account. An Android APK is[an Android app installation file](https://www.makeuseof.com/tag/what-is-apk-file/) , but you'll likely have to turn off your device security settings to install it. Now, there are places you can[download safe APK files from](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , but a random website promising to reveal private Facebook data isn't one of them. Apps promising to unlock a Facebook account, private or not, are highly likely to be malware and will steal your data instead of granting you access to a private Facebook account.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Facebook Is a Security and Privacy Nightmare
 
@@ -197,14 +135,11 @@ thumbnail: https://thmb.techidaily.com/9f80d4896e94eaecc9b9d2fa222d6b7ea517f0365
 
  In general, Facebook is a security and privacy nightmare. So, yes, protect your Facebook account against people preying on your data. But consider protecting yourself against the platform itself too.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -213,4 +148,23 @@ thumbnail: https://thmb.techidaily.com/9f80d4896e94eaecc9b9d2fa222d6b7ea517f0365
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-discovering-best-5k-displays-list-8/"><u>[New] In 2024, Discovering Best 5K Displays - List #8</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-free-mcb-theme-images-templates-and-more/"><u>[New] In 2024, Free MCB Theme Images, Templates & More</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-high-quality-fb-videos-for-ff-browser-users/"><u>[Updated] In 2024, High-Quality FB Videos for FF Browser Users</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-loom-capture-toolkit-essential-screen-casts-tips/"><u>[Updated] In 2024, Loom Capture Toolkit Essential Screen Casts Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-opens-new-horizons-for-oculus-go-with-root-access-unveiled/"><u>Facebook Opens New Horizons for Oculus Go with Root Access Unveiled</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-gionee-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Gionee Phone? Unlock It Now</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-unmissable-experiences-in-digital-playfields/"><u>In 2024, Unmissable Experiences in Digital Playfields</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/maximizing-wellness-8-innovative-gpt-integrations/"><u>Maximizing Wellness: 8 Innovative GPT Integrations</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-your-social-space-navigating-facebooks-new-moderation-tools/"><u>Steering Your Social Space: Navigating Facebook's New Moderation Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-secure-pieces-from-facebooks-725m-settlement/"><u>Strategies to Secure Pieces From Facebook's $725M Settlement</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-facebook-paradox-why-do-people-reject-online-communities/"><u>The Facebook Paradox: Why Do People Reject Online Communities?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ltimate-guide-to-effective-real-youtube-promotion/"><u>The Ultimate Guide to Effective, Real Youtube Promotion</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-tier-functionality-on-a-shoestring-an-insightful-look-at-the-zte-blade-a3y/"><u>Top-Tier Functionality on a Shoestring - An Insightful Look at the ZTE Blade A3Y</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-process-to-ignore-member-names-on-fb-groups/"><u>Unveiling the Process to Ignore Member Names on FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/webworld-woe-all-big-social-platforms-go-dark/"><u>Webworld Woe: All Big Social Platforms Go Dark</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-safe-germany-orders-stop-to-facebook-data-mining-practices/"><u>WhatsApp Users Safe? Germany Orders Stop to Facebook Data Mining Practices</u></a></li>
+</ul></div>
 

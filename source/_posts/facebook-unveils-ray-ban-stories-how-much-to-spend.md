@@ -1,7 +1,7 @@
 ---
 title: Facebook Unveils Ray-Ban Stories - How Much to Spend?
-date: 2024-09-05T09:31:22.739Z
-updated: 2024-09-06T09:31:22.739Z
+date: 2024-11-04T00:07:25.738Z
+updated: 2024-11-06T20:17:10.933Z
 tags:
   - facebook
 categories:
@@ -13,24 +13,12 @@ keywords: Facebook Ray-Ban Stories Pricing,Ray-Ban Stories on FB Cost,Purchase R
 thumbnail: https://thmb.techidaily.com/ba4d76a3836c79aa2d1ffbc408b14921a58fa2b19ac7a8b8eb3ad2286e02cfeb.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook Unveils Ray-Ban Stories - How Much to Spend?
 
  Given how much the smartphone has proliferated our personal and business life, it can be hard to imagine getting things done without one. However, Facebook plans to make smartphones a thing of the past with new smart glasses designed by Ray-Ban, called the Ray-Ban Stories.
 
  So, what does the social media giant have up its sleeves (or rather, resting on its nose)? Let's find out.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Are Ray-Ban Stories?
 
  Ray-Ban released the above trailer to show off the new Ray-Ban Stories. These glasses were the result of the luxury sunglasses company teaming up with the tech giant Facebook. The idea behind the Ray-Ban Stories is that they can help you capture events going on around you without needing to reach for your phone.
@@ -44,11 +32,12 @@ thumbnail: https://thmb.techidaily.com/ba4d76a3836c79aa2d1ffbc408b14921a58fa2b19
  The big theme around the Ray-Ban Stories is giving you the ability to capture the world around you without needing to leave it. There’s no need to scramble for your phone when something amazing happens, nor do you need to stare through a screen when recording something. Now you can capture anything just by looking at it, so you can concentrate on living in the moment.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## The Ray-Ban Stories Specifications
 
  The Ray-Ban Stories captures the world around you using two 5-megapixel cameras. You activate them by pressing a small button on the side of the glasses frame: a brief tap to record video and a long press for a photo. If you’re feeling brave, you can also say, “Hey Facebook, take a video” to start the process, but be prepared to record nothing but people staring at you in confusion.
@@ -66,55 +55,43 @@ thumbnail: https://thmb.techidaily.com/ba4d76a3836c79aa2d1ffbc408b14921a58fa2b19
  The glasses will have an off switch, which will disable all the tech on them once flipped. And Facebook is proud to show off a light-up LED on the camera to show others that you’re recording them, which helps improve privacy. In the video, Mark Zuckerberg claims this is “more than what smartphones do,” but we’d argue that holding up a phone to record someone is more obvious than an LED.
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How Much Are the Ray-Ban Stories?
 
  If you want a pair of glasses for yourself, they won't break the bank too much. You can pick them up for $299, which is a pretty reasonable price for what you're getting.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## When Will the Ray-Ban Stories Come Out?
 
  The best bit is, if you're dying to wear a piece of the future, you can buy them right away. Just head over to the[Ray-Ban Stories store page](https://www.ray-ban.com/usa/electronics/RW4002%20UNISEX%20ray-ban%20stories%20%7C%20wayfarer-shiny%20black/8056597489478) and pick up a pair today.
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## A New Chapter in the Story of Smart Glasses
 
  If you love capturing those precious moments, but you'd rather not experience it through a phone screen, the Ray-Ban Stories may just be up your alley. They're out now, so be sure to grab a pair ASAP if this sounds like something you want.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,4 +100,18 @@ thumbnail: https://thmb.techidaily.com/ba4d76a3836c79aa2d1ffbc408b14921a58fa2b19
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-beginners-top-8-camera-options-35mm-to-pands/"><u>[New] 2024 Approved Beginner’s Top 8 Camera Options (35Mm to P&S)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-top-5-panoramic-capture-models/"><u>[New] Top 5 Panoramic Capture Models</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-unleash-the-full-potential-of-your-android-device-with-obs-studio/"><u>[New] Unleash the Full Potential of Your Android Device with OBS Studio</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/essential-ringtones-a-chrome-companion-collection/"><u>Essential Ringtones A Chrome Companion Collection</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-nature-fb-energized-by-renewables/"><u>Harnessing Nature: FB Energized by Renewables</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-participating-in-fb-quizzes-risky-for-privacy/"><u>Is Participating in FB Quizzes Risky for Privacy?</u></a></li>
+<li><a href="https://facebook.techidaily.com/masterclass-in-personal-branding-through-facebook-covers/"><u>Masterclass in Personal Branding Through Facebook Covers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/professional-video-editing-implementing-the-ken-burns-effect-in-camtasa/"><u>Professional Video Editing Implementing the Ken Burns Effect in Camtasa</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-safety-comparison-guide/"><u>Social Media Safety Comparison Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotify-miniplayer-a-compact-music-haven-within-fb-app/"><u>Spotify Miniplayer: A Compact Music Haven Within FB App</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-ultimate-upgrade-list-best-accessories-for-phantom-4/"><u>The Ultimate Upgrade List Best Accessories for Phantom 4</u></a></li>
+</ul></div>
 

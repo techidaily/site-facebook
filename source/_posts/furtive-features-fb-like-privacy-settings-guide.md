@@ -1,7 +1,7 @@
 ---
 title: "Furtive Features: FB Like Privacy Settings Guide"
-date: 2024-10-29T17:03:32.693Z
-updated: 2024-11-01T17:05:39.370Z
+date: 2024-11-01T17:12:23.722Z
+updated: 2024-11-06T20:52:36.748Z
 tags:
   - facebook
 categories:
@@ -28,25 +28,25 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Hiding the Facebook Reaction Count on Mobile
 
 ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Reaction preference settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Reaction-count-settings-facebook.jpg)
 
@@ -61,10 +61,10 @@ To hide the number of reactions on your posts, follow these steps.
 5. Toggle the slider next to**On posts from others** to hide the total number of reactions on Facebook posts from other users. To hide the number of reactions on your posts, toggle the slider adjacent to**On your posts** .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Hiding the Reaction Count on Facebook on the Web
@@ -79,10 +79,10 @@ To hide the number of reactions on your posts, follow these steps.
 ![The settings and privacy section on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/settings-privacy-section-facebook-web.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Your new settings are saved automatically.
@@ -120,20 +120,17 @@ Your new settings are saved automatically.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-building-your-youtube-empire-kit-overview/"><u>[New] 2024 Approved Building Your YouTube Empire Kit Overview</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-srt-file-management-for-seamless-audible-experience/"><u>[Updated] 2024 Approved SRT File Management for Seamless Audible Experience</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-hidden-history-in-your-browser-how-to-tackle-for-2024/"><u>[Updated] The Hidden History in Your Browser How to Tackle for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/breaking-down-the-facts-why-has-italy-suddenly-banned-use-of-chatgpt/"><u>Breaking Down the Facts: Why Has Italy Suddenly Banned Use of ChatGPT?</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/edit-like-a-pro-best-gopro-video-editing-software-besides-gopro-studio-for-2024/"><u>Edit Like a Pro Best GoPro Video Editing Software (Besides GoPro Studio) for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-change-your-childs-information-in-messenger-kids/"><u>How to Change Your Child's Information in Messenger Kids</u></a></li>
-<li><a href="https://facebook.techidaily.com/implementing-night-mode-on-facebook-profile/"><u>Implementing Night Mode on Facebook Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/proposed-update-for-facebook-more-interactive-stories-reels-and-rooms/"><u>Proposed Update for Facebook: More Interactive Stories, Reels, and Rooms</u></a></li>
-<li><a href="https://techtrends.techidaily.com/solving-common-issues-with-non-functioning-zoom-cameras/"><u>Solving Common Issues with Non-Functioning Zoom Cameras</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/the-essentials-of-navigating-ez-grabber-interface/"><u>The Essentials of Navigating EZ Grabber Interface</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782634-9781620551226-the-spiritual-foundations-of-aikido/"><u>The Spiritual Foundations of Aikido | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-digital-footprints-changing-your-facebook-account-name/"><u>Transforming Digital Footprints: Changing Your Facebook Account Name</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-instagrams-and-facebooks-ad-innovations/"><u>Unveiling Instagram's and Facebook's Ad Innovations</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/vollstandige-anleitung-fur-das-formatieren-und-neustarten-ihres-windows-computers/"><u>Vollständige Anleitung Für Das Formatieren Und Neustarten Ihres Windows Computers</u></a></li>
-<li><a href="https://facebook.techidaily.com/warning-signs-someones-in-your-digital-domain/"><u>Warning Signs: Someone's in Your Digital Domain</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-soundscape-synthesis-studio-mac-basics/"><u>[Updated] 2024 Approved Soundscape Synthesis Studio Mac Basics</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-converting-ordinary-images-into-artistic-hdr-works-for-2024/"><u>[Updated] Converting Ordinary Images Into Artistic HDR Works for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enhance-video-storytelling-with-smart-chapter-insertion-techniques-on-youtube-for-2024/"><u>[Updated] Enhance Video Storytelling with Smart Chapter Insertion Techniques on YouTube for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-streamlined-sounds-iphones-efficient-podcasting/"><u>2024 Approved Streamlined Sounds IPhone's Efficient Podcasting</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-vivo-s17-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Vivo S17 Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-disconnection-a-guide-to-living-offline/"><u>Discover Disconnection: A Guide to Living Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-opt-for-dark-scheme-in-facebook/"><u>How to Opt for Dark Scheme in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/renewable-rush-facebooks-full-transition-to-clean-energy/"><u>Renewable Rush: Facebook's Full Transition to Clean Energy</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-sony-by-fonelab-android-recover-music/"><u>The way to get back lost music from Sony</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitter-to-facebook-inspiring-information-posting-models/"><u>Twitter to Facebook: Inspiring Information Posting Models</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-global-reach-strategies-for-multilingual-fb-posts/"><u>Unlock Global Reach - Strategies for Multilingual FB Posts</u></a></li>
 </ul></div>
 

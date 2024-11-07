@@ -1,7 +1,7 @@
 ---
 title: Reclaim Your Feed, Say No to Politics
-date: 2024-10-14T00:15:11.992Z
-updated: 2024-10-20T19:31:40.419Z
+date: 2024-10-30T18:04:16.233Z
+updated: 2024-11-06T16:02:22.182Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
  Then to top it off, Facebook keeps suggesting trending posts on your page while you scroll, which gets dominated by politics and whatever the Kardashians are up to lately. There's no way to turn these suggestions off. However, Facebook does let you tell it which stories you don't want to see.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Filter Politics Out of Your Facebook Feed
 
  If you find yourself regularly being sucked into long political Facebook arguments with friends-of-friends, you probably need to take control of your Facebook. Ditto if you're constantly annoyed by celebrity news or friends who can't function without constantly marinating in sympathy and attention.
@@ -43,16 +50,10 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  We've talked about[how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People
@@ -69,22 +70,15 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
  The only thing to keep an eye out for here is that some sources are a mixed bag, and have genuine value to offer, even if they are occasionally annoying. In those cases, you're probably better off letting that source stay and using the more sophisticated strategy to get rid of these posts.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Remove Your Political Views From Your Profile
 
 ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  When you create your Facebook profile, it asks you about your political views, among other things. If you do add your views, however, Facebook uses this information to suggest political posts and ads to you. Adding this piece of information to your profile is not really necessary, unless you are affiliated with a political party, and you have to put your views on display.
@@ -95,22 +89,16 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
  To edit this information, click on the**Pen button** next to it. Now, in the editable text section, delete whatever is written and press**Save** . That's it. Your profile has no information about your political views anymore and Facebook will not suggest those posts and ads anymore.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Use a Browser Extension
 
 ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You can use a browser extension called[FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
 
@@ -137,14 +125,18 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/updated-brighten-up-your-gameplay-tips-to-fix-a-black-screen-on-obs/"><u>[Updated] Brighten Up Your Gameplay Tips to Fix a Black Screen on OBS</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-cloak-of-secrecy-for-your-photos/"><u>Crafting a Cloak of Secrecy for Your Photos</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dialogue-management-leveraging-facebooks-latest-enhancements-for-groups/"><u>Digital Dialogue Management: Leveraging Facebook's Latest Enhancements for Groups</u></a></li>
-<li><a href="https://some-tips.techidaily.com/hatosagos-movavi-videkedzser-gyujtani-online/"><u>Hatóságos Movavi Vidékedzser - Gyújtani Online</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-poco-c50-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Poco C50 Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-enhancing-the-speed-of-vimeo-videos/"><u>In 2024, Enhancing the Speed of Vimeo Videos</u></a></li>
-<li><a href="https://win11.techidaily.com/streamlining-multi-device-note-management-in-win11/"><u>Streamlining Multi-Device Note Management in Win11</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-revenue-shift-how-tiktok-is-redrawing-social-landscapes/"><u>The Revenue Shift: How TikTok Is Redrawing Social Landscapes</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-apple-chooses-different-trajectory-than-facebooks-metaverse/"><u>Why Apple Chooses Different Trajectory Than Facebook's Metaverse</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-ultimate-camera-test-hero5-meets-sjcam/"><u>[New] Ultimate Camera Test Hero5 Meets SJCAM</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-best-free-video-viewing-software-guide-top-16/"><u>[Updated] 2024 Approved Best Free Video Viewing Software Guide - Top 16</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-leading-the-charge-in-sustainable-filmmaking/"><u>[Updated] In 2024, Leading the Charge in Sustainable Filmmaking</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-daily-movie-data-demand-in-gigabytes/"><u>2024 Approved Daily Movie Data Demand in Gigabytes</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-innovates-with-subscription-links-apple-comparison-explained/"><u>Facebook Innovates With Subscription Links: Apple Comparison Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/halting-ios-app-tracking-the-mass-movement/"><u>Halting iOS App Tracking: The Mass Movement</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-apples-ios-version-1751-patch-eliminates-quirky-issue-with-reanimating-deleted-photos-on-devices-technewszdnet/"><u>How Apple's iOS Version 17.5.1 Patch Eliminates Quirky Issue with Reanimating Deleted Photos on Devices | TechNewsZDNet</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/how-to-master-the-art-moviemaker-movie-uploads-on-vimeo-for-2024/"><u>How To Master the Art Moviemaker Movie Uploads on Vimeo for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-samsung-galaxy-m14-5g-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Samsung Galaxy M14 5G? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-oneplus-nord-ce-3-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For OnePlus Nord CE 3 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dynamics-facebook-and-the-metaverse-connection/"><u>The Hidden Dynamics: Facebook and The Metaverse Connection</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-mac-video-maker-professional-video-editing-software/"><u>Updated 2024 Approved Mac Video Maker Professional Video Editing Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-you-dont-see-can-hurt-your-online-presence-evasion-techniques/"><u>What You Don't See Can Hurt Your Online Presence - Evasion Techniques</u></a></li>
 </ul></div>
 

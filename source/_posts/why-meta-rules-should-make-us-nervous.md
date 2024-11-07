@@ -1,7 +1,7 @@
 ---
 title: Why Meta Rules Should Make Us Nervous
-date: 2024-09-10T14:50:10.040Z
-updated: 2024-09-11T14:50:10.040Z
+date: 2024-11-06T09:10:47.904Z
+updated: 2024-11-06T21:22:17.829Z
 tags:
   - facebook
 categories:
@@ -25,20 +25,6 @@ thumbnail: https://thmb.techidaily.com/4a8a85a143c0d3d9775ca5a0e81916a22ae62d07a
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  According to[Statista](https://www.statista.com/chart/2183/facebooks-mobile-users/) , Facebook, Instagram, and WhatsApp—three of Meta's core products—have a combined 3.6 billion monthly active users. That's more than a quarter of the world's population—an intimidating figure even when accounting for duplicates.
 
  This immediately aligns with Facebook's decade-old objective of dominating the social media space. Because of this unrivaled dominance, Meta is like a god unto itself: it faces no market-enforced accountability.
@@ -53,23 +39,16 @@ thumbnail: https://thmb.techidaily.com/4a8a85a143c0d3d9775ca5a0e81916a22ae62d07a
 
  Because Meta has dominated social media so exhaustively, we are stuck in a vicious cycle every time the company messes up. First, we get outraged. Then we become disappointed that there's nothing we can do about it. And finally, we resign to the fact that we really have nowhere else to go. It's a complete entrapment. Meta's monopoly is so exhaustive that we are literally left with no other option.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 2\. Meta Wields Too Much Power
 
 ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  With great monopoly comes great power. Meta's powers are enormous. Only a few private companies can measure up to its global influence. The company controls some of the world's most important digital communication tools. With over a quarter of the world's population using their apps, Meta holds a rare power over how the world communicates.
 
@@ -79,23 +58,23 @@ thumbnail: https://thmb.techidaily.com/4a8a85a143c0d3d9775ca5a0e81916a22ae62d07a
 
  As evidenced in the buildup to the last two US presidential elections, filtered information can positively or negatively influence global outcomes. Consequently, Meta can easily influence global culture by controlling the kind of information billions of people have access to. That much power, if unchecked, is potentially dangerous.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 3\. A Privacy Dilemma
 
 ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
 
@@ -106,26 +85,6 @@ thumbnail: https://thmb.techidaily.com/4a8a85a143c0d3d9775ca5a0e81916a22ae62d07a
  If you use Facebook services, Meta has a complete history of where you've been for at least the last year. Once you've signed up with any of Meta's products, you become tracked indefinitely. Facebook, for instance, tracks you even when you're not actively using any of its products. It does this through data-sharing agreements with hundreds of tech companies whose apps you're likely using as well.
 
 ![Off Facebook Activity lets you view and control what facebook knows about you through third party websites and apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/05/facebook-privacy-off-facebook-activity.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ​​​​​​
 
@@ -145,39 +104,18 @@ Not convinced?
 
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Close
 
  You might be surprised just how much information Meta is getting on you.
 
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the[New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Stay Conscious of Meta's Influence
 
@@ -187,14 +125,11 @@ Close
 
  Be proactive. Stay conscious of Meta's influence. Limit the amount of data you share with Meta's products and services. If you are afraid you've already shared too much, you should get rid of some of the information Meta has on you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -203,4 +138,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-5-ways-to-record-vr-gameplay/"><u>[Updated] 2024 Approved 5 Ways to Record VR Gameplay</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-navigating-the-network-speedy-id-snooping-tips/"><u>[Updated] Navigating the Network Speedy ID Snooping Tips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-exploring-the-top-10-budget-friendly-youtube-spaces-for-artistry/"><u>2024 Approved Exploring the Top 10 Budget-Friendly YouTube Spaces for Artistry</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-media-impact-uploading-hd-to-social-media/"><u>Enhancing Media Impact: Uploading HD to Social Media</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/from-american-soil-to-your-desk-prusas-launch-of-domestic-3d-devices-and-supplies/"><u>From American Soil to Your Desk: Prusa's Launch of Domestic 3D Devices & Supplies</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-online-activity-camouflaging-your-likes/"><u>Invisible Online Activity: Camouflaging Your Likes</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/openai-insiders-quick-reference-guide/"><u>OpenAI Insider's Quick Reference Guide</u></a></li>
+<li><a href="https://fox-search.techidaily.com/quick-tips-how-to-restore-accidentally-erased-images-from-an-android-smartphone/"><u>Quick Tips: How to Restore Accidentally Erased Images From an Android Smartphone</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneaky-social-media-impersonation-warning/"><u>Sneaky Social Media: Impersonation Warning</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-war-on-untruths-increased-fb-fines-introduced/"><u>Social Media War on Untruths: Increased FB Fines Introduced</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/stand-stronger-on-your-ergohead-mat-in-depth-analysis-of-durability-and-comfort-for-prolonged-use/"><u>Stand Stronger on Your Ergohead Mat: In-Depth Analysis of Durability & Comfort for Prolonged Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-why-and-how-of-deleting-your-facebook-watch-logs/"><u>The Why and How of Deleting Your Facebook Watch Logs</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-rated-touchscreen-notebooks-in-depth-reviews-by-tech-experts-features/"><u>Top-Rated Touchscreen Notebooks: In-Depth Reviews by Tech Experts - Features</u></a></li>
+<li><a href="https://win-forum.techidaily.com/ultimate-tutorial-on-removing-undocumented-programs-in-windows/"><u>Ultimate Tutorial on Removing Undocumented Programs in Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-fb-photo-access-restrictions/"><u>Understanding FB Photo Access Restrictions</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-voices-mentioning-full-group-in-social-media/"><u>Uniting Voices: Mentioning Full Group in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-potential-of-social-networking-through-neighborhoods/"><u>Unlocking the Potential of Social Networking Through Neighborhoods</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-your-fb-blacklist-entities/"><u>Unraveling Your FB Blacklist Entities</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-how-to-add-photos-to-audio/"><u>Updated 2024 Approved How to Add Photos to Audio</u></a></li>
+</ul></div>
 

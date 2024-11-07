@@ -1,7 +1,7 @@
 ---
 title: Enhancing Post Exclusivity on Facebook with Restriction Settings
-date: 2024-10-27T17:29:33.862Z
-updated: 2024-11-01T16:20:55.845Z
+date: 2024-11-02T00:21:01.378Z
+updated: 2024-11-06T16:26:18.153Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
  Keep in mind that adding someone to your Restricted list is not the same as[blocking them on Facebook](https://www.makeuseof.com/how-to-block-facebook/) . Blocking someone prevents them from interacting with you at all; the Restricted list only hides your posts from them.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to See Your Restricted List on Facebook
@@ -48,16 +48,10 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Restricted List](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-restricted-list-2023.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You can also add a friend to the Restricted list on their Facebook page. Visit a profile on Facebook, click the**Friends** button, and click**Edit Friend List** . Here, check the**Restricted** box to accomplish the same goal.
@@ -65,19 +59,19 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Add to Restricted list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-add-to-restricted.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  People won't get an alert when you add them to your Restricted list. But if they're knowledgeable about how Facebook works (and depending on how much you post), they might notice that they don't see as much content from you anymore. Because of this, you may wish to add someone to your Restricted list right after friending them.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Keep Your Friends at a Safe Distance
@@ -101,20 +95,24 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-framemaster-pro-advanced-windowsmac-screen-capture-for-2024/"><u>[New] FrameMaster Pro Advanced Windows/Mac Screen Capture for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-addressing-inaudible-audio-steps-for-obs-broadcasting-for-2024/"><u>[Updated] Addressing Inaudible Audio Steps for OBS Broadcasting for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-pushing-boundaries-in-motion-photography/"><u>[Updated] Pushing Boundaries in Motion Photography</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-the-ultimate-guide-to-youtube-thumbnails/"><u>2024 Approved The Ultimate Guide to YouTube Thumbnails</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtubers-spotlighting-niche-gaming-subcultures/"><u>2024 Approved Youtubers Spotlighting Niche Gaming Subcultures</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/avoiding-pitfalls-with-microsoft-teams-how-to-conquer-error-80080300/"><u>Avoiding Pitfalls with Microsoft Teams: How to Conquer Error 80080300</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/can-you-unlock-apple-iphone-13-mini-after-forgetting-the-passcode-by-drfone-ios/"><u>Can You Unlock Apple iPhone 13 mini After Forgetting the Passcode?</u></a></li>
-<li><a href="https://facebook.techidaily.com/giphy-at-risk-facebook-might-push-for-sale-experts-say/"><u>Giphy at Risk? Facebook Might Push for Sale, Experts Say</u></a></li>
-<li><a href="https://facebook.techidaily.com/insight-into-photodna-image-comparison-process/"><u>Insight Into PhotoDNA: Image Comparison Process</u></a></li>
-<li><a href="https://facebook.techidaily.com/prime-venues-boasting-freelancer-opportunities/"><u>Prime Venues Boasting Freelancer Opportunities</u></a></li>
-<li><a href="https://facebook.techidaily.com/profile-phantoms-exposing-imposter-accounts/"><u>Profile Phantoms: Exposing Imposter Accounts</u></a></li>
-<li><a href="https://fox-search.techidaily.com/resolving-the-issue-of-google-drive-absence-in-file-explorer-a-comprehensive-fix/"><u>Resolving the Issue of Google Drive Absence in File Explorer - A Comprehensive Fix</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-initiative-to-cleanse-profiles-from-extremist-ideologies/"><u>The Initiative to Cleanse Profiles From Extremist Ideologies</u></a></li>
-<li><a href="https://facebook.techidaily.com/transform-your-facebook-display-into-night-vision/"><u>Transform Your Facebook Display Into Night Vision</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-vk-russias-answer-to-global-social-sites/"><u>Understanding VK: Russia’s Answer to Global Social Sites</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-building-your-brand-setting-up-a-business-on-instagram-for-2024/"><u>[New] Building Your Brand Setting Up a Business on Instagram for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-fast-track-to-excellent-valorant-thumbnails-artistry/"><u>[New] In 2024, Fast-Track to Excellent Valorant Thumbnails Artistry</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-harnessing-the-power-of-film-in-educational-practice/"><u>[Updated] Harnessing the Power of Film in Educational Practice</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/comprehensively-reviewing-top-10-no-cost-video-communication-apps-for-professional-and-academic-needs-for-2024/"><u>Comprehensively Reviewing Top 10 No-Cost Video Communication Apps for Professional and Academic Needs for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-wellbeing-alerts-youth-advised-to-limit-instagram/"><u>Digital Wellbeing Alerts: Youth Advised to Limit Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/enforcing-teenager-friendly-security-protocols-on-fb/"><u>Enforcing Teenager-Friendly Security Protocols on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacktivism-halts-facebooks-happy-scores-sets-stars-at-1/"><u>Hacktivism Halts Facebook's Happy Scores, Sets Stars at 1</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-14-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 14 without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-online-opportunities-choosing-businesss-favorites/"><u>Optimal Online Opportunities: Choosing Business's Favorites</u></a></li>
+<li><a href="https://facebook.techidaily.com/portal-go-facebooks-move-towards-mobile-accessibility/"><u>Portal Go: Facebook's Move Towards Mobile Accessibility</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/reevaluating-linkedins-prestige-is-plus-worth-the-investment/"><u>Reevaluating LinkedIn's Prestige: Is Plus Worth the Investment?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/reviving-your-iphones-aol-mail-service-discover-these-6-fixes-now/"><u>Reviving Your iPhone's AOL Mail Service: Discover These 6 Fixes Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-feed-selection-a-new-era-of-personalized-content/"><u>Simplified Feed Selection - A New Era of Personalized Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/single-word-multiple-ways-facebook-introduces-style-transforming-ai/"><u>Single Word, Multiple Ways: Facebook Introduces Style Transforming AI</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-instructions-for-activatingdeactivating-network-discovery-feature-in-windows-10/"><u>Step-by-Step Instructions for Activating/Deactivating Network Discovery Feature in Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-companies-held-accountable-the-battle-against-misleading-social-media-ads/"><u>Tech Companies Held Accountable: The Battle Against Misleading Social Media Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-definitive-manual-for-gathering-all-past-facebook-data/"><u>The Definitive Manual for Gathering All Past Facebook Data</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/transition-du-disque-dur-vers-ssd-sur-windows-11-etape-par-etape-sans-reinstaller-le-systeme-dexploitation/"><u>Transition Du Disque Dur Vers SSD Sur Windows 11, Étape Par Étape, Sans Réinstaller Le Système D'exploitation</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-iphone-14-pro-with-forgotten-passcode-different-methods-you-can-try-drfone-by-drfone-ios/"><u>Unlock iPhone 14 Pro With Forgotten Passcode Different Methods You Can Try | Dr.fone</u></a></li>
 </ul></div>
 

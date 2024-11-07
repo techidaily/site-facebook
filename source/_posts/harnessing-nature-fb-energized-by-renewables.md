@@ -1,7 +1,7 @@
 ---
 title: "Harnessing Nature: FB Energized by Renewables"
-date: 2024-10-27T16:53:40.339Z
-updated: 2024-11-01T17:00:41.707Z
+date: 2024-11-05T05:31:37.489Z
+updated: 2024-11-07T09:11:36.085Z
 tags:
   - facebook
 categories:
@@ -41,16 +41,10 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Has Already Set Its Next Environmental Target
@@ -58,10 +52,10 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
@@ -89,24 +83,24 @@ So, things may, finally, be moving in the right direction.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-from-content-creator-to-cash-magnet-instagrams-guide/"><u>[New] From Content Creator to Cash Magnet Instagram's Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-depth-walkthrough-editing-youtube-videos-in-wmm/"><u>[New] In-Depth Walkthrough Editing YouTube Videos in WMM</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-removing-unneeded-podcast-advice-from-spotify/"><u>[New] Removing Unneeded Podcast Advice From Spotify</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-a-comprehensive-guide-to-locating-and-creating-superb-instagram-alarms/"><u>[Updated] A Comprehensive Guide to Locating and Creating Superb Instagram Alarms</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-disrupted-beats-best-mobile-music-distortors/"><u>[Updated] In 2024, Disrupted Beats Best Mobile Music Distortors</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-techniques-for-gh-video-logging/"><u>[Updated] In 2024, Techniques for GH Video Logging</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-facebooks-core-framework-concept/"><u>Exploring Facebook's Core Framework Concept</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/global-scope/"><u>Global Scope</u></a></li>
-<li><a href="https://facebook.techidaily.com/hot-off-the-press-fbs-latest-videos/"><u>Hot Off The Press: FB's Latest Videos</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-successfully-start-your-mass-effect-legendary-journey-tips-and-solutions/"><u>How to Successfully Start Your Mass Effect Legendary Journey - Tips & Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/instant-access-to-fb-content-download-tips-and-tricks/"><u>Instant Access to Fb Content: Download Tips & Tricks</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-your-images-under-lock-and-key-on-facebook/"><u>Keeping Your Images Under Lock and Key on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/linked-lives-online-8-approaches-to-digital-kinship/"><u>Linked Lives Online: 8 Approaches to Digital Kinship</u></a></li>
-<li><a href="https://facebook.techidaily.com/mysterious-disappearance-feature-in-social-chatting-app/"><u>Mysterious Disappearance Feature in Social Chatting App</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcoming-stability-problems-six-ways-to-enhance-your-playtime-with-call-of-duty-modern-warfare-2-on-pc/"><u>Overcoming Stability Problems – Six Ways to Enhance Your Playtime with Call of Duty Modern Warfare 2 on PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/rebranding-in-the-social-realm-update-your-profile-pic/"><u>Rebranding in the Social Realm: Update Your Profile Pic</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/tiny-tycoons-car-contests/"><u>Tiny Tycoons' Car Contests</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-collaborative-efforts-8-must-have-facebook-tools/"><u>Transforming Collaborative Efforts: 8 Must-Have Facebook Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-facebook-whitelisting/"><u>What Is Facebook Whitelisting?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-ultimate-speech-logging-for-mac-our-top-5-list-unveiled/"><u>[New] 2024 Approved Ultimate Speech Logging for Mac Our Top 5 List Unveiled</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-free-lut-heaven-the-10-finest-and-accessible-resources/"><u>[Updated] Free LUT Heaven The 10 Finest and Accessible Resources</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-raucous-revelations-top-10-scenarios-for-comedy-driven-videography/"><u>[Updated] Raucous Revelations Top 10 Scenarios for Comedy-Driven Videography</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-out-facebooks-covert-user-countdown/"><u>Digging Out Facebook's Covert User Countdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-your-facebook-security-using-2fa-and-mtcg-together/"><u>Enhance Your Facebook Security: Using 2FA and MTCG Together</u></a></li>
+<li><a href="https://fox-within.techidaily.com/exploring-the-features-of-internet-information-services-iis-properties-window/"><u>Exploring the Features of Internet Information Services (IIS) Properties Window</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-bulletin-boards-to-instagram-the-communication-evolution/"><u>From Bulletin Boards to Instagram: The Communication Evolution</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-motorola-moto-g14-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Motorola Moto G14 Pictures An Easy Method Explained.</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-oppo-reno-8t-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Oppo Reno 8T to Another | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Samsung Galaxy S24 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-leaving-facebook-on-android/"><u>Master the Art of Leaving Facebook on Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/money-magic-on-facebook-and-instagram-top-5-methods/"><u>Money Magic on Facebook & Instagram: Top 5 Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-suggested-feeds/"><u>Navigating Facebook's Suggested Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/sick-of-politics-3-powerful-ways-to-clean-up-facebook/"><u>Sick of Politics? 3 Powerful Ways to Clean Up Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotify-integration-in-facebook-a-step-by-step-guide/"><u>Spotify Integration in Facebook: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealth-mode-for-your-social-media-pics/"><u>Stealth Mode for Your Social Media Pics</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unveiling-cutting-edge-gadgets-the-toms-hardware-analysis/"><u>Unveiling Cutting-Edge Gadgets: The Tom's Hardware Analysis</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-elevate-your-video-game-best-1080p-editing-software-for-creators-for-2024/"><u>Updated Elevate Your Video Game Best 1080P Editing Software for Creators for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/yakuza-3-remake-stability-issues-and-fixes-for-pc-gamers/"><u>Yakuza 3 Remake - Stability Issues and Fixes for PC Gamers</u></a></li>
 </ul></div>
 

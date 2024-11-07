@@ -1,7 +1,7 @@
 ---
 title: "Platform Policy: Temporal Suspension of Trump, a Step Forward"
-date: 2024-09-10T14:50:10.406Z
-updated: 2024-09-11T14:50:10.406Z
+date: 2024-11-02T05:21:58.814Z
+updated: 2024-11-07T04:05:16.296Z
 tags:
   - facebook
 categories:
@@ -17,20 +17,6 @@ thumbnail: https://thmb.techidaily.com/2ee7691e7273eb11818d41a9cf81a37cef10bbda5
 
  The Facebook Oversight Board has reviewed Facebook's suspension of former-President Donald Trump from the platform. And although the decision was upheld, the Board has stated that Facebook must review the suspension as it wasn't a proper penalty.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## The Oversight Board Rules on Facebook's Trump Suspension
 
  Facebook suspended Trump from the platform on January 7, 2021, for comments he made with regard to the Capitol incident on January 6\. In particular, the comments Facebook took action over were "We love you. You're very special," "great patriots," and "remember this day forever" across two posts.
@@ -45,19 +31,12 @@ thumbnail: https://thmb.techidaily.com/2ee7691e7273eb11818d41a9cf81a37cef10bbda5
 
  Since the ruling, there has been a large amount of backlash on social media regarding the decision. Users on both sides of the argument have mentioned that the ruling was not right, either because they believe Trump shouldn't have been banned in the first place, or because he shouldn't be allowed back on Facebook.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## What Are the Next Steps for Facebook?
 
@@ -69,19 +48,12 @@ thumbnail: https://thmb.techidaily.com/2ee7691e7273eb11818d41a9cf81a37cef10bbda5
 
  The Oversight Board also made a number of other recommendations for Facebook, such as reviewing the platform's role in the events of January 6th, and creating policies on Facebook's response to any similar events in the future.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## What Is The Oversight Board?
 
@@ -89,41 +61,21 @@ thumbnail: https://thmb.techidaily.com/2ee7691e7273eb11818d41a9cf81a37cef10bbda5
 
 ![Facebook Oversight Board logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/Oversight_Board_Logo.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  Facebook did set up and fund the Board, but it is an independent body with no Facebook employees involved. The Board has the power to make binding decisions. Members of the public can appeal decisions to the Board.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## What About Other Social Media Platforms?
 
@@ -131,14 +83,11 @@ thumbnail: https://thmb.techidaily.com/2ee7691e7273eb11818d41a9cf81a37cef10bbda5
 
  The Oversight Board's ruling on Trump's suspension from the platform applies only to Facebook. No other sites are bound by the decisions, so it remains unclear if any other social media platforms will reconsider Trump's ban.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,4 +96,24 @@ thumbnail: https://thmb.techidaily.com/2ee7691e7273eb11818d41a9cf81a37cef10bbda5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-embellish-videos-with-melodies-on-iphone-three-free-ways/"><u>[New] How to Embellish Videos with Melodies on iPhone – Three Free Ways</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-6-free-youtube-outros-for-aspiring-filmmakers/"><u>[Updated] 6 FREE YouTube Outros for Aspiring Filmmakers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-discovering-brilliance-in-the-dark-lightroom-hdr-essentials-for-2024/"><u>[Updated] Discovering Brilliance in the Dark Lightroom HDR Essentials for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-easy-access-best-free-youtube-subtitle-extractors/"><u>[Updated] In 2024, Easy Access Best Free YouTube Subtitle Extractors</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-storytelling-with-style-making-instagram-text-dance/"><u>[Updated] Storytelling with Style Making Instagram Text Dance</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-time-traveling-tactics-top-7-historic-battles-reimagined/"><u>[Updated] Time-Traveling Tactics Top 7 Historic Battles Reimagined</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-honor-x50-gt-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Honor X50 GT Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/gain-access-to-your-dormant-facebook-account/"><u>Gain Access to Your Dormant Facebook Account</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-standout-vr-film-highlights-to-discover/"><u>In 2024, Standout VR Film Highlights to Discover</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-data-protection-concerns-in-social-media-challenges/"><u>Investigating Data Protection Concerns in Social Media Challenges</u></a></li>
+<li><a href="https://facebook.techidaily.com/most-americans-think-social-media-does-more-harm-than-good/"><u>Most Americans Think Social Media Does More Harm Than Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotlight-your-vacancies-a-facebook-technique/"><u>Spotlight Your Vacancies: A Facebook Technique</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-blueprint-behind-facebooks-network-structure/"><u>The Blueprint Behind Facebook's Network Structure</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-psychology-behind-each-sharing-action-on-facebook/"><u>The Psychology Behind Each Sharing Action on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-threefold-menace-of-metas-dominance/"><u>The Threefold Menace of Meta's Dominance</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-realme-12plus-5g-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Realme 12+ 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/transformative-role-of-channels-in-social-media-groups/"><u>Transformative Role of Channels in Social Media Groups</u></a></li>
+</ul></div>
 

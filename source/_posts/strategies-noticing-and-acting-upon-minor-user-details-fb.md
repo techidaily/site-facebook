@@ -1,7 +1,7 @@
 ---
 title: "Strategies: Noticing and Acting upon Minor User Details, FB"
-date: 2024-10-13T20:10:14.663Z
-updated: 2024-10-20T17:30:48.272Z
+date: 2024-11-04T03:39:21.824Z
+updated: 2024-11-06T17:42:30.693Z
 tags:
   - facebook
 categories:
@@ -52,23 +52,17 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 ![Child Data Request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Child-Data-Request-form.jpg)
 2. Enter the child’s first and last name.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3. Paste the URL of your child’s Facebook account.
 4. Enter the email address or mobile number your child used to register the account.  
 ![Add details for child data request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-for-child-data-request-form.jpg)
 5. Pick the age range of your child. You will see**Under 13** and**13 and Over** options.
-
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 6. From the following drop-down menu, choose the year your child was born.
 7. Select the attested documentation under the Notarized Statement tab.
@@ -76,6 +70,13 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 9. Once everything’s done, click**Send** .
 
  Successful verification will process the request and make you eligible for the data featuring your underage child's activities on Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Should You Report an Underage Facebook Account?
 
@@ -90,10 +91,10 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
  Children should use Facebook under a restricted and balanced schedule at the recommended age to avoid addiction. Engage kids in creative activities and sports that boost their physical and mental capacity, leaving them with less time for social media.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### It Might Lead to Cyberbullying
@@ -102,16 +103,16 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 
  It can start with intimidating messages and threats. Other kids from school can also approach children in an attempt to mistreat them.[Messenger Kids is a relatively safer](https://www.makeuseof.com/is-messenger-kids-safe-children/) and more convenient option for parents to keep tabs on their children.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### It Can Worsen Mental Health Issues
 
 ![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Children can face mental health issues, just like adults. Research has shown that regular use of Facebook might affect underage users' self-esteem. Looking at the so-called fake perfection on social media can make them constantly compare themselves with others and negatively impact their mind.
 
@@ -122,13 +123,6 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
  Young children can be exposed to this content if they've lied about their age and are using Facebook despite the age limit.
 
 ###
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Say No to Underage Facebook Accounts
 
@@ -151,20 +145,17 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-integrating-slug-lines-into-your-writing-process/"><u>[Updated] In 2024, Integrating Slug Lines Into Your Writing Process</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-expert-tips-for-fixing-non-displaying-shorts-thumbnails/"><u>2024 Approved Expert Tips for Fixing Non-Displaying Shorts Thumbnails</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-first-timers-cameras-guide-best-of-24/"><u>2024 Approved First-Timer's Cameras Guide - Best of '24</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/a-comprehensive-walkthrough-to-master-the-photo-cutout-capability-on-iphones-with-ios-16-tips-and-tricks-inside/"><u>A Comprehensive Walkthrough to Master the Photo Cutout Capability on iPhones with iOS 16 - Tips and Tricks Inside</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-the-magic-of-saturday-and-sunday-malls-at-fb/"><u>Discover the Magic of Saturday and Sunday Malls at FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/expanding-professional-horizons-through-targeted-client-engagement-on-fb/"><u>Expanding Professional Horizons Through Targeted Client Engagement on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/expert-guide-remove-your-name-from-facebook-images/"><u>Expert Guide: Remove Your Name From Facebook Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-and-the-metaverse-an-in-depth-analysis/"><u>Facebook & The Metaverse: An In-Depth Analysis</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/how-to-prepare-your-room-and-vr-ready-pc-for-oculus-rift-for-2024/"><u>How to Prepare Your Room and VR-Ready PC for Oculus Rift for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-tecno-camon-20-pro-5g-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-a-found-apple-iphone-se-2020-drfone-by-drfone-ios/"><u>In 2024, How To Unlock A Found Apple iPhone SE (2020)? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-introduces-novel-monetizing-opportunities-for-creators/"><u>Instagram Introduces Novel Monetizing Opportunities for Creators</u></a></li>
-<li><a href="https://article-files.techidaily.com/the-complete-guide-to-drone-racing-plus-high-speed-fpv-drones-for-2024/"><u>The Complete Guide to Drone Racing + High-Speed FPV Drones for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-online-follower-list/"><u>Unmasking Online Follower List</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-the-ultimate-guide-to-free-mobile-applications-transforming-audio-into-captivating-visuals-for-ios-and-android-users-for-2024/"><u>Updated The Ultimate Guide to Free Mobile Applications Transforming Audio Into Captivating Visuals for iOS & Android Users for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-effortless-advancement-in-pclaptop-edits-using-inshot/"><u>[New] 2024 Approved Effortless Advancement in PC/Laptop Edits Using Inshot</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-best-assortment-professional-webcam-supports/"><u>2024 Approved Best Assortment Professional Webcam Supports</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-best-10-budget-friendly-alternatives-to-watch-on-netflix/"><u>Discover the Best 10 Budget-Friendly Alternatives to Watch On Netflix</u></a></li>
+<li><a href="https://facebook.techidaily.com/encryption-for-fb-and-ig-chats-postponed-to-2022/"><u>Encryption for FB & IG Chats Postponed to 2022</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-vivo-v27e-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-itel-s23-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Itel S23 FRP Locks</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-master-your-virtual-reality-journey-which-option-suits-you-better-portable-mobile-or-connected-tethered/"><u>In 2024, Master Your Virtual Reality Journey Which Option Suits You Better - Portable (Mobile) or Connected (Tethered)?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-photographic-fundamentals-in-5-minutes-with-snapseed/"><u>In 2024, Photographic Fundamentals in 5 Minutes with Snapseed</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-profile-revision-update-your-significant-date-in-social-media/"><u>Initiating Profile Revision: Update Your Significant Date in Social Media</u></a></li>
+<li><a href="https://video-capture.techidaily.com/the-grand-gaming-odyssey-our-list-of-best-action-adventures/"><u>The Grand Gaming Odyssey Our List of Best Action-Adventures</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-old-school-charm-may-reignite-interest-in-instagram/"><u>Why Old-School Charm May Reignite Interest in Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-youll-soon-see-more-crypto-ads-on-facebook-and-instagram/"><u>Why You'll Soon See More Crypto Ads on Facebook and Instagram</u></a></li>
 </ul></div>
 

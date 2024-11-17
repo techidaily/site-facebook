@@ -1,7 +1,7 @@
 ---
 title: Spotlight on Today's Popular FB Video Sessions
-date: 2024-11-05T06:11:31.800Z
-updated: 2024-11-07T08:12:37.842Z
+date: 2024-11-16T17:29:11.294Z
+updated: 2024-11-17T17:50:28.053Z
 tags:
   - facebook
 categories:
@@ -45,6 +45,13 @@ That's it. Here you will find all the recently watched videos.
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Filter Facebook Watched Videos by Date on the Web
 
  If you want to view videos watched in a particular month and year, you can do that too. Here's how:
@@ -56,27 +63,20 @@ That's it. Here you will find all the recently watched videos.
 
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to View Recently Watched Facebook Videos on Android and iOS
 
  It's very easy to view recently watched Facebook videos on an Android or iOS device. Here are the steps you need to follow:
 
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
@@ -94,10 +94,10 @@ Close
  You'll now see all the videos you recently watched on your Facebook app.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Filter Facebook Watched Videos by Date on Android and iOS
@@ -105,13 +105,6 @@ Close
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
 
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
@@ -121,6 +114,13 @@ Close
 2. Slide the available activities to the left and choose the Videos watched option.
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
 
@@ -141,20 +141,14 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-navigating-iphones-automatic-replay-feature/"><u>[Updated] 2024 Approved Navigating iPhone's Automatic Replay Feature</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-quirky-quirks-your-simple-steps-for-memelore-mastery/"><u>[Updated] Quirky Quirks Your Simple Steps for Memelore Mastery</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-photoshop-and-beyond-unlocking-visual-potential-with-luts/"><u>2024 Approved Photoshop and Beyond Unlocking Visual Potential with Luts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/adding-a-vibrancy-edge-youtube-thumbnails-meet-neons/"><u>Adding a Vibrancy Edge YouTube Thumbnails Meet Neons</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1722893472005-amazon-prime-day-alert-hunt-down-ultimate-discounts-on-must-have-technology/"><u>Amazon Prime Day Alert: Hunt Down Ultimate Discounts on Must-Have Technology</u></a></li>
-<li><a href="https://facebook.techidaily.com/customizing-your-fb-experience-to-escape-annoying-ads/"><u>Customizing Your FB Experience to Escape Annoying Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-down-or-up-quick-ways-to-confirm/"><u>FB Down or Up: Quick Ways to Confirm</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/innovative-finger-sets-taking-vr-to-new-heights-for-2024/"><u>Innovative Finger Sets Taking VR to New Heights for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-your-image-boosting-likes-and-following-with-photo-tactics/"><u>Maximizing Your Image: Boosting Likes & Following with Photo Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/root-access-granted-what-does-this-mean-for-oculus-go-users/"><u>Root Access Granted: What Does This Mean for Oculus Go Users?</u></a></li>
-<li><a href="https://video-capture.techidaily.com/screenstreaming-mastery-capturing-high-quality-content-on-your-mac/"><u>ScreenStreaming Mastery Capturing High-Quality Content on Your Mac</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/showmore-screen-recorder-review-all-you-need-to-know/"><u>ShowMore Screen Recorder Review All You Need To Know</u></a></li>
-<li><a href="https://facebook.techidaily.com/ultimate-destinations-for-pursuing-freelance-work/"><u>Ultimate Destinations for Pursuing Freelance Work</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-secrets-private-facebook-exploration-guide/"><u>Unveiling Secrets: Private Facebook Exploration Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/uick-info-on-short-form-media-for-2024/"><u>[New] Quick Info on Short Form Media for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-from-concept-to-completion-the-artisans-guide-to-gifs/"><u>[Updated] 2024 Approved From Concept to Completion The Artisan's Guide to GIFs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-easyshadecleanse-professionally-crafted-erase-software-for-2024/"><u>[Updated] EasyShadeCleanse Professionally Crafted Erase Software for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-economical-audience-expansion-buy-subscribers-not-time/"><u>[Updated] In 2024, Economical Audience Expansion Buy Subscribers, Not Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-under-fire-protests-lead-to-decrease-in-app-ratings/"><u>Facebook Under Fire: Protests Lead to Decrease in App Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-for-professional-engagement-and-growth/"><u>Leveraging Facebook for Professional Engagement & Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-first-evade-these-3-spying-apps/"><u>Privacy First: Evade These 3 Spying Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-social-media-experience-with-smart-photo-descriptions/"><u>Transforming Social Media Experience with Smart Photo Descriptions</u></a></li>
+<li><a href="https://article-helps.techidaily.com/unveiling-professional-techniques-for-aps-hdr-creation-for-2024/"><u>Unveiling Professional Techniques for APS HDR Creation for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2024-10-31T19:45:19.404Z
-updated: 2024-11-06T17:19:28.275Z
+date: 2024-11-13T16:06:10.639Z
+updated: 2024-11-17T17:06:02.223Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -78,18 +78,16 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-expert-picks-of-top-fee-free-live-streaming-tech-tools-for-everyone/"><u>[New] 2024 Approved Expert Picks of Top, Fee-Free Live Streaming Tech Tools for Everyone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-accelerating-operations-discover-the-leading-scheduling-tools/"><u>2024 Approved Accelerating Operations Discover the Leading Scheduling Tools</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/differentiating-authentic-and-erroneous-machine-learning-outputs/"><u>Differentiating Authentic and Erroneous Machine Learning Outputs</u></a></li>
-<li><a href="https://facebook.techidaily.com/dive-into-the-world-of-virtual-shopping-on-fb-fridays/"><u>Dive Into the World of Virtual Shopping on FB Fridays</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-huawei-nova-y91-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Huawei Nova Y91 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Itel S23? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/lock-your-likes-making-photo-sharing-on-facebook-private/"><u>Lock Your Likes: Making Photo Sharing on Facebook Private</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-user-engagement-facebook-vs-apple-with-custom-linkages/"><u>Revolutionizing User Engagement: Facebook Vs. Apple with Custom Linkages</u></a></li>
-<li><a href="https://facebook.techidaily.com/searching-for-archived-facebook-communication/"><u>Searching for Archived Facebook Communication</u></a></li>
-<li><a href="https://win11.techidaily.com/silent-speakers-resolving-microphone-glitches-in-microsoft-enabled-meet/"><u>Silent Speakers: Resolving Microphone Glitches in Microsoft-Enabled Meet</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-symphony-revisited-the-top-4-digital-renaissance-themes/"><u>Social Symphony Revisited: The Top 4 Digital Renaissance Themes</u></a></li>
-<li><a href="https://program-issues.techidaily.com/step-by-step-solutions-to-stop-outpost-infinity-siege-from-closing-unexpectedly-on-your-computer/"><u>Step-by-Step Solutions to Stop Outpost: Infinity Siege From Closing Unexpectedly on Your Computer</u></a></li>
-<li><a href="https://facebook.techidaily.com/tiktoks-emergence-as-a-formidable-competitor-to-facebook/"><u>TikTok's Emergence as a Formidable Competitor to Facebook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-professional-recordings-at-home-10-key-strategies-for-excellence/"><u>[New] 2024 Approved Professional Recordings at Home 10 Key Strategies for Excellence</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-navigating-video-editor-landscape-choose-filmora-or-democracy-creator-for-2024/"><u>[New] Navigating Video Editor Landscape Choose Filmora or Democracy Creator for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unlocking-your-cameras-screen-recording-features-for-2024/"><u>[New] Unlocking Your Camera's Screen Recording Features for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-mastering-medias-closing-chapters/"><u>2024 Approved Mastering Media's Closing Chapters</u></a></li>
+<li><a href="https://facebook.techidaily.com/detailed-tutorial-enhancing-image-clarity-on-facebook/"><u>Detailed Tutorial: Enhancing Image Clarity on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-silicon-valley-giants-government-intervention/"><u>Dissecting Silicon Valley Giants: Government Intervention</u></a></li>
+<li><a href="https://facebook.techidaily.com/eclipsing-disclosure-facebooks-true-user-shift/"><u>Eclipsing Disclosure: Facebook's True User Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-engagement-key-mobile-settings-in-fb-app/"><u>Elevate Engagement: Key Mobile Settings in FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-an-inaccessible-account-on-social-networking-site-fb/"><u>Fixing an Inaccessible Account on Social Networking Site - FB</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/huawei-users-rejoice-learn-the-easy-way-to-convert-and-watch-dvds-on-your-phonetablet-without-cost/"><u>Huawei Users Rejoice! Learn the Easy Way to Convert & Watch DVDs on Your Phone/Tablet Without Cost</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/revive-system-efficiency-upgrading-graphics-driver-on-windows/"><u>Revive System Efficiency: Upgrading Graphics Driver on Windows</u></a></li>
 </ul></div>
 

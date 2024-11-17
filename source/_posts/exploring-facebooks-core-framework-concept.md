@@ -1,7 +1,7 @@
 ---
 title: Exploring Facebook's Core Framework Concept
-date: 2024-09-01T03:51:42.784Z
-updated: 2024-09-02T03:51:42.784Z
+date: 2024-11-15T16:16:21.635Z
+updated: 2024-11-17T18:01:50.377Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,19 @@ thumbnail: https://thmb.techidaily.com/2dd3f6016f2ac6912827509209a1009782287114c
 
  It's a modular e-learning platform. It has separate sections for walk-in learners and certification-oriented learners. The following are the two separate modules of Facebook Blueprint:
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Programs
 
 ![An image showing the Facebook Blueprint Programs portal](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Blueprint-Programs-Page.jpg)
@@ -52,20 +65,17 @@ thumbnail: https://thmb.techidaily.com/2dd3f6016f2ac6912827509209a1009782287114c
 5. For brands & agencies.
 6. For small businesses.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Certification
 
 ![A visual showing Facebook Blueprint Certification page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Blueprint-Certification-Page.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [Facebook](https://www.facebook.com/business/learn/certification)
 
  This section offers multiple certification exams that are in high demand. You can attempt these professional certifications after going through vital learning and training.
@@ -84,9 +94,6 @@ No advertising on the website.
 8. Advertising API Developer.
 9. Community Manager.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Who Should Be Using Facebook Blueprint?
 
  Anyone who is planning to pursue a career as a social media marketer will find Facebook Blueprint useful.
@@ -98,13 +105,24 @@ No advertising on the website.
  Software and mobile app developers can also utilize this platform to gather technical knowledge on the tools that are vital for social media marketing. You can confidently lead projects of social media marketing-based web and app development after getting certification from Facebook Blueprint.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Get Certified in Facebook Blueprint
 
  You might want to complete the online courses first before scheduling an exam and paying fees. Let’s say that you want to start as an associate in social media marketing.
 
 ![An image showing the registration link for Facebook Blueprint certification](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Blueprint-Certification-Example.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Facebook](https://www.facebook.com/business/learn/certification/exams/100-101-exam)
 
@@ -121,18 +139,12 @@ No advertising on the website.
 
  Related:[The Best Google Online Courses You Should Be Taking](https://www.makeuseof.com/tag/best-google-online-courses/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Display Facebook Blueprint Badges in Your Portfolio
 
  The platform will award you with a verifiable digital badge to showcase that you’re a Facebook Blueprint Certified Professional. It distinguishes you from others who strive for a career in branding and marketing in social media.
 
 ![A graphical representation of a Facebook Blueprint badge](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Blueprint-Badges.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Madgicx](https://madgicx.com/why-is-a-facebook-blueprint-certification-good-for-you/)
 
  Acclaim will send an email informing you about the digital badge and ways to embed that in professional spaces. You can also log in to your Acclaim profile to download the digital badge yourself. You can also download the digital badge usage manual.
@@ -169,14 +181,11 @@ No advertising on the website.
 
  While you’re at it, you may also want to know more about personal branding and how to do it right.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -185,4 +194,22 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-endless-entertainment-the-science-behind-youtube-loops/"><u>[Updated] In 2024, Endless Entertainment The Science Behind YouTube Loops</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-all-inclusive-360-panorama-viewer/"><u>2024 Approved All-Inclusive 360 Panorama Viewer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-content-strategy-mastery-selecting-top-rank-trackers-uncovered/"><u>2024 Approved Content Strategy Mastery - Selecting Top Rank Trackers Uncovered</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-how-to-remove-static-noise-from-audio-in-seconds/"><u>2024 Approved How to Remove Static Noise From Audio in Seconds</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-setting-up-your-first-livestream-successfully/"><u>2024 Approved Setting Up Your First Livestream Successfully</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-apocalypse-today-fb-whatsapp-ig-failures/"><u>App Apocalypse Today: FB, WhatsApp, IG Failures</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-skip-two-step-verification-without-your-phone/"><u>How To Skip Two-Step Verification Without Your Phone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/instagram-is-dragging-boost-its-performance-6-proven-fixes-for-users-of-all-phones/"><u>Instagram Is Dragging? Boost Its Performance: 6 Proven Fixes for Users of All Phones</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/navigating-keyword-optimization-in-podcast-seo/"><u>Navigating Keyword Optimization in Podcast SEO</u></a></li>
+<li><a href="https://facebook.techidaily.com/presidents-lawsuit-targets-silence-on-social-networking-sites/"><u>President's Lawsuit Targets Silence on Social Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-platforms-promising-engaging-seniors/"><u>Prime Platforms Promising Engaging Seniors</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-for-love-the-shift-in-online-relationship-formation-on-facebook/"><u>Social Networking for Love: The Shift in Online Relationship Formation on Facebook</u></a></li>
+<li><a href="https://win-webster.techidaily.com/transfert-rapide-de-donnees-entre-clonage-disque-dur-et-supports-hddssd/"><u>Transfert Rapide De Données Entre Clonage Disque Dur Et Supports HDD/SSD</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-and-solving-continuous-crashes-in-watch-dogs-legion-on-desktop-systems/"><u>Troubleshooting and Solving Continuous Crashes in Watch Dogs: Legion on Desktop Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-digital-front-door-securing-it-from-hackers/"><u>Your Digital Front Door: Securing It From Hackers</u></a></li>
+</ul></div>
 

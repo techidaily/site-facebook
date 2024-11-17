@@ -1,7 +1,7 @@
 ---
 title: Facing Accusations, FB Stands by Advertising Principles
-date: 2024-11-04T01:49:41.167Z
-updated: 2024-11-07T08:41:29.850Z
+date: 2024-11-15T17:48:30.147Z
+updated: 2024-11-17T17:10:27.626Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
  In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Responds to Signal's Move
@@ -52,10 +52,10 @@ Facebook responded with the following statement to the media:
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Signal's Ads You’ll Never See on Instagram
@@ -67,10 +67,10 @@ Facebook responded with the following statement to the media:
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is This Nothing But a PR Stunt on Signal's Part?
@@ -98,24 +98,24 @@ Facebook responded with the following statement to the media:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-excellence-in-viewing-10-preeminent-iphoneipad-videos/"><u>[New] Excellence in Viewing 10 Preeminent iPhone/iPad Videos</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-expert-strategies-for-high-quality-gopro-4k-footage-editing-for-2024/"><u>[New] Expert Strategies for High-Quality GoPro 4K Footage Editing for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-best-color-grading-plugins-top-15-luts-for-action-cams/"><u>[New] In 2024, Best Color Grading Plugins Top 15 LUTs For Action Cams</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-guide-to-spotify-ads-learn-how-to-successfully-advertise-on-spotify/"><u>[Updated] Guide to Spotify Ads - Learn How to Successfully Advertise on Spotify</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-sites-and-platforms-for-freelancers/"><u>Best Sites and Platforms for Freelancers</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-connectivitys-silver-lining-7-social-perks/"><u>Digital Connectivity's Silver Lining: 7 Social Perks</u></a></li>
-<li><a href="https://facebook.techidaily.com/diving-into-telegram-growth-spurt-after-facebook-halted/"><u>Diving Into Telegram Growth Spurt After Facebook Halted</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-deleting-your-social-media-snoop-records/"><u>Guide to Deleting Your Social Media Snoop Records</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-on-apple-iphone-6-plus-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID On Apple iPhone 6 Plus without Password?</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-lava-yuva-3-prowithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Lava Yuva 3 Prowith/without a PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-yourself-safe-while-exploring-fb-marketplace-deals/"><u>Keep Yourself Safe While Exploring FB Marketplace Deals</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-hd-content-efficient-posting-in-fb-app/"><u>Navigating HD Content: Efficient Posting in FB App</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/pcipaddvd/"><u>PCフリーでiPadにDVD映像コンテンツ取り込み・再生手順紹介</u></a></li>
-<li><a href="https://facebook.techidaily.com/tactics-to-rejuvenate-non-loading-fb-news-feed-items/"><u>Tactics to Rejuvenate Non-Loading FB News Feed Items</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-power-of-facebook-business-pages-vs-personal-profiles-in-brand-strategy/"><u>The Power of Facebook Business Pages vs Personal Profiles in Brand Strategy</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/the-ultimate-playbook-navigating-tools-for-vimeo-content-grabs-for-2024/"><u>The Ultimate Playbook Navigating Tools for Vimeo Content Grabs for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-oppo-find-n3-flip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncovering-lately-watched-fb-content/"><u>Uncovering Lately Watched FB Content</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-yearly-highlight-10-best-free-lut-download-links/"><u>[New] 2024 Approved Yearly Highlight - 10 Best FREE LUT Download Links</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-crafting-a-united-front-brand-integrations-on-youtube-platform/"><u>[Updated] 2024 Approved Crafting a United Front Brand Integrations on YouTube Platform</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-perfecting-profile-playlists-on-facebook-through-mobile/"><u>[Updated] 2024 Approved Perfecting Profile Playlists on Facebook Through Mobile</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-premier-mobile-and-desktop-mkv-software/"><u>[Updated] 2024 Approved Premier Mobile & Desktop MKV Software</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-whatsapp-audio-messages-decoded/"><u>[Updated] 2024 Approved WhatsApp Audio Messages Decoded</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-streamlined-methods-for-iphone-screen-capture/"><u>2024 Approved Streamlined Methods for iPhone Screen Capture</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/essential-tips-for-buying-a-home-entertainment-system-focusing-on-tvs/"><u>Essential Tips for Buying a Home Entertainment System, Focusing on TVs</u></a></li>
+<li><a href="https://facebook.techidaily.com/facial-id-shutdown-exploring-the-meta-facebook-breakup/"><u>Facial ID Shutdown? Exploring the Meta-Facebook Breakup</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-find-8-digital-hubs-offering-free-green-screen-elements-and-scenes/"><u>In 2024, Find 8 Digital Hubs Offering Free Green-Screen Elements & Scenes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-visual-tech-top-7-screen-options-for-image-experts/"><u>In 2024, Innovative Visual Tech - Top 7 Screen Options for Image Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/influence-misleads-on-covid-19-truths-and-fears/"><u>Influence Misleads on Covid-19 Truths and Fears</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-the-same-dont-update-how-to-preserve-your-whatsapp-usage/"><u>Keep the Same, Don’t Update: How to Preserve Your WhatsApp Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/leadership-elevation-assigning-a-prestigious-admin-role-on-fb/"><u>Leadership Elevation: Assigning a Prestigious Admin Role on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-online-engagement-less-more-quality-time/"><u>Personalizing Your Online Engagement: Less, More Quality Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/reduce-exposure-to-facebook-reels/"><u>Reduce Exposure to Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-fb-alerts-and-messages-a-compreenas-guide/"><u>Stop Fb Alerts & Messages: A Compreenas Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-shield-from-facebook-phishing-attempts/"><u>Strategies to Shield From Facebook Phishing Attempts</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-creative-writing-how-chatgpt-enhances-novel-composition-in-9-ways/"><u>Unlocking Creative Writing: How ChatGPT Enhances Novel Composition in 9 Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-to-weigh-up-before-permanently-saying-goodbye-online/"><u>What to Weigh Up Before Permanently Saying Goodbye Online</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unwinding the Facebook-TikTok Rivalry with Reel Innovation
-date: 2024-09-01T03:48:32.770Z
-updated: 2024-09-02T03:48:32.770Z
+date: 2024-11-14T17:58:36.087Z
+updated: 2024-11-17T16:47:55.929Z
 tags:
   - facebook
 categories:
@@ -49,37 +49,49 @@ thumbnail: https://thmb.techidaily.com/8e45fcad350df735f2b4416d42d7d71c8933e8227
 
  The decline in Facebook’s engagement level and the subsequent drop in revenue are adding up to a significant plunge in the company’s stock price. Meta, Facebook’s parent company, saw a stock drop of over $200 billion after a dismal quarterly earnings report.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Facebook Plans to Regain Momentum
 
 ![binoculars with the facebook logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  For the past few years, the social media landscape has shifted towards short-form video content, a space dominated by TikTok. It has become more popular, particularly among the younger demographics, because of the shorter users’ attention spans and the repetitive consumption of video content.
 
  The problem for Facebook, and the entire Meta family of apps, is that its business is largely based on user engagement and serving ads. So, any service that occupies user time and engagement—such as TikTok—can threaten its growth.
 
  Zuckerberg realizes the growing demand for short-form video content. Following the drop in stock price, he accepted the company is up against an “unprecedented level of competition” from TikTok. He asked Meta employees to focus on Reels, which has had significant success on Instagram.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Can Reels Save Facebook?
 
 ![video reel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Reels.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  While short-form video may be trending, TikTok is an entirely different product, and it won’t be easy for Facebook to copy it as it did Stories from Snapchat. We wrote a full article outlining why[the Reels vs. TikTok battle](http://www.makeuseof.com/use-instagram-reels-or-tiktok/) will be difficult for Facebook, so it's worth checking that out if you want to learn more.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Facebook Is Seen as a Mixed Media Platform
 
  Facebook is a mixed media platform that can accommodate photos, videos, text, link previews, and a mix of other types of content. Many younger audiences don’t consider it cool anymore, which is reflected in teens’ engagement on the platform.
@@ -98,12 +110,16 @@ thumbnail: https://thmb.techidaily.com/8e45fcad350df735f2b4416d42d7d71c8933e8227
 
  Some analysts believe that Facebook had underestimated the threat of TikTok by prioritizing other projects, and now it’s too late to win back younger users.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Monetization Issues
 
 ![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Even if Facebook succeeds at winning the attention of Gen-Z (prominent audiences of TikTok) with Reels, it still has to figure out a way to make it commercially successful. Short-form video won’t be as easy to monetize as long-form content.
 
@@ -115,14 +131,11 @@ thumbnail: https://thmb.techidaily.com/8e45fcad350df735f2b4416d42d7d71c8933e8227
 
  Reels might be late to the short-form video scene, but with the powerful Meta brand behind it, it's got every chance of succeeding.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +144,26 @@ thumbnail: https://thmb.techidaily.com/8e45fcad350df735f2b4416d42d7d71c8933e8227
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/xpand-your-viewership-horizon-on-youtube/"><u>[New] Expand Your Viewership Horizon on Youtube</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-best-for-broadcasting-is-obs-superior-to-twitch-studio-in-2024/"><u>[Updated] Best for Broadcasting Is OBS Superior to Twitch Studio, In 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-explore-the-globe-top-10-travelers-youtube-guide/"><u>[Updated] In 2024, Explore the Globe Top 10 Traveler's YouTube Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-strategies-uniting-communities-via-platforms/"><u>8 Strategies: Uniting Communities via Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-top-picks-calendar-software-for-scheduled-social-shares/"><u>8 Top Picks: Calendar Software for Scheduled Social Shares</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-tale-of-two-platforms-will-meta-displace-facebook-and-instagram-in-europe/"><u>A Tale of Two Platforms: Will Meta Displace Facebook & Instagram in Europe?</u></a></li>
+<li><a href="https://facebook.techidaily.com/agile-application-alternatives-quick-android-plays/"><u>Agile Application Alternatives: Quick Android Plays</u></a></li>
+<li><a href="https://facebook.techidaily.com/anti-vax-discourse-defiantly-exists-in-facebook-corridors/"><u>Anti-Vax Discourse Defiantly Exists in Facebook Corridors</u></a></li>
+<li><a href="https://facebook.techidaily.com/audio-focus-facebook-introduces-enhanced-social-features/"><u>Audio Focus: Facebook Introduces Enhanced Social Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-buzz-navigating-a-world-without-social-media/"><u>Beyond the Buzz: Navigating a World without Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-up-past-browsing-a-facebook-method/"><u>Clearing Up Past Browsing: A Facebook Method</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/comprehensive-compendium-all-features-of-bublcams-360-degree-lens-for-2024/"><u>Comprehensive Compendium All Features of Bublcam's 360-Degree Lens for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/comprehensive-guide-to-the-latest-free-shotcut-version-features-updates-and-how-tos/"><u>Comprehensive Guide to the Latest Free Shotcut Version: Features, Updates, and How-To's !</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-distinctive-facebook-page/"><u>Crafting a Distinctive Facebook PAGE</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-honor-play-40c-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Honor Play 40C</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-nokia-c300-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Nokia C300 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Vivo S18e? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/sequential-viewing-the-ultimate-guide-to-watching-indiana-jones/"><u>Sequential Viewing: The Ultimate Guide to Watching Indiana Jones</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unlocking-the-potential-of-wireless-connectivity-with-netgears-nighthawk-ax8-an-in-depth-review/"><u>Unlocking the Potential of Wireless Connectivity with Netgear's Nighthawk AX8: An In-Depth Review</u></a></li>
+</ul></div>
 

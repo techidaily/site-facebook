@@ -1,7 +1,7 @@
 ---
 title: World Cup Fans Turn Away From Snapchat and Facebook Over Online Insults
-date: 2024-09-01T03:48:22.712Z
-updated: 2024-09-02T03:48:22.712Z
+date: 2024-11-14T17:18:10.068Z
+updated: 2024-11-17T16:01:22.072Z
 tags:
   - facebook
 categories:
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/66f3cf36e141a02ee3ef4f8fc90997bfb9adc3902
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -61,14 +68,11 @@ thumbnail: https://thmb.techidaily.com/66f3cf36e141a02ee3ef4f8fc90997bfb9adc3902
 
  Whatever your take on the social media regulation side of the issue, one thing is clear: online abuse, racism, and toxic behavior towards anyone is unacceptable, whether they're a highly paid soccer player or otherwise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,8 +81,26 @@ thumbnail: https://thmb.techidaily.com/66f3cf36e141a02ee3ef4f8fc90997bfb9adc3902
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-dynamic-voice-training-in-free-fire-games-for-2024/"><u>[New] Dynamic Voice Training in Free Fire Games for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-a-complete-introduction-to-snapchats-new-feature-for-2024/"><u>[Updated] A Complete Introduction to Snapchat's New Feature for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-digital-broadcasting-service-review-for-2024/"><u>[Updated] Digital Broadcasting Service Review for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-marketing-layers-deconstructing-strategys-packaging/"><u>[Updated] Marketing Layers Deconstructing Strategy's Packaging</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-venture-into-the-best-sites-for-innovative-text-manipulation-tools/"><u>[Updated] Venture Into the Best Sites for Innovative Text Manipulation Tools</u></a></li>
+<li><a href="https://win-data.techidaily.com/1-bonus-simple-guide-restore-accidentally-deleted-data-on-your-flash-drive/"><u>1. [Bonus!] Simple Guide: Restore Accidentally Deleted Data on Your Flash Drive</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-step-by-step-guide-to-tiktok-sound-as-your-phones-ringtone/"><u>2024 Approved Step-by-Step Guide to TikTok Sound as Your Phone's Ringtone</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-revival-of-second-life-as-a-metaverse-contributor/"><u>Assessing the Revival of Second Life as a Metaverse Contributor</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-your-history-of-fb-relationships/"><u>Assessing Your History of FB Relationships</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-faux-friend-requests-6-key-strategies/"><u>Avoid Faux Friend Requests – 6 Key Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-facebooks-data-collection-ploys/"><u>Avoiding Facebook's Data Collection Ploys</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/behind-the-scenes-of-changing-usernames-on-google-meet/"><u>Behind the Scenes of Changing Usernames on Google Meet</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-safe-identity-on-facebook/"><u>Best Practices for Safe Identity on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/blueprinting-for-better-governance-in-fb-groups/"><u>Blueprinting for Better Governance in FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-digital-efficiency-with-facebooks-new-admin-tools/"><u>Boosting Digital Efficiency with Facebook's New Admin Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-past-youtube-videos-evaporate/"><u>Can Past YouTube Videos Evaporate?</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149089824-facebook-troubles-heres-how-to-navigate-and-fix-them-fast/"><u>FaceBook Troubles? Here's How to Navigate and Fix Them Fast</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-y100t-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Y100t</u></a></li>
+<li><a href="https://win-bits.techidaily.com/straightforward-steps-for-a-protected-windows-11-update/"><u>Straightforward Steps for a Protected Windows 11 Update</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

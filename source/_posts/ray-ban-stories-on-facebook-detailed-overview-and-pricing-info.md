@@ -1,7 +1,7 @@
 ---
 title: Ray-Ban Stories on Facebook - Detailed Overview & Pricing Info
-date: 2024-09-01T03:53:19.267Z
-updated: 2024-09-02T03:53:19.267Z
+date: 2024-11-10T17:10:52.096Z
+updated: 2024-11-17T16:33:59.956Z
 tags:
   - facebook
 categories:
@@ -31,6 +31,13 @@ thumbnail: https://thmb.techidaily.com/86eaf732ac0282547acec52c64c3976ebfde5c25b
 
  The big theme around the Ray-Ban Stories is giving you the ability to capture the world around you without needing to leave it. There’s no need to scramble for your phone when something amazing happens, nor do you need to stare through a screen when recording something. Now you can capture anything just by looking at it, so you can concentrate on living in the moment.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Ray-Ban Stories Specifications
 
  The Ray-Ban Stories captures the world around you using two 5-megapixel cameras. You activate them by pressing a small button on the side of the glasses frame: a brief tap to record video and a long press for a photo. If you’re feeling brave, you can also say, “Hey Facebook, take a video” to start the process, but be prepared to record nothing but people staring at you in confusion.
@@ -48,36 +55,43 @@ thumbnail: https://thmb.techidaily.com/86eaf732ac0282547acec52c64c3976ebfde5c25b
  The glasses will have an off switch, which will disable all the tech on them once flipped. And Facebook is proud to show off a light-up LED on the camera to show others that you’re recording them, which helps improve privacy. In the video, Mark Zuckerberg claims this is “more than what smartphones do,” but we’d argue that holding up a phone to record someone is more obvious than an LED.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How Much Are the Ray-Ban Stories?
 
  If you want a pair of glasses for yourself, they won't break the bank too much. You can pick them up for $299, which is a pretty reasonable price for what you're getting.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## When Will the Ray-Ban Stories Come Out?
 
  The best bit is, if you're dying to wear a piece of the future, you can buy them right away. Just head over to the[Ray-Ban Stories store page](https://www.ray-ban.com/usa/electronics/RW4002%20UNISEX%20ray-ban%20stories%20%7C%20wayfarer-shiny%20black/8056597489478) and pick up a pair today.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## A New Chapter in the Story of Smart Glasses
 
  If you love capturing those precious moments, but you'd rather not experience it through a phone screen, the Ray-Ban Stories may just be up your alley. They're out now, so be sure to grab a pair ASAP if this sounds like something you want.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -86,4 +100,26 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/less-likes-more-life-the-reality-in-instagrams-call-to-slow-down/"><u>'Less Likes, More Life': The Reality in Instagram's Call to Slow Down</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-designing-effective-thumbnails-with-imagery-for-2024/"><u>[New] Designing Effective Thumbnails with Imagery for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-behind-the-scenes-with-slow-motion-in-reels/"><u>[New] In 2024, Behind the Scenes with Slow Motion in Reels</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-great-screen-capture-debate-obs-studio-versus-fraps/"><u>[Updated] The Great Screen Capture Debate OBS Studio Versus Fraps</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-nokia-c32-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Nokia C32</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-hidden-constraints-of-facebook-connection-invites/"><u>Decoding Hidden Constraints of Facebook Connection Invites</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-recurring-diablo-4-disruptions-a-step-by-nstep-guide-for-ps5-xbox-and-pc-users/"><u>How to Fix Recurring Diablo 4 Disruptions: A Step-by-nStep Guide for PS5, Xbox & PC Users</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/lifelog-legends-who-holds-the-crown-the-gilded-meta-or-silver-ticked-twitters/"><u>Lifelog Legends: Who Holds the Crown, The Gilded Meta or Silver-Ticked Twitters?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mastering-the-art-of-locating-fb-lately-seen-videos-for-2024/"><u>Mastering the Art of Locating Fb Lately Seen Videos for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/most-popular-apps-for-your-samsung-smart-tv/"><u>Most Popular Apps for Your Samsung Smart TV</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/online-mp4-to-m4a-recording-upgrade-convert-without-cost-using-movavis-tool/"><u>Online MP4 to M4A Recording Upgrade - Convert Without Cost Using Movavi's Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/realigning-your-facebook-profile-with-current-preferences/"><u>Realigning Your Facebook Profile with Current Preferences</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154626988-strengthen-your-security-end-to-end-encrypted-messaging-on-facebooks-social-network/"><u>Strengthen Your Security: End-to-End Encrypted Messaging on Facebook’s Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-roadmap-to-successful-online-job-promotions/"><u>The Roadmap to Successful Online Job Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-stronger-protection-with-2fa-on-gmail-outlook-and-more-services/"><u>Unlock Stronger Protection with 2FA on Gmail, Outlook & More Services</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-the-ultimate-list-10-free-online-video-compression-tools/"><u>Updated The Ultimate List 10 Free Online Video Compression Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-hides-behind-facebooks-invisible-mode/"><u>What Hides Behind Facebook's Invisible Mode?</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-to-unveil-multi-device-support-for-whatsapp/"><u>Zuckerberg to Unveil Multi-Device Support for WhatsApp</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: New Features on the Horizon for Facebook's Stories Panel?
-date: 2024-09-01T03:48:34.032Z
-updated: 2024-09-02T03:48:34.032Z
+date: 2024-11-12T17:31:07.909Z
+updated: 2024-11-17T16:41:41.293Z
 tags:
   - facebook
 categories:
@@ -33,9 +33,23 @@ thumbnail: https://thmb.techidaily.com/c08cfb9fc52b90a12972e5ec144ec0c7f63bc215d
 
  Originally, it was believed that[Facebook was making a standalone app to compete with Clubhouse](https://www.makeuseof.com/facebook-making-clubhouse-app/) , but Live Audio Rooms (and Podcasts) were instead built right into Facebook. You can read their introduction on[Facebook Newsroom](https://about.fb.com/news/2021/06/live-audio-rooms-and-podcasts-on-facebook/) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Continues to Compete With… Just About Everything, Really
 
 ![Facebook Slows Down Election Misinformation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/facebook-slow-down-election-misinfo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Everyone knows the Facebook story by now: CEO Mark Zuckerberg created a website in 2003 while he was attending Harvard University, and it blew up much bigger than he ever imagined.
 
@@ -47,14 +61,11 @@ thumbnail: https://thmb.techidaily.com/c08cfb9fc52b90a12972e5ec144ec0c7f63bc215d
 
  There seems to be very few things that Facebook won't at least try, which makes entering the tech market pretty tricky to enter for software developers. Facebook has been at the top of the pack for a very long time, and clearly it doesn't plan on giving up its place as king that easily.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -63,8 +74,22 @@ thumbnail: https://thmb.techidaily.com/c08cfb9fc52b90a12972e5ec144ec0c7f63bc215d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/avigating-the-world-of-content-delivery-a-comprehensive-video-upload-guide-for-youtube-for-2024/"><u>[New] Navigating the World of Content Delivery A Comprehensive Video Upload Guide for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-owner-uncovering-your-subscribers/"><u>[Updated] In 2024, Channel Owner Uncovering Your Subscribers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-mastery-guide-securely-archiving-snapchat-media-on-devices/"><u>[Updated] In 2024, Mastery Guide Securely Archiving Snapchat Media on Devices</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-picture-perfect-presentation-software-for-impeccable-photo-framing/"><u>2024 Approved Picture Perfect Presentation Software for Impeccable Photo Framing</u></a></li>
+<li><a href="https://facebook.techidaily.com/accusations-social-media-fights-false-advertising/"><u>Accusations: Social Media Fights False Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/audit-of-followers-on-fb/"><u>Audit of Followers on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-marketing-traps-on-facebook-simple-steps-to-follow/"><u>Avoiding Marketing Traps on Facebook: Simple Steps to Follow</u></a></li>
+<li><a href="https://facebook.techidaily.com/bidens-journey-from-tweets-to-snaps-in-vaccine-drive/"><u>Biden's Journey: From Tweets to Snaps in Vaccine Drive</u></a></li>
+<li><a href="https://facebook.techidaily.com/bold-personalities-setting-the-tech-stage-on-fire/"><u>Bold Personalities Setting the Tech Stage on Fire</u></a></li>
+<li><a href="https://facebook.techidaily.com/collective-recognition-crafting-group-wide-facebook-messages/"><u>Collective Recognition: Crafting Group-Wide Facebook Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensively-understanding-photodnas-functionality/"><u>Comprehensively Understanding PhotoDNA's Functionality</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/how-to-fix-monitor-blinking-issues/"><u>How to Fix Monitor Blinking Issues</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-seamless-transitions-elevating-your-drone-footage/"><u>In 2024, Seamless Transitions Elevating Your Drone Footage</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/kensun-mobile-pneumatic-inflator-review-proven-quality-for-on-the-go-fixes/"><u>Kensun Mobile Pneumatic Inflator Review: Proven Quality for On-the-Go Fixes</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/quick-fixes-for-a-broken-windows-10-search-functionality/"><u>Quick Fixes for a Broken Windows 10 Search Functionality</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->

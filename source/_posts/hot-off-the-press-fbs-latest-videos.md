@@ -1,7 +1,7 @@
 ---
 title: "Hot Off The Press: FB's Latest Videos"
-date: 2024-09-01T03:51:38.806Z
-updated: 2024-09-02T03:51:38.806Z
+date: 2024-11-16T16:17:13.581Z
+updated: 2024-11-17T16:06:00.703Z
 tags:
   - facebook
 categories:
@@ -53,25 +53,36 @@ That's it. Here you will find all the recently watched videos.
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to View Recently Watched Facebook Videos on Android and iOS
 
  It's very easy to view recently watched Facebook videos on an Android or iOS device. Here are the steps you need to follow:
 
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 Close
 
 1. Launch the Facebook app on your iOS or Android device and log in to your account.
@@ -84,17 +95,18 @@ Close
  You'll now see all the videos you recently watched on your Facebook app.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Filter Facebook Watched Videos by Date on Android and iOS
 
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
 
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
 Close
@@ -104,21 +116,15 @@ Close
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## Never Lose Facebook Videos Again
 
  The disappointment of watching an exciting video on your Facebook Watch page to accidentally refresh the selection and lose it forever is very common nowadays. Fortunately, you can easily find recently watched Facebook videos using the above method.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +133,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-exploring-3dr-by-himself-an-experts-opinion/"><u>[New] Exploring '3DR' By Himself – An Expert's Opinion</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-pinnacle-battles-the-leading-royale-gaming-list/"><u>[Updated] 2024 Approved Pinnacle Battles The Leading Royale Gaming List</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-maximize-engagement-discover-the-8-best-timers-for-android-and-iphone/"><u>[Updated] In 2024, Maximize Engagement Discover the 8 Best Timers for Android & iPhone</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-digital-advertising-to-the-streets-fbs-possible-shop-opening/"><u>Bringing Digital Advertising to the Streets: FB's Possible Shop Opening</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-an-online-persona-with-a-facebook-image/"><u>Creating an Online Persona with a Facebook Image</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/creating-content-with-purpose-balancing-job-and-youtube-for-2024/"><u>Creating Content with Purpose Balancing Job & YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-big-blunders-a-list-of-5-user-missteps/"><u>Facebook's Big Blunders: A List of 5 User Missteps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-tv-enabled-chromecast-showdown-how-it-measures-up-against-firetv/"><u>Google TV-Enabled Chromecast Showdown: How It Measures Up Against FireTV</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-bypass-iphone-x-passcode-easily-video-inside-by-drfone-ios/"><u>How to Bypass iPhone X Passcode Easily Video Inside</u></a></li>
+<li><a href="https://facebook.techidaily.com/linkedins-sneaky-approach-to-user-activity-and-app-availability/"><u>LinkedIn's Sneaky Approach to User Activity and App Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/multi-language-marketing-masterclass-for-effective-fb-strategies/"><u>Multi-Language Marketing Masterclass for Effective FB Strategies</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/quicktime-to-mp4-transformation-guide-best-practices-on-desktops-via-internet-and-mobile-devices/"><u>QuickTime to MP4 Transformation Guide: Best Practices on Desktops, via Internet, & Mobile Devices</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/seamless-media-transfer-expert-insights-on-using-macx-dvd-ripper-pro-to-safely-rip-protected-discs-onto-apple-gadgets/"><u>Seamless Media Transfer: Expert Insights on Using MacX DVD Ripper Pro to Safely Rip Protected Discs Onto Apple Gadgets</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-your-snapshots-from-public-eyes/"><u>Shielding Your Snapshots From Public Eyes</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-ties-7-innovative-ways-online-to-converge/"><u>Social Ties: 7 Innovative Ways Online to Converge</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-conversations-excluding-politics/"><u>Streamlining Conversations, Excluding Politics</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-wirelessly-linking-your-laptop-and-tv-using-an-hdmi-connection/"><u>Ultimate Guide: Wirelessly Linking Your Laptop and TV Using an HDMI Connection</u></a></li>
+</ul></div>
 

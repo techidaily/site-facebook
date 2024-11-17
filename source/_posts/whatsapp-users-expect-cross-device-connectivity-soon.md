@@ -1,7 +1,7 @@
 ---
 title: WhatsApp Users Expect Cross-Device Connectivity Soon
-date: 2024-09-01T03:53:13.434Z
-updated: 2024-09-02T03:53:13.434Z
+date: 2024-11-11T17:20:49.646Z
+updated: 2024-11-17T17:07:06.389Z
 tags:
   - facebook
 categories:
@@ -27,6 +27,13 @@ One of the messages from Zuckerberg reads as follows:
 
  WABetaInfo has made a name for itself by reverse engineering WhatsApp's beta releases in order to unearth evidence of unannounced and unreleased features. This has got to be the first time Zuckerberg has reached out to a blog to share what's coming to WhatsApp.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## WhatsApp to Gain Multi-Device Support Soon
 
  With multi-device support, he said, customers will be able to link a single WhatsApp account to up to four different devices. Furthermore, each device will be allowed to use WhatsApp even if the user doesn't have their smartphone on them.
@@ -40,8 +47,12 @@ One of the messages from Zuckerberg reads as follows:
  Multi-device support will be rolled out in a public WhatsApp beta within two months so people will be able to try out the feature ahead of launch. Zuckerberg has said that Facebook will consider opening up the WhatsApp beta to some more iOS users soon.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Is WhatsApp Working on an iPad App?
 
  Facebook for years resisted calls to create a native version of WhatsApp for Apple's iPad. Company executives would typically deflect any questions regarding WhatsApp for iPad by saying that the web interface, which works on any device, already offers that functionality.
@@ -53,14 +64,11 @@ One of the messages from Zuckerberg reads as follows:
 
 [WhatsApp recently rolled out disappearing messages](https://www.makeuseof.com/whatsapp-disappearing-mode-test/) in any chat thread on the iOS and Android app. With the new disappearing mode, Zuckerberg says, the WhatsApp experience "basically becomes ephemeral" as it turns on disappearing messages in all chat threads.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -69,4 +77,20 @@ One of the messages from Zuckerberg reads as follows:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-real-world-examples-for-2024/"><u>[New] Real-World Examples for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-civic-challenge-champions-premier-elections-videogames/"><u>[Updated] Civic Challenge Champions Premier Elections Videogames</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-how-to-use-picture-in-picture-on-chrome-on-all-platforms/"><u>[Updated] How to Use Picture in Picture on Chrome on All Platforms</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unlocking-vlcs-potential-for-mpeg-4-and-diverse-file-alterations/"><u>[Updated] Unlocking VLC's Potential for MPEG-4 and Diverse File Alterations</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-a-cyber-sleuth-unmasking-the-top-14-facebook-scams/"><u>Be a Cyber Sleuth: Unmasking the Top 14 Facebook Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-unique-digital-home-for-your-facebook-page/"><u>Crafting a Unique Digital Home for Your Facebook Page</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/creating-professional-videos-with-adobe-presenter-for-2024/"><u>Creating Professional Videos with Adobe Presenter for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-alert-discovering-9-social-indicators-of-a-break-in/"><u>Cybersecurity Alert! Discovering 9 Social Indicators of a Break-In</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-when-to-transform-your-social-media-icon/"><u>Deciding When to Transform Your Social Media Icon</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-google-nest-wi-fi-router-for-effortless-high-speed-home-networks/"><u>In-Depth Review of the Google Nest Wi-Fi Router for Effortless, High-Speed Home Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-connectivity-fbs-six-metaverse-marvels/"><u>Reimagining Connectivity: FB’s Six Metaverse Marvels</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-virtual-and-the-immersive-delineating-metavirtualitys-six-aspects/"><u>The Virtual and the Immersive: Delineating Metavirtuality's Six Aspects</u></a></li>
+<li><a href="https://fox-http.techidaily.com/zeroing-in-on-the-high-def-spectacle-samsungs-ue590-review/"><u>Zeroing in on the High-Def Spectacle - Samsung's UE590 Review</u></a></li>
+</ul></div>
 

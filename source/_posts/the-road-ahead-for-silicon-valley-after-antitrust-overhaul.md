@@ -1,7 +1,7 @@
 ---
 title: The Road Ahead for Silicon Valley After Antitrust Overhaul
-date: 2024-10-30T16:22:14.841Z
-updated: 2024-11-07T09:20:31.057Z
+date: 2024-11-15T17:38:19.268Z
+updated: 2024-11-17T17:53:28.279Z
 tags:
   - facebook
 categories:
@@ -34,16 +34,16 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
@@ -61,13 +61,6 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -80,13 +73,6 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -96,6 +82,13 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
  The bill specifies a "conflict of interest" that should be avoided at all costs; a platform owner's responsibility to the marketplace that they manage conflicts deeply with that same platform owner's desire to out-sell the vendors that it represents.
 
 In essence: leave the selling to the sellers.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
@@ -108,15 +101,22 @@ In essence: leave the selling to the sellers.
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -151,21 +151,18 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-sprint-to-stunning-photos-in-win-11-edition/"><u>[Updated] Sprint to Stunning Photos in Win 11 Edition</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1725290112861-mp3-winxvideo-ai/"><u>革新的MP3ファイル変換手法 : Winxvideo AIが解説する方法</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-online-anonymity-metacrypt-or-faceboss-for-quest/"><u>Assessing Online Anonymity: Metacrypt or Faceboss for Quest?</u></a></li>
-<li><a href="https://facebook.techidaily.com/coding-excellence-boosted-by-facebook-rust-association/"><u>Coding Excellence Boosted by Facebook-Rust Association</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/device-unlock-realme-by-drfone-android-unlock-android-unlock/"><u>Device unlock Realme</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-communicate-without-relying-on-fb-messenger/"><u>How to Communicate Without Relying on FB Messenger</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Google Pixel Fold | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-tecno-phantom-v-fold-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Tecno Phantom V Fold</u></a></li>
-<li><a href="https://facebook.techidaily.com/insta-collage-creation-tips-for-engaging-online-portfolits/"><u>Insta-Collage Creation: Tips for Engaging Online Portfolits</u></a></li>
-<li><a href="https://facebook.techidaily.com/instantaneous-insights-10-lightweight-android-helpers/"><u>Instantaneous Insights: 10 Lightweight Android Helpers</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/migrate-your-data-effortlessly-how-to-relocate-hard-drive-to-a-new-windows-11-computer/"><u>Migrate Your Data Effortlessly: How to Relocate Hard Drive to a New Windows 11 Computer</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/premium-flowbite-admin-panel-soft-ui-with-advanced-features-using-tailwind-css-by-creative-tim/"><u>Premium Flowbite Admin Panel: Soft UI with Advanced Features Using Tailwind CSS by Creative Tim</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-science-behind-catchy-posts-for-higher-fb-engagement/"><u>The Science Behind Catchy Posts for Higher FB Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-fb-photo-selection/"><u>The Ultimate Guide to FB Photo Selection</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ate-list-free-best-ios-video-editor-tools/"><u>Ultimate List Free, Best iOS Video Editor Tools</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-video-legends-youtubed-for-millions-for-2024/"><u>Viral Video Legends YouTubed for Millions for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-redefining-cinematic-exploration-via-vr/"><u>[New] In 2024, Redefining Cinematic Exploration via VR</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-dive-into-digital-friendship-start-your-facebook-journey-for-2024/"><u>[Updated] Dive Into Digital Friendship Start Your Facebook Journey for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-concealed-expressions-in-messenger-correspondence/"><u>Deciphering Concealed Expressions in Messenger Correspondence</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-social-medias-sustainability-the-case-for-fb/"><u>Deciphering Social Media’s Sustainability: The Case for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-facebooks-revenue-sharing-for-melodies/"><u>Demystifying Facebook’s Revenue Sharing for Melodies</u></a></li>
+<li><a href="https://facebook.techidaily.com/differentiating-between-profile-and-username-ids-on-networks/"><u>Differentiating Between Profile and Username IDs on Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/download-private-fb-memories-without-breaking-rules/"><u>Download Private FB Memories Without Breaking Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-strategies-to-connect-with-clients-on-facebook-professionally/"><u>Effective Strategies to Connect with Clients on Facebook Professionally</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Vivo V30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/inquiring-into-the-unconventional-choices-in-nw-ws623/"><u>Inquiring Into the Unconventional Choices in NW-WS623</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/telefonfunktion-nach-ios-16-update-ist-ihr-iphone-noch-funktionsfahig/"><u>Telefonfunktion Nach iOS 16-Update: Ist Ihr iPhone Noch Funktionsfähig?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/universal-approach-how-to-record-any-youtube-stream-on-different-devices-for-2024/"><u>Universal Approach How To Record Any YouTube Stream on Different Devices for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/zipped-source-sorted-srt-converting-with-ease/"><u>Zipped Source, Sorted Srt Converting with Ease</u></a></li>
 </ul></div>
 

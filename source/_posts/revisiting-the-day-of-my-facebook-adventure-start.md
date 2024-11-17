@@ -1,7 +1,7 @@
 ---
 title: Revisiting the Day of My Facebook Adventure Start
-date: 2024-09-01T03:49:49.472Z
-updated: 2024-09-02T03:49:49.472Z
+date: 2024-11-12T18:01:24.638Z
+updated: 2024-11-17T16:25:44.187Z
 tags:
   - facebook
 categories:
@@ -73,6 +73,13 @@ Close
 
  This is the best method if you no longer have access to your Facebook account or you recently created your account—meaning the welcome email is easily accessible. But if you regularly delete your emails, you won't be able to check your Facebook account creation date via this method.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Find How Old Your Facebook Account Is Using a Profile Picture
 
  Facebook usually asks you to upload a profile picture as soon as you’ve finished creating an account. This means the upload date of your first profile picture should be your Facebook account creation date.
@@ -92,13 +99,14 @@ Close
 ![first profile picture on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/first-profile-picture-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  That date should be the day you made your Facebook profile or very close to that date.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
  Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily[find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
@@ -107,44 +115,43 @@ Close
 
 ![facebook activity log menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-activity-log-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
  Then select**Your posts, check-ins, photos and videos** .
 
 ![posts history on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/posts-history-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Now scroll down to the oldest post on the list. To make the list shorter, use the**Date** filter to select the oldest possible date for posts.
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
  However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Find Out When You Joined Facebook
 
  If you ever want to know when your Facebook account was created, the methods outlined above should help you find that information.
 
  Keep in mind different methods have different accuracy levels; use the first method if you can.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,4 +160,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-from-vision-to-reality-benqs-masterpiece-the-bl2711u-monitor-review/"><u>[New] 2024 Approved From Vision to Reality BenQ’s Masterpiece, the BL2711U Monitor Review</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-securely-sharing-video-on-youtube-with-settings/"><u>[New] In 2024, Securely Sharing Video on YouTube with Settings</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-complete-curve-editing-manual-for-photoshop/"><u>[Updated] 2024 Approved The Complete Curve Editing Manual for Photoshop</u></a></li>
+<li><a href="https://facebook.techidaily.com/acquire-verified-mark-via-purchased-status/"><u>Acquire Verified Mark via Purchased Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-decline-iphone-users-unite/"><u>App Tracking Decline: IPhone Users Unite</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-innovation-essential-unseen-tech-news/"><u>Behind the Scenes of Innovation: Essential, Unseen Tech News</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-hype-towards-clarity-new-perspective-on-the-social-media-scandal/"><u>Beyond Hype, Towards Clarity: New Perspective on The Social Media Scandal</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-brands-with-a-precise-facebook-recommendation-system/"><u>Boosting Brands with a Precise Facebook Recommendation System</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-up-with-spotify-on-facebook-procedure-here/"><u>Breaking Up with Spotify on Facebook: Procedure Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-the-future-of-online-communities-on-fb/"><u>Charting the Future of Online Communities on FB</u></a></li>
+<li><a href="https://fox-http.techidaily.com/closer-look-techniques-for-minecraft-exploration-for-2024/"><u>Closer Look Techniques for Minecraft Exploration for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/darkening-skies-predicted-bad-press-for-fb/"><u>Darkening Skies: Predicted Bad Press for FB</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/effective-study-strategies-avoiding-common-pitfalls-with-chatgpt/"><u>Effective Study Strategies: Avoiding Common Pitfalls with ChatGPT</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-honor-x7b-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Honor X7b PC | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-data-from-apple-iphone-15-plus-to-new-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How To Transfer Data from Apple iPhone 15 Plus to New iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/rx-fanfare-update-pack-for-2024/"><u>RX Fanfare Update Pack for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/your-iphones-vanished-app-effective-strategies-for-finding-whats-missing/"><u>Your iPhone's Vanished App: Effective Strategies for Finding What's Missing</u></a></li>
+</ul></div>
 

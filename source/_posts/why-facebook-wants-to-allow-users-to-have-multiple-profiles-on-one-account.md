@@ -1,7 +1,7 @@
 ---
 title: Why Facebook Wants to Allow Users to Have Multiple Profiles on One Account
-date: 2024-09-01T03:52:17.315Z
-updated: 2024-09-02T03:52:17.315Z
+date: 2024-11-10T16:09:17.336Z
+updated: 2024-11-17T17:39:33.063Z
 tags:
   - facebook
 categories:
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/e8207335add140aa41173bc907c1a473d602bd8fa
 
  Your overall account will also remain subject to Facebook's disciplinary procedures should any of the profiles violate Facebook's rules.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is Facebook Now Allowing Multiple Profiles?
 
  According to Lam, the feature will "help people tailor their experience based on interests and relationships."
@@ -48,22 +55,29 @@ thumbnail: https://thmb.techidaily.com/e8207335add140aa41173bc907c1a473d602bd8fa
  Multiple profiles may help Facebook to stop[bleeding young users](https://www.makeuseof.com/why-facebook-is-losing-users/) to rivals like TikTok, who don't necessarily want their parents, relatives, strangers, or co-workers to see everything they are doing online with their friends.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## A Boost to Privacy
 
  This new feature, when fully rolled out, should help users experience Facebook more discreetly, which should be a boost to online privacy.
 
  Facebook hasn't announced when the test will begin, which countries other than the US have been selected for the test, or when this feature will be globally available.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -72,4 +86,19 @@ thumbnail: https://thmb.techidaily.com/e8207335add140aa41173bc907c1a473d602bd8fa
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-from-end-to-start-annoying-yourself-with-yt-playlist-upside-down/"><u>[New] In 2024, From End to Start Annoying Yourself with YT Playlist Upside-Down</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-influencer-innovation-the-top-5-instagram-tactics-for-maximum-impact/"><u>[New] Influencer Innovation The Top 5 Instagram Tactics for Maximum Impact</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-elevated-sound-navigation-system-android-edition/"><u>[Updated] 2024 Approved Elevated Sound Navigation System, Android Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-pazera-unchained-master-your-music-extraction-techniques/"><u>[Updated] Pazera Unchained Master Your Music Extraction Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/brevity-and-impact-writing-memorable-facebook-narratives/"><u>Brevity and Impact: Writing Memorable Facebook Narratives</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-resolve-the-windows-10-error-code-0x80070426/"><u>How to Resolve the Windows 10 Error Code 0X80070426</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-optimize-visibility-choosing-the-right-hashtags-today/"><u>In 2024, Optimize Visibility Choosing the Right Hashtags Today</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-the-art-of-auditory-identity-crafting-your-own-ringtones-and-sounds-for-android/"><u>In 2024, The Art of Auditory Identity Crafting Your Own Ringtones & Sounds for Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/offline-reality-gain-or-loss-perspectives/"><u>Offline Reality: Gain or Loss Perspectives?</u></a></li>
+<li><a href="https://facebook.techidaily.com/through-a-screen-analyzing-modern-lifes-negative-effects/"><u>Through a Screen: Analyzing Modern Life's Negative Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-hubs-for-seeking-freelance-opportunities/"><u>Top 5 Hubs for Seeking Freelance Opportunities</u></a></li>
+<li><a href="https://facebook.techidaily.com/users-seek-sanctuary-from-iphones-tracks/"><u>Users Seek Sanctuary From iPhones’ Tracks</u></a></li>
+</ul></div>
 

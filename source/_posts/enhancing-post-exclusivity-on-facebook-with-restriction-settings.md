@@ -1,7 +1,7 @@
 ---
 title: Enhancing Post Exclusivity on Facebook with Restriction Settings
-date: 2024-11-02T00:21:01.378Z
-updated: 2024-11-06T16:26:18.153Z
+date: 2024-11-16T17:03:11.347Z
+updated: 2024-11-17T16:17:55.042Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
  Keep in mind that adding someone to your Restricted list is not the same as[blocking them on Facebook](https://www.makeuseof.com/how-to-block-facebook/) . Blocking someone prevents them from interacting with you at all; the Restricted list only hides your posts from them.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to See Your Restricted List on Facebook
@@ -48,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Restricted List](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-restricted-list-2023.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You can also add a friend to the Restricted list on their Facebook page. Visit a profile on Facebook, click the**Friends** button, and click**Edit Friend List** . Here, check the**Restricted** box to accomplish the same goal.
@@ -59,19 +59,19 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Add to Restricted list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-add-to-restricted.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  People won't get an alert when you add them to your Restricted list. But if they're knowledgeable about how Facebook works (and depending on how much you post), they might notice that they don't see as much content from you anymore. Because of this, you may wish to add someone to your Restricted list right after friending them.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Keep Your Friends at a Safe Distance
@@ -95,24 +95,16 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-building-your-brand-setting-up-a-business-on-instagram-for-2024/"><u>[New] Building Your Brand Setting Up a Business on Instagram for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-fast-track-to-excellent-valorant-thumbnails-artistry/"><u>[New] In 2024, Fast-Track to Excellent Valorant Thumbnails Artistry</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-harnessing-the-power-of-film-in-educational-practice/"><u>[Updated] Harnessing the Power of Film in Educational Practice</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/comprehensively-reviewing-top-10-no-cost-video-communication-apps-for-professional-and-academic-needs-for-2024/"><u>Comprehensively Reviewing Top 10 No-Cost Video Communication Apps for Professional and Academic Needs for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-wellbeing-alerts-youth-advised-to-limit-instagram/"><u>Digital Wellbeing Alerts: Youth Advised to Limit Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/enforcing-teenager-friendly-security-protocols-on-fb/"><u>Enforcing Teenager-Friendly Security Protocols on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/hacktivism-halts-facebooks-happy-scores-sets-stars-at-1/"><u>Hacktivism Halts Facebook's Happy Scores, Sets Stars at 1</u></a></li>
-<li><a href="https://techidaily.com/how-to-update-apple-iphone-14-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 14 without Losing Anything? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimal-online-opportunities-choosing-businesss-favorites/"><u>Optimal Online Opportunities: Choosing Business's Favorites</u></a></li>
-<li><a href="https://facebook.techidaily.com/portal-go-facebooks-move-towards-mobile-accessibility/"><u>Portal Go: Facebook's Move Towards Mobile Accessibility</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/reevaluating-linkedins-prestige-is-plus-worth-the-investment/"><u>Reevaluating LinkedIn's Prestige: Is Plus Worth the Investment?</u></a></li>
-<li><a href="https://fox-that.techidaily.com/reviving-your-iphones-aol-mail-service-discover-these-6-fixes-now/"><u>Reviving Your iPhone's AOL Mail Service: Discover These 6 Fixes Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/simplified-feed-selection-a-new-era-of-personalized-content/"><u>Simplified Feed Selection - A New Era of Personalized Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/single-word-multiple-ways-facebook-introduces-style-transforming-ai/"><u>Single Word, Multiple Ways: Facebook Introduces Style Transforming AI</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-instructions-for-activatingdeactivating-network-discovery-feature-in-windows-10/"><u>Step-by-Step Instructions for Activating/Deactivating Network Discovery Feature in Windows 10</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-companies-held-accountable-the-battle-against-misleading-social-media-ads/"><u>Tech Companies Held Accountable: The Battle Against Misleading Social Media Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-definitive-manual-for-gathering-all-past-facebook-data/"><u>The Definitive Manual for Gathering All Past Facebook Data</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/transition-du-disque-dur-vers-ssd-sur-windows-11-etape-par-etape-sans-reinstaller-le-systeme-dexploitation/"><u>Transition Du Disque Dur Vers SSD Sur Windows 11, Étape Par Étape, Sans Réinstaller Le Système D'exploitation</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/unlock-iphone-14-pro-with-forgotten-passcode-different-methods-you-can-try-drfone-by-drfone-ios/"><u>Unlock iPhone 14 Pro With Forgotten Passcode Different Methods You Can Try | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebook-follows-and-unfollows-tips-for-effective-use/"><u>Decoding Facebook Follows and Unfollows: Tips for Effective Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-fb-picture-visibility-options/"><u>Decoding FB Picture Visibility Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-deception-how-design-undermines-privacy/"><u>Digital Deception: How Design Undermines Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-benefits-of-facebooks-touch-features/"><u>Discovering the Benefits of Facebook's Touch Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-strategies-reactivating-locked-out-fb-accounts/"><u>Effective Strategies: Reactivating Locked-Out Fb Accounts</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722971370458-get-your-free-techkey-bluetooth-drivers-for-win-10-7-and-8-instant-download/"><u>Get Your Free Techkey Bluetooth Drivers for Win 10, 7 & 8 - Instant Download!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-create-content-that-goes-viral-on-instagram-top-tips/"><u>How to Create Content that Goes Viral on Instagram (Top Tips)</u></a></li>
+<li><a href="https://fox-that.techidaily.com/immediate-remedies-to-reactivate-emoji-prediction-feature-on-ios-devices/"><u>Immediate Remedies to Reactivate Emoji Prediction Feature on iOS Devices</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-30-free-mac-speech-to-text-software-youve-missed/"><u>Top 30 Free Mac Speech-to-Text Software You've Missed</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Exploring Telegram’s Popularity During Facebook Downtime
-date: 2024-09-01T03:50:13.304Z
-updated: 2024-09-02T03:50:13.304Z
+date: 2024-11-12T17:00:24.618Z
+updated: 2024-11-17T16:23:24.488Z
 tags:
   - facebook
 categories:
@@ -35,6 +35,13 @@ But why did Telegram benefit so much more than any of its rivals?
 
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
 
  Features such as secret chats, self-destructing messages, unlimited storage, larger group chats, multi-platform support, multi-session support, channels, a way to save messages, customizable bots, message scheduling, and[many more features](https://www.makeuseof.com/tag/useful-telegram-features/) have all seen it chip away at WhatsApp's userbase over the last few years.
@@ -42,8 +49,12 @@ But why did Telegram benefit so much more than any of its rivals?
  All of these features have helped it become the de facto number two behind WhatsApp in many people's minds, so installing it during a time of crisis was a no-brainer.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How Important Is This for Telegram?
 
  Most significantly for Telegram, Facebook's downtime and the rush of refugees that followed marks another major shift in the way people view the app as a service.
@@ -57,8 +68,12 @@ But why did Telegram benefit so much more than any of its rivals?
  It is arguably the first time that any WhatsApp competitor has been able to make that claim, and it suddenly makes the Facebook-owned app's hegemony look a lot less secure.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## It Wasn't All Perfect for Telegram
 
  While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In[a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
@@ -72,22 +87,23 @@ But why did Telegram benefit so much more than any of its rivals?
  Breaking WhatsApp's dominance is already a herculean task. If Telegram's app is not functioning when people need it, the progress it has been enjoying recently could be irrevocably damaged.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Can Telegram Continue Its Momentous Rise?
 
  While 70 million new users in a day is impressive, it would be folly to believe that they will all continue to use the service now that WhatsApp and Messenger are back online.
 
  The critical thing from Telegram's perspective is that the app is now installed on more people's handsets than ever before. The company now faces the challenge of retaining them as active users. Only time will tell whether that actually happens.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -96,4 +112,23 @@ But why did Telegram benefit so much more than any of its rivals?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-from-blurred-to-bold-a-comprehensive-approach-to-buying-high-resolution-monitors/"><u>[New] From Blurred to Bold A Comprehensive Approach to Buying High-Resolution Monitors</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-capture-and-share-saving-your-ppt-sessions/"><u>[Updated] In 2024, Capture and Share Saving Your PPT Sessions</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-active-recorder-assessment-industry-standards-met/"><u>2024 Approved Active Recorder Assessment Industry Standards Met?</u></a></li>
+<li><a href="https://facebook.techidaily.com/adjust-facebook-friend-views-privacy-control/"><u>Adjust Facebook Friend Views Privacy Control</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-zte-nubia-z60-ultra-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best ZTE Nubia Z60 Ultra Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-numbers-why-we-shouldnt-sweat-facebook-users/"><u>Beyond Numbers: Why We Shouldn't Sweat Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparative-insight-metaai-vs-ordinary-bot-systems/"><u>Comparative Insight: MetaAI vs Ordinary Bot Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-devices-smartphone-and-television/"><u>Connecting Devices: Smartphone & Television</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-kings-discovering-todays-most-trending-digital-places/"><u>Connectivity Kings: Discovering Today's Most Trending Digital Places</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptic-compliments-concealing-your-facebook-like/"><u>Cryptic Compliments: Concealing Your Facebook Like</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-down-excessive-facebook-communications/"><u>Cutting Down Excessive Facebook Communications</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/elite-display-decoded-examining-samsungs-ue590-monitor-for-2024/"><u>Elite Display Decoded Examining Samsung's UE590 Monitor for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-anonymous-footage-blurring-private-sections-in-video/"><u>In 2024, Anonymous Footage Blurring Private Sections in Video</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/navigating-night-time-captures-with-iphone/"><u>Navigating Night-Time Captures with iPhone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-essential-guide-to-webcam-assisted-presentations/"><u>The Essential Guide to Webcam-Assisted Presentations</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-vllo-on-mac-a-guide-to-downloads-and-alternatives/"><u>Updated In 2024, VLLO on Mac A Guide to Downloads and Alternatives</u></a></li>
+</ul></div>
 

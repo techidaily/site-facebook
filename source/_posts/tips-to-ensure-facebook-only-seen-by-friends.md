@@ -1,7 +1,7 @@
 ---
 title: Tips to Ensure Facebook Only Seen by Friends
-date: 2024-11-04T18:48:51.148Z
-updated: 2024-11-07T11:55:18.885Z
+date: 2024-11-14T16:03:00.880Z
+updated: 2024-11-17T16:27:46.061Z
 tags:
   - facebook
 categories:
@@ -40,10 +40,10 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Lock Your Facebook Profile Down
@@ -70,16 +70,10 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Change Your Facebook Profile Discovery Settings
@@ -97,23 +91,10 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Change Your Facebook Post Settings
@@ -128,6 +109,13 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 4. Choose the**Friends** option in the**drop-down menu** . You can also choose**Specific friends** or exclude some people by selecting the**Friends except** option. Click**Close** when you're done.
 
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Keep a Low Profile on Facebook
 
@@ -150,20 +138,17 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/rtisans-shaping-virtual-marvel-universes-for-2024/"><u>[New] Artisans Shaping Virtual Marvel Universes for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-essential-themes-and-backdrops-for-a-stylish-laptop/"><u>[New] Essential Themes & Backdrops for a Stylish Laptop</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-htc-vive-review-the-epitome-of-ultimate-virtual-reality-playtime/"><u>[New] HTC Vive Review The Epitome of Ultimate Virtual Reality Playtime</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-amplify-your-influence-an-instagram-guide/"><u>[New] In 2024, Amplify Your Influence An Instagram Guide</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-10-best-free-photo-collage-apps-to-combine-photos-on-iphone/"><u>[Updated] 10 Best FREE Photo Collage Apps to Combine Photos on iPhone</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-zte-blade-a73-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For ZTE Blade A73 5G Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-your-feed-clean-tips-to-delete-fb-comments/"><u>Keeping Your Feed Clean: Tips to Delete Fb Comments</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/keyboard-shortcuts-for-crafting-hearts-on-your-screen-easily/"><u>Keyboard Shortcuts for Crafting Hearts on Your Screen Easily</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-in-immediate-access-to-separate-facebook-profiles/"><u>Mastery in Immediate Access to Separate Facebook Profiles</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-premiere-pro-or-vegas-pro-which-video-editor-reigns-supreme-in-2024/"><u>New Premiere Pro or Vegas Pro Which Video Editor Reigns Supreme , In 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-privacy-metas-image-control-plan/"><u>Protecting Privacy: Meta's Image Control Plan</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionize-your-workflow-with-facebooks-8-core-features/"><u>Revolutionize Your Workflow with Facebook's 8 Core Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-blueprint-of-engaging-with-facebook-community-groups/"><u>The Blueprint of Engaging with Facebook Community Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-productivity-explore-8-must-have-crowdfire-functions/"><u>Unlock Productivity: Explore 8 Must-Have Crowdfire Functions</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-extends-grace-period-for-new-privacy-acceptance/"><u>WhatsApp Extends Grace Period for New Privacy Acceptance</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-explore-the-ultimate-selection-of-transition-apps/"><u>[New] 2024 Approved Explore the Ultimate Selection of Transition Apps</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-how-to-find-your-niche-and-style-a-starters-guide-high-cpm/"><u>[New] How to Find Your Niche and Style - a Starter's Guide [High CPM]</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-understanding-and-assessing-cloud-cost-variability/"><u>[New] Understanding & Assessing Cloud Cost Variability</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-freeze-the-action-find-these-top-9-gif-recipes-on-windows-pc/"><u>2024 Approved Freeze the Action! Find These Top 9 GIF Recipes on Windows PC</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/adding-movies-to-your-playlist-an-intuitive-process-for-youtube-users/"><u>Adding Movies to Your Playlist An Intuitive Process for YouTube Users</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-samsung-galaxy-s24-ultra-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Samsung Galaxy S24 Ultra Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-your-photos-secret-facebooks-privacy-haven/"><u>Making Your Photos Secret: Facebook's Privacy Haven</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-discretion-in-social-media-building-an-exclusive-fb-group/"><u>Mastering Discretion in Social Media: Building an Exclusive FB Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-values-of-virtual-networks-top-9-findings/"><u>The Hidden Values of Virtual Networks: Top 9 Findings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-storm-ahead-for-facebook-news/"><u>The Storm Ahead for Facebook News</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-essential-crowdflower-tools-for-effective-marketing/"><u>Top 8 Essential CrowdFlower Tools for Effective Marketing</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-itel-p55-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Itel P55 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
 

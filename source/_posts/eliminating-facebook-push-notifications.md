@@ -1,7 +1,7 @@
 ---
 title: Eliminating Facebook Push Notifications
-date: 2024-11-04T02:52:36.240Z
-updated: 2024-11-06T17:35:26.978Z
+date: 2024-11-11T17:06:33.469Z
+updated: 2024-11-17T17:46:45.701Z
 tags:
   - facebook
 categories:
@@ -50,13 +50,6 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
 
 ![facebook notification mark read](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-mark-read.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  To mark all of your Facebook notifications as read, follow the guide below:
 
 1. Head to**Facebook.com** and log into your account.
@@ -86,16 +79,16 @@ Follow the steps below to learn about the process on the web app:
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Turn Off Facebook Notifications by Category
 
 ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -118,16 +111,16 @@ Follow the steps below to learn about the process on the web app:
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Stop Facebook Notifications on Android
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
 
@@ -142,6 +135,13 @@ Close
 5. Tap on**Notifications** .
 6. Slide the toggle next to**Show notifications** into the**Off** position.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Stop Facebook Notifications on iOS
 
  If you have an iOS device, follow these steps to stop Facebook notifications:
@@ -152,10 +152,10 @@ Close
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## More Ways to Make Facebook Work for You
@@ -181,22 +181,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-best-practices-in-fb-advertising-leading-video-trends/"><u>[Updated] 2024 Approved Best Practices in FB Advertising Leading Video Trends</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-best-mac-screen-capture-tools/"><u>2024 Approved Best Mac Screen Capture Tools</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/counteracting-chatgpts-memory-retention-for-private-talks/"><u>Counteracting ChatGPT’s Memory Retention for Private Talks</u></a></li>
-<li><a href="https://facebook.techidaily.com/customize-your-scroll-reducing-instagram-and-fb-suggestions/"><u>Customize Your Scroll: Reducing Instagram and FB Suggestions</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-financial-implications-of-being-verified-by-meta/"><u>Deciphering the Financial Implications of Being Verified by Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/eyes-wide-open-preparing-for-bad-news-on-fb/"><u>Eyes Wide Open: Preparing for Bad News on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/facing-fact-what-does-facebooks-new-data-tell-us/"><u>Facing Fact: What Does Facebook’s New Data Tell Us?</u></a></li>
-<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-motorola-moto-g73-5g-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Motorola Moto G73 5G Devices | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/free-conversion-of-3gpp-files-to-cu3gp-format-online-with-movavi/"><u>Free Conversion of 3GPP Files to Cu3gp Format - Online with Movavi</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/gopro-hero5-experience-recap/"><u>GoPro Hero5 Experience Recap</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-unbrick-a-dead-tecno-spark-20-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/leading-personalities-sparking-tech-disputes/"><u>Leading Personalities Sparking Tech Disputes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mastering-finnish-language-from-anywhere-better-way/"><u>Mastering Finnish Language From Anywhere, Better Way!</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-tech-captures-word-meanings-from-photo-images/"><u>New Tech Captures Word Meanings From Photo Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-unstoppable-rise-over-forum-culture/"><u>Social Media's Unstoppable Rise Over Forum Culture</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/subtracting-text-srt-to-sub-transformation-tips-for-2024/"><u>Subtracting Text SRT to SUB Transformation Tips for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unseen-engagement-hide-your-affection-online/"><u>Unseen Engagement: Hide Your Affection Online</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-achieving-broadcast-excellence-from-recordings-to-livestreams-on-obs/"><u>[New] 2024 Approved Achieving Broadcast Excellence From Recordings to Livestreams on OBS</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-skys-finest-cameras-clash-dji-air-2-vs-gopro-hero9-k4/"><u>[New] 2024 Approved Sky's Finest Cameras Clash DJi Air 2 VS GoPro HERO9 K4</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-navigating-the-best-instagram-performance-insight-platforms/"><u>[New] In 2024, Navigating the Best Instagram Performance Insight Platforms</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/clear-clutter-free-of-charge-boost-your-system-with-a-cleanup-of-removed-game-installations/"><u>Clear Clutter Free of Charge: Boost Your System with a Cleanup of Removed Game Installations</u></a></li>
+<li><a href="https://driver-install.techidaily.com/compact-file-essential-asus-driver-update-tool-win/"><u>Compact File: Essential ASUS Driver Update Tool (Win)</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-why-telegram-became-a-lifeline-during-facebook-blackout/"><u>Deciphering Why Telegram Became a Lifeline During Facebook Blackout</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-and-correcting-facebooks-common-complaints/"><u>Decoding & Correcting FaceBook's Common Complaints</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-features-in-facebooks-support-portal/"><u>Decoding the Features in Facebook's Support Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/deletion-or-memories-managing-late-loved-ones-virtual-footprints/"><u>Deletion or Memories - Managing Late Loved Ones' Virtual Footprints</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-self-care-how-to-step-away-from-fb/"><u>Digital Self-Care: How to Step Away From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-solitude-embracing-a-no-social-media-lifestyle/"><u>Digital Solitude: Embracing a No-Social Media Lifestyle</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-financial-gains-for-artists-on-facebooks-new-service/"><u>Discovering Financial Gains for Artists on Facebook’s New Service</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722969395900-download-dolbys-new-audio-drivers-compatibility-updates-for-windows-11-10-and-81-available-now/"><u>Download Dolby's New Audio Drivers: Compatibility Updates for Windows 11, 10, and 8.1 Available Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-contact-addition-in-facebooks-messaging-service/"><u>Effortless Contact Addition in Facebook's Messaging Service</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-nokia-c22-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Nokia C22 Quickly | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-nubia-red-magic-8s-pro-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Nubia Red Magic 8S Pro to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://win-trending.techidaily.com/reviving-essential-data-mastering-the-restoration-of-key-files-and-configurations-with-windows-backup-on-your-fresh-computer-setup/"><u>Reviving Essential Data: Mastering the Restoration of Key Files & Configurations with Windows Backup on Your Fresh Computer Setup</u></a></li>
 </ul></div>
 

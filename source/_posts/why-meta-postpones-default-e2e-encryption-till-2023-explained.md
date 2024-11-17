@@ -1,7 +1,7 @@
 ---
 title: Why Meta Postpones Default E2E Encryption Till 2023 Explained
-date: 2024-10-31T18:05:28.670Z
-updated: 2024-11-07T09:43:49.875Z
+date: 2024-11-10T16:37:24.722Z
+updated: 2024-11-17T17:53:02.510Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
@@ -54,10 +54,16 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
@@ -83,19 +89,18 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/verage-earnings-per-view-whats-the-income-for-youtubers-per-ad-playback-in-2024/"><u>[New] Average Earnings Per View What's the Income for YouTubers per Ad Playback, In 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-mediameld-mixer/"><u>[New] MediaMeld Mixer</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-achieving-seamless-background-blurs-in-video-calls/"><u>[Updated] Achieving Seamless Background Blurs in Video Calls</u></a></li>
-<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-realme-gt-3-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Realme GT 3 Isnt Compatible | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/beware-potential-data-misuse-on-your-devices/"><u>Beware! Potential Data Misuse on Your Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/connect-more-with-a-click-adding-contacts-in-fb-messenger/"><u>Connect More with a Click: Adding Contacts in FB Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-tag-someone-on-facebook-3-different-ways/"><u>How to Tag Someone on Facebook: 3 Different Ways</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-tecno-spark-go-2023-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Tecno Spark Go (2023) FRP Bypass Instantly</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Apple iPhone XR? | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-apple-id-and-apple-password-from-iphone-13-mini-by-drfone-ios/"><u>In 2024, How to Reset Apple ID and Apple Password From iPhone 13 mini</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/integrate-smartly-chatgpt-and-its-plugins-guide/"><u>Integrate Smartly: ChatGPT and Its Plugins Guide</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-how-to-add-audio-to-quicktime-video-files/"><u>New How to Add Audio to QuickTime Video Files</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-power-of-pithy-posting-a-list-of-30-key-smarts-for-online-success/"><u>The Power of Pithy Posting: A List of 30 Key SMARTs for Online Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-happens-to-connections-post-social-deletion/"><u>What Happens to Connections Post-Social Deletion?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-comprehensive-analysis-top-budget-friendly-video-calling-tools-iphones-and-androids/"><u>[New] Comprehensive Analysis Top Budget-Friendly Video Calling Tools - iPhones & Androids</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-magical-voice-change-tools-for-efficient-calls/"><u>[New] Magical Voice Change Tools for Efficient Calls</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-avoiding-drone-pitfalls-key-factors-for-a-smart-purchase/"><u>[Updated] 2024 Approved Avoiding Drone Pitfalls Key Factors for a Smart Purchase</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-downloading-igtv-made-simple-iphone-and-android-users-bible-for-2024/"><u>[Updated] Downloading IGTV Made Simple IPhone & Android Users' Bible for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-designing-powerful-youtube-logos/"><u>[Updated] The Ultimate Guide to Designing Powerful YouTube Logos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-unlock-creativity-the-best-collection-of-free-slide-show-patterns/"><u>2024 Approved Unlock Creativity The Best Collection of Free Slide Show Patterns</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/audit-your-google-docs-learn-the-techniques-for-spotting-who-checked-out-your-work/"><u>Audit Your Google Docs: Learn the Techniques for Spotting Who Checked Out Your Work</u></a></li>
+<li><a href="https://facebook.techidaily.com/decluttering-discussions-keep-politics-at-bay-on-facebook/"><u>Decluttering Discussions: Keep Politics at Bay on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-music-spotify-miniplayer-in-facebook-app/"><u>Dive Into Music: Spotify Miniplayer in Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/dominion-of-thought-metas-global-ai-titan-emerges/"><u>Dominion of Thought: Meta's Global AI Titan Emerges</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-strategies-for-social-media-recruitment/"><u>Effective Strategies for Social Media Recruitment</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-image-innovation-at-your-fingertips-applications-for-photo-text-adjustments/"><u>In 2024, Image Innovation at Your Fingertips Applications for Photo Text Adjustments</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-latest-on-youtube-ad-income-guidelines/"><u>In 2024, The Latest on YouTube Ad Income Guidelines</u></a></li>
 </ul></div>
 

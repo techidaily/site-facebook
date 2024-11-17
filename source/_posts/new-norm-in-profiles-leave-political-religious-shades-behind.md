@@ -1,7 +1,7 @@
 ---
 title: "New Norm in Profiles: Leave Political, Religious Shades Behind"
-date: 2024-09-01T03:49:30.537Z
-updated: 2024-09-02T03:49:30.537Z
+date: 2024-11-11T17:27:04.549Z
+updated: 2024-11-17T16:53:05.467Z
 tags:
   - facebook
 categories:
@@ -39,18 +39,22 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 
  But the new update seems to take a step further, removing this information from profiles completely.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Say Goodbye to Sensitive Information Fields on Facebook
 
  How this update will play out in terms of targeted advertising remains to be seen. While the removal of this information prevents users from directly noting this information in profile fields, advertisers still have plenty of other ways to target you according to these categories by using other data points.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -59,8 +63,22 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-from-still-image-to-live-feed-going-live-on-tiktok-via-computer-for-2024/"><u>[New] From Still Image to Live Feed Going Live on TikTok Via Computer for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-hero5-in-focus-advanced-photography-and-video-guide-for-gopro/"><u>[New] Hero5 in Focus Advanced Photography & Video Guide for GoPro</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-story-hacks-your-path-to-prominence/"><u>[New] In 2024, Instagram Story Hacks Your Path to Prominence</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-affordable-strategies-for-engaging-youtube-opening-and-end-titles/"><u>[Updated] 2024 Approved Affordable Strategies for Engaging YouTube Opening & End Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-loses-ground-among-iphone-fans/"><u>App Tracking Loses Ground Among iPhone Fans</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-you-safe-from-personal-data-leakage-via-fb-apps/"><u>Are You Safe From Personal Data Leakage Via FB Apps?</u></a></li>
+<li><a href="https://facebook.techidaily.com/bold-leaders-in-technology-clashing-over-visions/"><u>Bold Leaders in Technology Clashing Over Visions</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-securityfacebookmailcom-be-trusted-for-fb-safety/"><u>Can Security@facebookmail.com Be Trusted for FB Safety?</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-your-platform-for-success/"><u>Cultivating Your Platform for Success</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/discover-the-ultimate-list-of-iphone-video-editors-ranked-112-by-movavi/"><u>Discover the Ultimate List of iPhone Video Editors Ranked #1–#12 by Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153364524-expand-accessibility-share-fb-posts-and-notes-on-leading-app-platforms-seamlessly/"><u>Expand Accessibility: Share FB Posts & Notes on Leading App Platforms Seamlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152839748-heres-what-facebooks-new-page-labels-mean/"><u>Here's What Facebook's New Page Labels Mean</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-extensive-review-gopro-hero4-silver/"><u>In 2024, Extensive Review GoPro HERO4 Silver</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-years-finest-photo-framers-and-organizers-compilation/"><u>In 2024, The Year's Finest Photo Framers & Organizers Compilation</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/new-version-released-compatible-firmware-for-your-lenovo-thinkpad-thunderbolt-3-hub/"><u>New Version Released: Compatible Firmware for Your Lenovo ThinkPad Thunderbolt 3 Hub</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: What Are The Eyes-Opening Disclosures in Recent FB Papers?
-date: 2024-09-01T03:51:10.307Z
-updated: 2024-09-02T03:51:10.307Z
+date: 2024-11-10T16:50:50.261Z
+updated: 2024-11-17T17:04:40.529Z
 tags:
   - facebook
 categories:
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/2c72878e4c5b851b7d621c520b7075b9d80e911d0
 
  The video below is Haugen's interview on 60 Minutes, where she details many of the revelations found in the Facebook Papers.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Zuckerberg Believes It's an Attack on the Company
 
  Despite the damning nature of the documents, Facebook CEO Mark Zuckerberg[described](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2021/q3/FB-Q3-2021-Earnings-Call-Transcript.pdf) the leaked documents as a coordinated effort to attack the company.
@@ -44,8 +51,12 @@ thumbnail: https://thmb.techidaily.com/2c72878e4c5b851b7d621c520b7075b9d80e911d0
  He goes on to talk about how the polarization of US politics and indeed, society at large, began long before he was born, and that Facebook will never solve these issues on its own.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Is This the End for Facebook?
 
  Despite claims that Facebook ignores user safety, puts profits over everything else, contributes to political violence and civil unrest, and much more, there are very few indications that this is the end of Facebook.
@@ -54,14 +65,11 @@ thumbnail: https://thmb.techidaily.com/2c72878e4c5b851b7d621c520b7075b9d80e911d0
 
  The wider backdrop might see even more users leave the platform, with Facebook already struggling to attract the younger audience who view the platform as outdated and full of misinformation. Despite Facebook's enormous clout, massive revelations like this will hurt its image in the long run, especially with a younger audience growing up in a socially aware world.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -70,4 +78,19 @@ thumbnail: https://thmb.techidaily.com/2c72878e4c5b851b7d621c520b7075b9d80e911d0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-avoiding-lost-sequences-with-obs-fixes-for-2024/"><u>[New] Avoiding Lost Sequences with OBS Fixes for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-from-broadcasting-basics-to-facebook-live-with-wirecast/"><u>[Updated] From Broadcasting Basics to Facebook Live with Wirecast</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-scriptsmiths-network-for-2024/"><u>[Updated] Ultimate Scriptsmiths Network for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-reasons-to-quit-facebook-for-good/"><u>10 Reasons to Quit Facebook for Good</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-realme-12-proplus-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Realme 12 Pro+ 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-archive-of-memories/"><u>Exploring Facebook's Archive of Memories</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-older-friends-listings-on-facebook/"><u>Exploring Older Friends Listings on Facebook</u></a></li>
+<li><a href="https://win-special.techidaily.com/guide-to-automating-backups-on-windows-servers-using-cmd-instructions/"><u>Guide to Automating Backups on Windows Servers Using CMD Instructions</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-civi-3-phone-without-password-by-drfone-android/"><u>How To Unlock Xiaomi Civi 3 Phone Without Password?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-sony-xperia-10-v-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Sony Xperia 10 V Phones with/without a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/tune-into-success-understanding-facebooks-music-revenue-model/"><u>Tune Into Success: Understanding Facebook's Music Revenue Model</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-v27-pro-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo V27 Pro Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+</ul></div>
 

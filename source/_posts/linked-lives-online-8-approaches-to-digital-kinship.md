@@ -1,7 +1,7 @@
 ---
 title: "Linked Lives Online: 8 Approaches to Digital Kinship"
-date: 2024-09-01T03:51:32.363Z
-updated: 2024-09-02T03:51:32.363Z
+date: 2024-11-10T16:16:18.665Z
+updated: 2024-11-17T17:13:12.003Z
 tags:
   - facebook
 categories:
@@ -49,25 +49,16 @@ To use Facebook Messenger's video call feature:
 
  If you're looking for different messaging apps to try, consider checking out the[best all-in-one messaging platforms to simplify your communications](https://www.makeuseof.com/best-all-in-one-messaging-platforms/) .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Sharing Pictures With Your Family and Friends
 
 ![Woman scrolling Instagram feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/instagram-feed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
  Many families live away from each other and this can be very difficult for everyone involved. Grandparents, especially, have a difficult time being away from their grandchildren. But social media is an easy way to stay connected even when you're far apart.
 
  Sharing photos to your Instagram account is a great way for your family to feel like they are involved in your everyday activities. The platform lets you share as many photos as you like and it's easy to use even for beginners. You can add artistic filters to your photos, tag people in them, and privately chat via their message application.
 
  Instagram can be used on your phone or computer. If you want to make a new post on Instagram, follow the tips in this article detailing[how to post on Instagram from your PC or Mac](https://www.makeuseof.com/tag/how-to-post-on-instagram-from-pc-mac/) . Your family will enjoy seeing what you're up to every day!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## 4\. Connecting Through Facebook Groups
 
  Social media has given us the amazing ability to connect with people on the internet and turn them into friends. Many strong bonds have been forged through shared hobbies and interests.
@@ -79,6 +70,13 @@ To use Facebook Messenger's video call feature:
 ### How to Join Groups on Facebook
 
 ![Screenshot of Facebook group search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Groups-Search.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 To join a group on Facebook, follow these steps:
 
@@ -93,14 +91,17 @@ Then, wait for your request to be approved and start connecting!
 
  Facebook groups are an excellent way to make friends and business connections. After all, a stranger is just a friend you haven't met yet.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Joining Social Media Movements
 
 ![People protesting in public](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Web3-Protests-Against-Jack-Dorsey-Tweet.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
  Social media has brought many of us closer together. One of the major ways people are uniting is via social media movements like the "Me Too" movement against sexual harassment and assault, which is one of the many[Twitter hashtags that have shaped history](https://www.makeuseof.com/twitter-hashtags-that-shaped-history/) .
 
  People who have experienced these terrible crimes have come together to tell their stories and stand up against the exploitation of vulnerable people.
@@ -111,6 +112,13 @@ The ultimate burning program for all your needs!</a>
 
 ![Group of friends taking a selfie on a sunny day](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/why-a-sense-of-belonging-is-vital-for-your-wellbeing-and-how-to-find-it-online.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  We spoke earlier about how social media helps you connect with your existing loved ones, but platforms like Instagram and Twitter are also excellent for meeting new people with similar interests. For example, if you have a hobby like photography, you could potentially make lifelong friends by meeting these people in real life and going for regular photoshoots.
 
  Sports fans can similarly use social media networks to meet fans of the same or different teams, and even watch games together. The more niche your interests are, the better social media is for helping you find like-minded people. Consider trying these great[social media apps for making friends in your community](https://www.makeuseof.com/best-social-media-apps-for-making-friends/) if you're looking to build your network.
@@ -120,29 +128,34 @@ The ultimate burning program for all your needs!</a>
 ![A person holding their phone with Twitter feed on display](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/a-person-holding-a-silver-iphone-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  In addition to raising awareness for important global issues, social media is also powerful in potentially dangerous situations. For example, some people have used Facebook and Twitter to share details of missing people or pets—which has allowed others to inform the original poster if they see or know something.
 
  Similarly, social media is useful for reuniting people with items that they might have lost—such as their house keys or wallet.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Social Media Can Be a Positive Influence
 
  These are just a few of the many ways that social media connects us all in our daily lives. Because when you open yourself up to the idea of making friends online, the possibilities for connecting are endless.
 
  Sure, many people will condemn social media for being a negative influence on our lives—but it's up to us to use social media as a force for good rather than bad.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -151,4 +164,21 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-stillness-to-stirring-tips-for-bouncing-text-for-2024/"><u>[New] From Stillness to Stirring Tips for Bouncing Text for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-top-10-casual-pursuits-away-from-sports-fields/"><u>[New] In 2024, Top 10 Casual Pursuits Away From Sports Fields</u></a></li>
+<li><a href="https://tools.techidaily.com/aiseesoft/phone-transfer/"><u>Aiseesoft FoneCopy - Phone Transfer</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/are-electric-vehicles-on-par-with-gas-cars-in-lasting-long-term-a-deep-dive-into-their-lifespans/"><u>Are Electric Vehicles on Par with Gas Cars in Lasting Long Term: A Deep Dive Into Their Lifespans?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/discover-the-new-affordable-apple-m2-macbook-air-at-just-799-arriving-early-before-the-october-prime-day-sale-techcrunch-exclusive/"><u>Discover the New Affordable Apple M2 MacBook Air at Just $799, Arriving Early Before the October Prime Day Sale - TechCrunch Exclusive</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-recent-facebook-watches/"><u>Discovering Recent Facebook Watches</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/experts-guide-10-crucial-settings-and-tips-every-new-apple-user-should-master-on-their-ipad-zdnet/"><u>Expert's Guide: 10 Crucial Settings and Tips Every New Apple User Should Master on Their iPad | ZDNet</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/exploring-the-leading-key-discovery-devices-of-2024/"><u>Exploring the Leading Key Discovery Devices of 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/free-canon-printer-software-latest-updates-and-downloads-for-the-mp250-series/"><u>Free Canon Printer Software: Latest Updates & Downloads for the MP250 Series</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-isolation-to-engagement-joining-an-expat-group-on-facebook/"><u>From Isolation to Engagement: Joining an Expat Group on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-hashtags-for-prominence/"><u>Harnessing Hashtags for Prominence</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/movavis-free-web-service-effortless-wma-to-avi-file-conversion-online/"><u>Movavi's Free Web Service: Effortless WMA to AVI File Conversion Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/resolving-access-issues-with-your-facebook-id/"><u>Resolving Access Issues with Your Facebook ID</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unyielding-nature-of-facebooks-content-advice/"><u>The Unyielding Nature of Facebook's Content Advice</u></a></li>
+</ul></div>
 

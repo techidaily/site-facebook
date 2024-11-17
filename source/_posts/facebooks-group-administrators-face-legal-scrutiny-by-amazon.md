@@ -1,7 +1,7 @@
 ---
 title: Facebook's Group Administrators Face Legal Scrutiny by Amazon
-date: 2024-11-01T23:04:31.266Z
-updated: 2024-11-06T23:09:20.358Z
+date: 2024-11-15T17:40:28.428Z
+updated: 2024-11-17T17:29:35.700Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Amazon Filed the Case
@@ -50,10 +50,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
@@ -65,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -82,10 +82,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -109,16 +109,21 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-unveiling-the-10-best-free-os-agnostic-video-solutions/"><u>[New] Unveiling the 10 Best Free OS-Agnostic Video Solutions</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-secrets-of-6-video-categories-for-viewer-retention/"><u>[Updated] In 2024, Secrets of 6 Video Categories for Viewer Retention</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-simplified-methods-to-record-gotomeeting-chats-for-2024/"><u>[Updated] Simplified Methods to Record GoToMeeting Chats for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-social-media-live-platforms-facebook-vs-youtube-live-and-twitter-periscope/"><u>[Updated] Social Media Live Platforms FACEbook Vs. YOUTube Live & Twitter Periscope</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Vivo S17t | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/shattered-in-silence-post-fb-information/"><u>Shattered in Silence: Post-FB Information</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-real-value-of-paying-a-premium-for-advanced-ai-outputs/"><u>The Real Value of Paying a Premium for Advanced AI Outputs</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebooks-updated-privacy-center-strategies/"><u>Unveiling Facebook’s Updated Privacy Center Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-procedure-for-altering-your-facebook-nickname/"><u>Unveiling the Procedure for Altering Your Facebook Nickname</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-transparency-of-fbcta/"><u>Unveiling the Transparency of FBCTA</u></a></li>
-<li><a href="https://driver-download.techidaily.com/update-your-logitech-mk710-free-drivers-and-enhanced-features-available-now/"><u>Update Your Logitech MK710: Free Drivers and Enhanced Features Available Now!</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-unleash-your-creative-voice-on-tiktok-with-this-simple-step-by-step-guide/"><u>[New] 2024 Approved Unleash Your Creative Voice on TikTok with This Simple Step-By-Step Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-cut-trim-and-enhance-youtube-editing-tips-for-the-rookie-for-2024/"><u>[New] Cut, Trim & Enhance YouTube Editing Tips for the Rookie for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-most-valuable-maps-top-treasures-in-terraria/"><u>[Updated] In 2024, Most Valuable Maps Top Treasures in Terraria</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unlocking-creative-expression-an-in-depth-guide-to-snapchat-filters/"><u>[Updated] Unlocking Creative Expression An In-Depth Guide to Snapchat Filters</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-fitness-monitoring-made-excellent-the-detailed-xiaomi-mi-smart-band-4-review/"><u>Affordable Fitness Monitoring Made Excellent - The Detailed Xiaomi Mi Smart Band 4 Review</u></a></li>
+<li><a href="https://extra-information.techidaily.com/appreciation-series-unlimited-freepaid-otus-for-2024/"><u>Appreciation Series Unlimited Free/Paid OTUs for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/boost-your-browsers-efficiency-activating-energy-saving-features-in-google-chrome-insights-and-tips/"><u>Boost Your Browser's Efficiency: Activating Energy Saving Features in Google Chrome - Insights and Tips</u></a></li>
+<li><a href="https://video-capture.techidaily.com/effortless-integration-of-ares-wizard-into-your-kodi-system-step-by-step-instructions/"><u>Effortless Integration of Ares Wizard Into Your Kodi System: Step-by-Step Instructions</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-streamlines-your-conversations-upgraded-messaging-on-instagram-and-messenger-awaits/"><u>FB Streamlines Your Conversations: Upgraded Messaging on Instagram & Messenger Awaits</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-alerting-about-child-users-in-virtual-spaces/"><u>Guidelines for Alerting About Child Users in Virtual Spaces</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-urges-step-back-from-screen-embrace-life/"><u>Instagram Urges: Step Back From Screen, Embrace Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconsidering-ties-unfriending-someone-from-fb/"><u>Reconsidering Ties: Unfriending Someone From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-mastery-nurturing-professional-client-relations-on-fb/"><u>Social Media Mastery: Nurturing Professional Client Relations on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-whispers-predicting-facebooks-woes/"><u>The Silent Whispers Predicting Facebook's Woes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-strategy-for-departing-facebook-communities/"><u>The Strategy for Departing Facebook Communities</u></a></li>
 </ul></div>
 

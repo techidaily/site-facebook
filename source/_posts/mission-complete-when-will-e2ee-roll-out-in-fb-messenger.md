@@ -1,7 +1,7 @@
 ---
 title: Mission Complete? When Will E2EE Roll Out in FB Messenger?
-date: 2024-11-03T04:49:57.462Z
-updated: 2024-11-06T17:26:10.342Z
+date: 2024-11-16T17:19:12.002Z
+updated: 2024-11-17T17:03:56.819Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,16 @@ thumbnail: https://thmb.techidaily.com/356d504c4e521db72b45b5ec62fa587016c69e83d
  However, Kent added that the work was a long-term project. At the earliest, users should expect the feature to be released in 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Facebook Messenger Chats Are Yet to Be Encrypted
@@ -44,10 +50,10 @@ thumbnail: https://thmb.techidaily.com/356d504c4e521db72b45b5ec62fa587016c69e83d
 ![Photo of the Facebook Messenger app logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-messenger-logo.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  One thing all Facebook users can attest to is how easy Messenger is to access; you can easily log into your account from any device with an internet connection. Facebook even allows you to log into your account on multiple devices simultaneously.
@@ -61,10 +67,10 @@ thumbnail: https://thmb.techidaily.com/356d504c4e521db72b45b5ec62fa587016c69e83d
  Facebook’s drive to keep the platform easily accessible is why it is yet to offer end-to-end encryption by default on Messenger.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Should You Be Worried About the Privacy of Your Messenger Chats?
@@ -88,19 +94,24 @@ thumbnail: https://thmb.techidaily.com/356d504c4e521db72b45b5ec62fa587016c69e83d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-constructing-a-dynamic-tiktok-end-slide/"><u>[Updated] In 2024, Constructing a Dynamic TikTok End Slide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-how-to-secure-a-library-of-premium-free-graphic-designs/"><u>[Updated] In 2024, How to Secure a Library of Premium, Free Graphic Designs</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-2023-facebook-short-videos-and-everything-about-them/"><u>2024 Approved 2023 | Facebook Short Videos and Everything About Them</u></a></li>
-<li><a href="https://facebook.techidaily.com/donald-trumps-fight-free-speech-vs-tech-overreach/"><u>Donald Trump's Fight: Free Speech Vs. Tech Overreach</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/fine-tuning-your-videos-for-viral-instagram-moments-for-2024/"><u>Fine-Tuning Your Videos for Viral Instagram Moments for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-quick-cut-cinematic-concept/"><u>In 2024, Quick Cut Cinematic Concept</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On OnePlus 11R | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/pursuing-new-frontiers-fb-sets-aside-5m-for-groundbreaking-content-creator-tools/"><u>Pursuing New Frontiers: FB Sets Aside $5M for Groundbreaking Content Creator Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-new-ally-facebook-aids-rust-growth/"><u>Social Media's New Ally: Facebook Aids Rust Growth</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotting-sneaky-onlookers-on-facebook-platform/"><u>Spotting Sneaky Onlookers on Facebook Platform</u></a></li>
-<li><a href="https://windows11.techidaily.com/tailoring-user-experience-customizing-windows-pin-lengths/"><u>Tailoring User Experience: Customizing Windows PIN Lengths</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unveiling-apples-latest-strategy-the-intriguing-game-mode-project-and-what-it-means-for-users-tech-news-today/"><u>Unveiling Apple's Latest Strategy: The Intriguing Game Mode Project and What It Means for Users | Tech News Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-my-initial-facebook-sign-up-day/"><u>Unveiling: My Initial Facebook Sign-Up Day!</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/verbessern-sie-ihre-videos-mit-winxvideo-ai-ideales-werkzeug-zur-vergrosserung-stabilisierung-konvertierung-und-professionellen-video-bildbearbeitung/"><u>Verbessern Sie Ihre Videos Mit WinxVideo AI - Ideales Werkzeug Zur Vergrößerung, Stabilisierung, Konvertierung Und Professionellen Video-/Bildbearbeitung</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-exploring-collaborative-designs-the-best-free-and-paid-apps-in-videomosaic/"><u>[New] In 2024, Exploring Collaborative Designs The Best Free & Paid Apps in Videomosaic</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-swipe-tap-save-the-ultimate-guide-for-igtv-videos-on-devices/"><u>[New] In 2024, Swipe, Tap, Save The Ultimate Guide for IGTV Videos on Devices</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-war-strategists-guide-selecting-top-7-total-war-challenges/"><u>[New] The Ultimate War Strategists' Guide Selecting Top 7 Total War Challenges</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unleashing-the-power-of-teamsnap-for-virtual-meetings/"><u>[New] Unleashing the Power of TeamSnap for Virtual Meetings</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-cross-media-broadcasting-4-strategies-to-air-fb-livests-on-tv/"><u>[Updated] Cross-Media Broadcasting 4 Strategies to Air FB Livests on TV</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/crafting-and-sharing-custom-contact-posters-in-ios-17-using-namedrop-a-step-by-step-guide-techtips/"><u>Crafting and Sharing Custom Contact Posters in iOS 17 Using NameDrop - A Step-by-Step Guide | TechTips</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-news-to-just-feed-understanding-fbs-strategy/"><u>From News to Just Feed: Understanding FB's Strategy</u></a></li>
+<li><a href="https://article-posts.techidaily.com/full-breakdown-dji-inspire-2-analysis-for-2024/"><u>Full Breakdown DJI Inspire 2 Analysis for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/glow-enhanced-video-a-right-move-for-hdr-crafting-in-2024/"><u>Glow-Enhanced Video A Right Move for HDR Crafting, In 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/guide-to-overcoming-cast-failures-windows-10-users-rejoice/"><u>Guide to Overcoming Cast Failures: Windows 10 Users Rejoice!</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-pursuit-of-reaction-the-phenomenon-of-vague-posts/"><u>In Pursuit of Reaction: The Phenomenon of Vague Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-likes-with-strategic-use-of-hashtags-in-facebook-posts/"><u>Maximizing Likes with Strategic Use of Hashtags in Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/monitoring-your-actions-preserves-facebook-youtubes-app-availability/"><u>Monitoring Your Actions Preserves Facebook, YouTube's App Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-reassessment-of-trumps-status/"><u>Platform Reassessment of Trumps' Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-your-privacy-dont-opt-in-to-facebook-logging/"><u>Protecting Your Privacy: Don't Opt In to Facebook Logging</u></a></li>
+<li><a href="https://facebook.techidaily.com/rally-for-fame-strategies-to-boost-your-online-gathering/"><u>Rally for Fame: Strategies to Boost Your Online Gathering</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-tips-for-overcoming-hitman-3s-persistent-connection-problems/"><u>Troubleshooting Tips for Overcoming Hitman 3'S Persistent Connection Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-utilizing-trends-to-boost-your-fb-likesshares/"><u>Understanding and Utilizing Trends to Boost Your FB Likes/Shares</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-why-disable-isnt-an-option-for-facebook-suggests/"><u>Understanding Why Disable Isn’t an Option for Facebook Suggests</u></a></li>
 </ul></div>
 

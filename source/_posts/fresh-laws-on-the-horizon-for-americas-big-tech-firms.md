@@ -1,7 +1,7 @@
 ---
 title: Fresh Laws on the Horizon for America's Big Tech Firms
-date: 2024-11-02T20:02:02.720Z
-updated: 2024-11-07T06:36:19.789Z
+date: 2024-11-10T17:05:56.977Z
+updated: 2024-11-17T16:26:26.491Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
@@ -41,13 +48,6 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -61,6 +61,13 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -72,13 +79,6 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  How would Amazon itself have ever been invented if not for a free and open market?
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. The Ending Platform Monopolies Act
 
@@ -101,10 +101,10 @@ In essence: leave the selling to the sellers.
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
@@ -112,16 +112,10 @@ In essence: leave the selling to the sellers.
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
@@ -157,18 +151,21 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-edit-and-elevate-instagrams-ultimate-toolkit/"><u>[New] 2024 Approved Edit & Elevate Instagram's Ultimate Toolkit</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-properly-posted-tweets-with-professional-videos/"><u>[New] 2024 Approved Properly Posted Tweets with Professional Videos</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-the-screen-savers-guide-to-recording-tech/"><u>[New] The Screen Saver's Guide to Recording Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-curiosity-and-compliance-downloading-fb-videos-wisely/"><u>Balancing Curiosity and Compliance: Downloading FB Videos Wisely</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-feed-how-to-make-it-yours/"><u>Decoding Facebook's Feed: How to Make It Yours</u></a></li>
-<li><a href="https://article-files.techidaily.com/designing-your-own-instagram-notification-sounds-for-2024/"><u>Designing Your Own Instagram Notification Sounds for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/every-move-monetized-a-corporate-reality/"><u>Every Move Monetized: A Corporate Reality</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/experience-next-level-conversion-with-our-cookiebot-edge/"><u>Experience Next-Level Conversion with Our Cookiebot Edge</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-connectivity-for-companionship-on-facebook/"><u>Leveraging Connectivity for Companionship on Facebook</u></a></li>
-<li><a href="https://howto.techidaily.com/reasons-for-realme-gt-3-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Realme GT 3 Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamline-strategies-with-8-powerful-crowdflower-capabilities/"><u>Streamline Strategies with 8 Powerful CrowdFlower Capabilities</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719147418245-taking-a-leap-in-privacy-protection-facebook-unveils-stronger-security-for-instagram-dms-and-messenger-calls/"><u>Taking a Leap in Privacy Protection: Facebook Unveils Stronger Security for Instagram DMs and Messenger Calls</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/weekly-iphone-update-briefing-and-products-being-recalled-a-complete-rundown/"><u>Weekly Iphone Update Briefing & Products Being Recalled: A Complete Rundown</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-mastering-makeup-tutorials-launching-your-glam-vlog/"><u>[New] Mastering Makeup Tutorials Launching Your Glam Vlog</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-closer-look-techniques-for-microsoft-teams/"><u>[Updated] In 2024, Closer Look Techniques for Microsoft Teams</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-resolve-non-playing-facebook-video-issues-androidios/"><u>2024 Approved Resolve Non-Playing Facebook Video Issues (Android/iOS)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/apple-tvplus-vs-competitors-an-in-depth-comparison-of-top-streaming-platforms/"><u>Apple TV+ vs Competitors: An In-Depth Comparison of Top Streaming Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/debunking-facebook-fables-top-10-untruths-exposed/"><u>Debunking Facebook Fables: Top 10 Untruths Exposed</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-online-ambiguity-a-study-on-vague-content-sharing/"><u>Deciphering Online Ambiguity: A Study on Vague Content Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-deceptive-digits-true-users-of-social-media/"><u>Decoding Deceptive Digits: True Users of Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-facebooks-internal-layout-strategy/"><u>Delving Into Facebook's Internal Layout Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnection-directive-protocols-for-abandoning-fb-business-accounts/"><u>Disconnection Directive: Protocols for Abandoning FB Business Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-status-updates-have-a-shelf-life/"><u>Do Status Updates Have a Shelf Life?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-oneplus-11-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass OnePlus 11 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://facebook.techidaily.com/eco-system-new-era-of-renewable-power-at-fb/"><u>Eco-System: New Era of Renewable Power at FB</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-poco-x5withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Poco X5with/without a PC</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-oppo-a59-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Oppo A59 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-strategies-for-effective-youtube-comment-engagement/"><u>In 2024, Strategies for Effective YouTube Comment Engagement</u></a></li>
+<li><a href="https://games-able.techidaily.com/superior-emulation-selections-gaming-consoles-on-a-mac/"><u>Superior Emulation Selections: Gaming Consoles on a Mac</u></a></li>
 </ul></div>
 

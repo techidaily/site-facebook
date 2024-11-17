@@ -1,7 +1,7 @@
 ---
 title: English Soccer Faction Exits Snapchat to Escape Online Hostility
-date: 2024-09-01T03:52:10.831Z
-updated: 2024-09-02T03:52:10.831Z
+date: 2024-11-15T16:06:16.898Z
+updated: 2024-11-17T17:13:49.060Z
 tags:
   - facebook
 categories:
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -61,14 +68,11 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
 
  Whatever your take on the social media regulation side of the issue, one thing is clear: online abuse, racism, and toxic behavior towards anyone is unacceptable, whether they're a highly paid soccer player or otherwise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,8 +81,18 @@ thumbnail: https://thmb.techidaily.com/7e858d7102e5ef6f6137f0acdeeba112d7b0daf0c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-exploring-new-frontiers-with-vr-game-engines-for-2024/"><u>[Updated] Exploring New Frontiers with VR Game Engines for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-leading-edge-photography-the-best-4k-mirrorless-cameras/"><u>[Updated] Leading Edge Photography The Best 4K Mirrorless Cameras</u></a></li>
+<li><a href="https://games-able.techidaily.com/access-exclusive-content-prime-and-twitch-duo/"><u>Access Exclusive Content: Prime & Twitch Duo</u></a></li>
+<li><a href="https://win-answers.techidaily.com/easy-fixes-for-your-xgs-issues-on-cod-modern-warfare-2/"><u>Easy Fixes for Your XGS Issues on COD: Modern Warfare 2</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-virtual-societal-divisions-with-facebook/"><u>Exploring Virtual Societal Divisions with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-the-power-of-multi-group-posts-for-greater-engagement/"><u>Harnessing the Power of Multi-Group Posts for Greater Engagement</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-apple-iphone-13-pro-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>How to Change GPS Location on Apple iPhone 13 Pro Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-undoing-deletion-of-facebook-statuses/"><u>Strategies for Undoing Deletion of Facebook Statuses</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-true-nature-of-metaverse-versus-vr-six-factors/"><u>Uncovering The True Nature of Metaverse Versus VR: Six Factors</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-misdirection-in-digital-consent/"><u>Understanding Misdirection in Digital Consent</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/virtual-efficiency-boosted-setting-up-zoom-right/"><u>Virtual Efficiency Boosted Setting Up Zoom Right</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: Turning Our Tracks Into Treasure
-date: 2024-11-02T16:53:27.066Z
-updated: 2024-11-07T10:21:39.340Z
+date: 2024-11-14T17:42:10.220Z
+updated: 2024-11-17T16:26:22.087Z
 tags:
   - facebook
 categories:
@@ -44,13 +44,6 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
 ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  For surveillance capitalism to work, its primary well of power lies in its ability to gather data as granular as possible.
 
  Unfortunately,[acquiring data has never been so easy](https://www.makeuseof.com/keep-advertisers-from-stealing-data/) . With the rise of social media, smart home devices, wearable technology, ecommerce, telemedicine, and online financial services, data brokers have a myriad of options to gather a terrifying amount of data on individuals in real-time.
@@ -59,16 +52,16 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  If you're wondering what's the problem with this, it's that having such a granular image of you and your lifestyle increases the chances of identity theft or fraud if a hacker will be able to get a hold of it. With time, a single breach can cost you everything. And of course, there's the big issue of personal privacy, which we all have a right to.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Emotional Volatility
 
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
@@ -88,13 +81,6 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
 ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  At first glance, we seem to be living in an ideal future. A decade ago, the instant nature of many online transactions such as the normalization of fast fashion, seamless checkout processes, and next day delivery options would have just been a dream. However, no one could have known the negative impacts it would have on our society as a whole.
 
  Ads, pop-ups, and direct email marketing has conditioned an entire generation to have poor impulse control. We have become accustomed to self-soothing with our purchases, giving into every emotional trigger and craving for a never-ending stream of dopamine hits from things that we may not always need.
@@ -109,15 +95,22 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The Commodification of Personal Experiences
 
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
@@ -125,6 +118,13 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
  From a marketing perspective, it becomes easy to dehumanize the people and look at them simply from their customer lifecycle value. It's apparent that, with the rise of data brokers and intrusive targeted ads, we are already on the path of surveillance-driven consumerism.
 
  Nowadays, the pressure to commodify ourselves can be seen in the obsession with influencer culture, plastic surgery, and going viral. Instead of rejecting this culture of commodification, we have actually embraced it, encouraged it, and accepted it as a part of the new normal.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Running Out of Ways to Opt Out
 
@@ -153,20 +153,16 @@ In fact, we are already running out of ways to opt out.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/updated-secrets-to-crystal-clear-zoom-meetings/"><u>[Updated] Secrets to Crystal Clear Zoom Meetings</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-hero-session-vs-cube-a-face-off-in-video-editors/"><u>2024 Approved Hero Session Vs. Cube A Face-Off in Video Editors</u></a></li>
-<li><a href="https://facebook.techidaily.com/chatting-with-flair-the-power-of-textual-variation/"><u>Chatting with Flair: The Power of Textual Variation</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-spotify-interface-tips-for-maximum-convenience/"><u>Facebook-Spotify Interface Tips for Maximum Convenience</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixes-and-solutions-for-the-initial-launch-problems-in-age-of-empires-4/"><u>Fixes and Solutions for the Initial Launch Problems in Age of Empires 4</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-fix-the-star-wars-battlefront-2-black-screen-glitch-efficiently/"><u>How to Fix the Star Wars Battlefront 2 Black Screen Glitch Efficiently</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-eyeem-pro-your-ultimate-guide-to-freepaid-substitutes/"><u>In 2024, EyeEm Pro Your Ultimate Guide to Free/Paid Substitutes</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-safe-secure-and-stress-free-exclusive-list-of-free-video-call-apps-for-iphoneandroid/"><u>In 2024, Safe, Secure & Stress-Free Exclusive List of Free Video Call Apps for iPhone/Android</u></a></li>
-<li><a href="https://facebook.techidaily.com/miniplayer-your-portable-spotify-experience-on-facebook/"><u>Miniplayer: Your Portable Spotify Experience on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/retrieving-and-reactivating-your-fbs-hidden-security-codes/"><u>Retrieving and Reactivating Your FB's Hidden Security Codes</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/securely-and-swiftly-acquiring-your-youtube-watch-lists/"><u>Securely and Swiftly Acquiring Your YouTube Watch Lists</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-enigma-of-shadowban-and-how-to-circumvent-it/"><u>The Enigma of Shadowban and How to Circumvent It</u></a></li>
-<li><a href="https://facebook.techidaily.com/trumps-dormant-accounts-on-meta-resurrected/"><u>Trump's Dormant Accounts on Meta Resurrected</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-facebooks-stance-on-having-duplicate-user-identities-in-one-account/"><u>Understanding Facebook's Stance on Having Duplicate User Identities in One Account</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/unlocking-prime-content-top-8-facebook-tools-in-23-for-2024/"><u>Unlocking Prime Content Top 8 Facebook Tools in '23 for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-guide-to-creating-catchy-youtube-channel-titles-for-blogging-and-filming-no-more-than-156-characters/"><u>[New] 2024 Approved The Ultimate Guide to Creating Catchy Youtube Channel Titles For Blogging & Filming (No More than 156 Characters)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tilizing-youtubes-cc-to-enhance-your-videography-for-2024/"><u>[New] Utilizing YouTube's CC to Enhance Your Videography for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210536556-9781473356412-a-guide-to-birthstones-a-collection-of-historical-articles-on-the-gemstones-linked-to-astrology/"><u>A Guide to Birthstones - A Collection of Historical Articles on the Gemstones Linked to Astrology | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/affordable-content-scheduling-top-5-tricks-for-facebook-timing/"><u>Affordable Content Scheduling: Top 5 Tricks for Facebook Timing</u></a></li>
+<li><a href="https://facebook.techidaily.com/altering-facebook-pages-avatar-and-title/"><u>Altering Facebook Page's Avatar & Title</u></a></li>
+<li><a href="https://facebook.techidaily.com/chatting-in-a-new-age-facebooks-latest-tech-boosts-instagram-and-messenger-messaging/"><u>Chatting in a New Age: Facebook's Latest Tech Boosts Instagram and Messenger Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154159871-facebook-prioritizes-privacy-introduces-end-to-end-encryption-to-messaging-and-direct-chats/"><u>Facebook Prioritizes Privacy: Introduces End-to-End Encryption to Messaging & Direct Chats.</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-spiritual-slow-motion-tutorial/"><u>In 2024, Spiritual Slow Motion Tutorial</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150163224-upcoming-verdict-from-facebooks-governance-board-on-trump-ban/"><u>Upcoming Verdict From Facebook's Governance Board on Trump Ban.</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/1726226909481-wavmp3-movavi/"><u>오늘날의 가장 최고의 온라인 WAV/MP3 전환 도구 - Movavi</u></a></li>
 </ul></div>
 

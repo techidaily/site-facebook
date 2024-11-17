@@ -1,7 +1,7 @@
 ---
 title: Social Networking Meets Software Innovation via Facebook and Rust
-date: 2024-11-04T02:45:46.480Z
-updated: 2024-11-06T18:31:58.112Z
+date: 2024-11-14T16:25:19.350Z
+updated: 2024-11-17T16:30:29.820Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -60,24 +60,14 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-boosted-visuals-a-beginners-guide-to-gopro-video-editing/"><u>[New] Boosted Visuals A Beginner's Guide to GoPro Video Editing</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-switch-from-youtube-thumbnail-view-to-live-stream/"><u>[New] In 2024, Switch From YouTube Thumbnail View to Live Stream</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-the-power-of-a-sturdy-tripod-in-video-content-production/"><u>[New] Unveiling the Power of a Sturdy Tripod in Video Content Production</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-simplicity-in-code-constructing-a-streamlined-youtube-sign-up/"><u>[Updated] Simplicity in Code Constructing a Streamlined YouTube Sign-Up</u></a></li>
-<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-motorola-g54-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Motorola G54 5G FRP</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-fresh-perspective-facebook-prioritizes-recommendations-for-entrepreneurs/"><u>A Fresh Perspective: Facebook Prioritizes Recommendations for Entrepreneurs</u></a></li>
-<li><a href="https://facebook.techidaily.com/apples-journey-forward-thinking-beyond-social-platforms/"><u>Apple's Journey: Forward-Thinking Beyond Social Platforms</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/awesome-atmosphere-discotheme-essentials-by-betterdiscord/"><u>Awesome Atmosphere DiscoTheme Essentials by BetterDiscord</u></a></li>
-<li><a href="https://facebook.techidaily.com/do-digital-footsteps-follow-us-forever/"><u>Do Digital Footsteps Follow Us Forever?</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-post-security-how-to-manage-who-sees-your-fb-content/"><u>Elevate Post Security: How to Manage Who Sees Your FB Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/expanding-revenue-streams-instagrams-new-perks-for-artists/"><u>Expanding Revenue Streams: Instagram's New Perks for Artists</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-announces-its-new-company-identity-as-meta/"><u>Facebook Announces Its New Company Identity as Meta</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/leveraging-zoom-for-optimal-productivity-in-win11-environments/"><u>Leveraging Zoom for Optimal Productivity in Win11 Environments</u></a></li>
-<li><a href="https://windows11.techidaily.com/navigating-through-windows-cab-files-and-their-setup-process/"><u>Navigating Through Windows' CAB Files and Their Setup Process</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/shrinking-excessive-windows-11-size/"><u>Shrinking Excessive Windows 11 Size</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-mapping-revolutionized-with-facebooks-new-update/"><u>Social Mapping Revolutionized with Facebook's New Update</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-effects-of-pausing-on-facebook/"><u>The Effects of Pausing on Facebook</u></a></li>
-<li><a href="https://fox-pages.techidaily.com/top-rated-no-cost-windows-pc-data-backup-programs-compatible-with-os-versions-7-through-11/"><u>Top Rated No-Cost Windows PC Data Backup Programs Compatible with OS Versions 7 Through 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-should-you-change-your-facebook-profile-picture/"><u>When Should You Change Your Facebook Profile Picture?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-forging-a-massive-online-following-on-facebook/"><u>[New] 2024 Approved Forging a Massive Online Following on Facebook</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rom-dull-scenes-to-dynamic-sports-highlights/"><u>[New] From Dull Scenes to Dynamic Sports Highlights</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-depth-guide-to-extracting-vimeo-media-for-2024/"><u>[Updated] In-Depth Guide to Extracting Vimeo Media for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-duplicitous-online-barter-schemes-on-facebook/"><u>Deciphering Duplicitous Online Barter Schemes on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-fbcta-implications-for-internet-use/"><u>Deciphering FBCTA: Implications for Internet Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-revenue-plan-with-song-royalties/"><u>Decoding Facebook's Revenue Plan with Song Royalties</u></a></li>
+<li><a href="https://facebook.techidaily.com/driving-results-with-key-business-meta-tools-and-strategies/"><u>Driving Results with Key Business Meta Tools and Strategies</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fixing-yellow-tint-reviving-true-colors-on-laptops/"><u>Fixing Yellow Tint: Reviving True Colors on Laptops</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-ranking-the-top-hand-drawn-whiteboard-animation-software-for-2024/"><u>Updated Ranking the Top Hand-Drawn Whiteboard Animation Software for 2024</u></a></li>
 </ul></div>
 

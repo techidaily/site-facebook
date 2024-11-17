@@ -1,7 +1,7 @@
 ---
 title: How to Broadcast Your Current Location on FB Messenger
-date: 2024-09-01T03:50:41.888Z
-updated: 2024-09-02T03:50:41.888Z
+date: 2024-11-16T17:31:56.464Z
+updated: 2024-11-17T16:48:24.661Z
 tags:
   - facebook
 categories:
@@ -45,6 +45,13 @@ Close
 
  Once you reach your destination or you want to stop sharing your live location, click on**Stop Sharing Location** .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Share a Pinned Location in Facebook Messenger
 
  Facebook Messenger also allows you to share any other point on the map instead of your current location by pinning it.
@@ -59,31 +66,46 @@ Follow these simple instructions to send a pinned location:
 
 ![Location Option to Pin a Specific Location In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/5-Location-Option-to-Pin-a-Specific-Location-In-Facebook-Messenger.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Pinning a Specific Location By Dragging In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/6-Pinning-a-Specific-Location-By-Dragging-In-Facebook-Messenger.jpg)
 
 ![Searching a Specific Location To Pin In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/7-Searching-a-Specific-Location-To-Pin-In-Facebook-Messenger.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
  This is how you can easily share your live location or pin a random one easily. After sharing your location, make a habit of[deleting your Facebook location history](https://www.makeuseof.com/tag/view-delete-location-history-facebook/) so that Facebook won't be able to spy on you for too long.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Share Live Location or Pin It Through Facebook Messenger
 
  Whether you're sharing your live location or a pinned position, Facebook Messenger makes navigation easier for you and your loved ones.
 
  Besides Messenger, A few other Android apps also allow you to find your friends via GPS, such as Glympse, Family Locator, Geo Tracker, etc.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,4 +114,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/new-historical-insights-the-most-relevant-youtube-channels-for-learners/"><u>[New] Historical Insights - The Most Relevant YouTube Channels for Learners</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-elevate-your-gaming-experience-4-techniques-for-gameplay-snaps/"><u>[Updated] In 2024, Elevate Your Gaming Experience 4 Techniques for Gameplay Snaps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-rebound-creators-range-for-2024/"><u>[Updated] Rebound Creators' Range for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-streamlining-lenovo-capture-features-for-2024/"><u>[Updated] Streamlining Lenovo Capture Features for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-efficient-techniques-saving-google-meets-on-phones/"><u>2024 Approved Efficient Techniques Saving Google Meets on Phones</u></a></li>
+<li><a href="https://games-able.techidaily.com/ace-the-art-of-steam-wallet-financing/"><u>Ace the Art of Steam Wallet Financing</u></a></li>
+<li><a href="https://facebook.techidaily.com/bring-back-the-buzz-tactics-to-reactivate-a-dormant-facebook-account/"><u>Bring Back the Buzz: Tactics to Reactivate a Dormant Facebook Account</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/can-a-digital-mentor-help-you-navigate-the-perils-of-wild-environments/"><u>Can a Digital Mentor Help You Navigate the Perils of Wild Environments?</u></a></li>
+<li><a href="https://facebook.techidaily.com/deactivation-day-what-happens-next/"><u>Deactivation Day: What Happens Next?</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-eyes-on-us-an-industry-insight/"><u>Digital Eyes on Us: An Industry Insight</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/easy-steps-to-resolve-msvbvm50dll-not-found-computer-issue/"><u>Easy Steps to Resolve 'msvbvm50.dll Not Found' Computer Issue</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-connections-advanced-tips-for-facebook-post-impact/"><u>Fostering Connections: Advanced Tips for Facebook Post Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-friends-access-to-online-presence/"><u>Limiting Friends' Access to Online Presence</u></a></li>
+<li><a href="https://win-able.techidaily.com/transforming-audio-files-quick-and-simple-steps-for-switching-from-flac-to-ogg/"><u>Transforming Audio Files: Quick and Simple Steps for Switching From FLAC to Ogg</u></a></li>
+<li><a href="https://facebook.techidaily.com/whos-spreading-covid-misinformation/"><u>Who's Spreading Covid Misinformation?</u></a></li>
+</ul></div>
 

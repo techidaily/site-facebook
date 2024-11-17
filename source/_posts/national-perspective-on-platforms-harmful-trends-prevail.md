@@ -1,7 +1,7 @@
 ---
 title: "National Perspective on Platforms: Harmful Trends Prevail"
-date: 2024-11-01T07:12:37.698Z
-updated: 2024-11-07T00:41:00.074Z
+date: 2024-11-16T16:43:26.034Z
+updated: 2024-11-17T16:25:30.770Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Does Social Media Affect Your Life?
@@ -62,25 +62,19 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
@@ -106,21 +100,19 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-how-can-you-screen-record-snapchat-on-mobile-phone/"><u>[New] How Can You Screen Record Snapchat on Mobile Phone?</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-premier-6-platforms-for-video-localization/"><u>[Updated] Premier 6 Platforms for Video Localization</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-basic-techniques-for-effective-color-grading-in-ps/"><u>2024 Approved Basic Techniques for Effective Color Grading in PS</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-essence-of-facebooks-structure/"><u>Decoding The Essence of Facebook's Structure</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-intern-to-innovator-the-metamate-movement/"><u>From Intern to Innovator: The Metamate Movement</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Samsung Galaxy S24+ | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-a-disable-iphone-6-plus-using-itunes-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock a disable iPhone 6 Plus using itunes</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/is-picku-the-best-photo-editor-for-android-our-in-depth-review/"><u>Is PickU The Best Photo Editor for Android? Our In-Depth Review</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/navigating-social-streams-find-just-watched-video-list-on-facebook/"><u>Navigating Social Streams Find Just-Watched Video List on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimize-your-social-media-footprint-for-maximum-shares-on-fb/"><u>Optimize Your Social Media Footprint for Maximum Shares on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-rise-of-branded-content-instagrams-and-facebooks-new-focus/"><u>The Rise of Branded Content: Instagram's & Facebook's New Focus</u></a></li>
-<li><a href="https://facebook.techidaily.com/tiktoks-secret-to-offering-users-a-no-cost-experience/"><u>TikTok's Secret to Offering Users a No-Cost Experience</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723017040280-troubleshooting-a-nonfunctional-razer-man-o-war-headset-mic-solutions-inside/"><u>Troubleshooting a Nonfunctional Razer Man 'O' War Headset Mic - Solutions Inside</u></a></li>
-<li><a href="https://facebook.techidaily.com/untangling-instagram-from-facebook-services/"><u>Untangling Instagram From Facebook Services</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-how-to-remove-audio-from-avi-for-2024/"><u>Updated How to Remove Audio From AVI for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-leaving-no-footprint-on-facebook-is-smart/"><u>Why Leaving No Footprint on Facebook Is Smart</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-enhance-image-vibrance-and-contrast-in-photoshop/"><u>[New] 2024 Approved Enhance Image Vibrance and Contrast in Photoshop</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-master-your-hashtags-the-path-to-6-figure-youtube-success/"><u>[Updated] 2024 Approved Master Your Hashtags The Path to 6-Figure Youtube Success</u></a></li>
+<li><a href="https://win-community.techidaily.com/comprehensive-fixes-for-disk-is-full-warning-in-excel-201020132016/"><u>Comprehensive Fixes for 'Disk Is Full' Warning in Excel 2010/2013/2016</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprints-trail-of-unknown-device-usage/"><u>Digital Footprints: Trail of Unknown Device Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-responsibility-essential-non-shareables-for-personal-security/"><u>Digital Responsibility: Essential Non-Shareables for Personal Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-myth-of-social-media-popularity-hype/"><u>Dissecting the Myth of Social Media Popularity Hype</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-dialogue-facebooks-auditory-content-expansion/"><u>Dive Into Dialogue: Facebook’s Auditory Content Expansion</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-friendship-discover-more-through-polls-and-questions/"><u>Dive Into Friendship: Discover More Through Polls & Questions</u></a></li>
+<li><a href="https://facebook.techidaily.com/dodging-shadowban-traps-in-social-media-networks/"><u>Dodging Shadowban Traps in Social Media Networks</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/easy-steps-for-updating-hardware-drivers-on-windows-11-systems/"><u>Easy Steps for Updating Hardware Drivers on Windows 11 Systems</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-samsung-galaxy-s23plus-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Samsung Galaxy S23+ Phone that is Locked?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-prime-meme-framework-essentials/"><u>In 2024, Prime Meme Framework Essentials</u></a></li>
+<li><a href="https://games-able.techidaily.com/preeminent-benefits-five-ways-to-upgrade-your-gameplay/"><u>Preeminent Benefits: Five Ways to Upgrade Your Gameplay</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-solution-to-missing-d3dx940dll-files-a-comprehensive-guide/"><u>The Ultimate Solution to Missing d3dx9_40.dll Files: A Comprehensive Guide</u></a></li>
 </ul></div>
 

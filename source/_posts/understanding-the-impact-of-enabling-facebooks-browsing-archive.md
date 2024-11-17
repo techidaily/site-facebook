@@ -1,7 +1,7 @@
 ---
 title: Understanding the Impact of Enabling Facebook’s Browsing Archive
-date: 2024-11-03T03:40:04.321Z
-updated: 2024-11-07T09:18:48.081Z
+date: 2024-11-10T17:51:25.825Z
+updated: 2024-11-17T16:54:37.953Z
 tags:
   - facebook
 categories:
@@ -43,13 +43,6 @@ thumbnail: https://thmb.techidaily.com/bb05cc1f39777472d93269752aa648567cff43de2
 
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Check if You've Opted In to Facebook's Link History
 
  As mentioned earlier, the Link History feature is only available in the Facebook app for[iOS](https://apps.apple.com/us/app/facebook/id284882215) and[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2031457/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en) . So, you'll need to use the app to check if you've opted in by following these simple steps:
@@ -65,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/bb05cc1f39777472d93269752aa648567cff43de2
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
@@ -76,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/bb05cc1f39777472d93269752aa648567cff43de2
 Close
 
  If you see a screen prompting you to**Allow link history** , you haven't opted in yet. However, if you see a list of links you've visited before, you have already opted into use Facebook's Link History feature.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Disable Link History on Facebook
 
@@ -91,28 +91,22 @@ Close
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
-![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
-
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
 
 Close
 
@@ -135,18 +129,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/kyrocketing-youtube-popularity-through-seo-know-how/"><u>[New] Skyrocketing YouTube Popularity Through SEO Know-How</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-frame-rate-conversion-20mb-video-specs-for-2024/"><u>[Updated] Frame Rate Conversion 20MB Video Specs for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-how-to-archive-snaps-from-android-plus-mac-systems-for-2024/"><u>[Updated] How to Archive Snaps From Android + Mac Systems for 2024</u></a></li>
-<li><a href="https://app-tips.techidaily.com/boost-your-programming-speed-securely-with-generative-ai-insights-and-cautions-from-zdnet/"><u>Boost Your Programming Speed Securely with Generative AI - Insights and Cautions From ZDNet</u></a></li>
-<li><a href="https://win-able.techidaily.com/boost-your-valheim-experience-by-eliminating-high-latency-on-windows-systems/"><u>Boost Your Valheim Experience by Eliminating High Latency on Windows Systems</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-oppo-reno-10-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-reclaim-your-cash-the-fb-reimbursement-route/"><u>How to Reclaim Your Cash: The FB Reimbursement Route</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-exit-from-facebook-groups-a-step-by-step-guide/"><u>Navigating Exit From Facebook Groups: A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-social-media-for-professional-success-5-ways/"><u>Navigating Social Media for Professional Success - #5 Ways</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/utorial-broadcasting-on-youtube-from-home-for-2024/"><u>OBS Tutorial Broadcasting on Youtube From Home for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/quick-solutions-how-to-repair-google-hangouts-when-your-mic-goes-silent/"><u>Quick Solutions: How to Repair Google Hangouts When Your Mic Goes Silent</u></a></li>
-<li><a href="https://facebook.techidaily.com/sleuthing-in-the-social-web-unveiling-phony-accounts/"><u>Sleuthing in the Social Web: Unveiling Phony Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-facebook-through-its-transparent-governance-space/"><u>Understanding Facebook Through Its Transparent Governance Space</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-top-15-youtube-sources-for-sci-education/"><u>[New] 2024 Approved Discover Top 15 YouTube Sources for Sci-Education</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-comprehensive-roadmap-to-effective-reddit-sharing/"><u>2024 Approved The Comprehensive Roadmap to Effective Reddit Sharing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-ins-and-outs-of-earning-from-youtube/"><u>2024 Approved The Ins and Outs of Earning From YouTube</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/23-chatgpt-driven-solutions-for-crafting-business-emails/"><u>23 ChatGPT-Driven Solutions for Crafting Business Emails</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/comprehensive-guide-to-disfavoring-all-tunes-in-your-spotify-library/"><u>Comprehensive Guide to Disfavoring All Tunes in Your Spotify Library</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-page-privacy-control-mastery/"><u>Facebook Page Privacy Control Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-ai-picturing-words-mimicking-styles/"><u>Facebook Unveils AI: Picturing Words, Mimicking Styles</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-of-expression-say-no-to-facebook-tagged-photos/"><u>Freedom of Expression: Say No to Facebook Tagged Photos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-motorola-edge-40-pro-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Motorola Edge 40 Pro to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-revitalize-the-credential-of-your-social-network/"><u>How to Revitalize the Credential of Your Social Network</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-oneplus-open-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring OnePlus Open to PC? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transforming-srt-files-into-text-a-speedy-expertise-guide/"><u>In 2024, Transforming SRT Files Into Text A Speedy Expertise Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/lockdown-stealth-mode-activated-on-your-fb-feed/"><u>Lockdown: Stealth Mode Activated on Your FB Feed</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-poco-x5-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/pushing-boundaries-innovative-posts-using-ripl/"><u>Pushing Boundaries: Innovative Posts Using Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-apps-next-big-leap-reviving-instagram/"><u>Social Apps' Next Big Leap: Reviving Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-6-advantages-establishing-a-facebook-community-hub/"><u>Top 6 Advantages: Establishing a Facebook Community Hub</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/transform-your-car-into-a-mobile-gaming-hub-with-intels-arc-a760a-gpu-featuring-28-xe-cores-expansive-16gb-gddr6-storage-and-optimized-energy-consumption-fo7/"><u>Transform Your Car Into a Mobile Gaming Hub with Intel's Arc A760A GPU: Featuring 28 Xe-Cores, Expansive 16GB GDDR6 Storage, and Optimized Energy Consumption for Elite Gaming Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-gets-in-access-to-facebook-neighborhoods-explained/"><u>Who Gets In? - Access to Facebook Neighborhoods Explained</u></a></li>
 </ul></div>
 

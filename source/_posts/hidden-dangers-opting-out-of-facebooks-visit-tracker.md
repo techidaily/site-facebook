@@ -1,7 +1,7 @@
 ---
 title: "Hidden Dangers: Opting Out of Facebook's Visit Tracker"
-date: 2024-11-02T00:00:36.361Z
-updated: 2024-11-06T17:35:51.752Z
+date: 2024-11-16T17:46:03.167Z
+updated: 2024-11-17T18:02:26.782Z
 tags:
   - facebook
 categories:
@@ -25,6 +25,13 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 * [How Facebook's Link History Feature Works](#how-facebook-39-s-link-history-feature-works)
 * [How to Check if You've Opted In to Facebook's Link History](#how-to-check-if-you-39-ve-opted-in-to-facebook-39-s-link-history)
 * [How to Disable Link History on Facebook](#how-to-disable-link-history-on-facebook)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -53,22 +60,15 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 
 ![Menu section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/menu-section-of-the-facebook-app.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
@@ -76,13 +76,6 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 Close
 
  If you see a screen prompting you to**Allow link history** , you haven't opted in yet. However, if you see a list of links you've visited before, you have already opted into use Facebook's Link History feature.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Disable Link History on Facebook
 
@@ -95,13 +88,20 @@ Close
 
 ![Settings and Privacy section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/settings-and-privacy-section-of-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
@@ -129,22 +129,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-iphoneandroids-best-5-multimedia-capturing-apps-reviewed/"><u>[New] 2024 Approved IPhone/Android's Best 5 Multimedia Capturing Apps Reviewed</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ridging-the-gap-integrating-spotify-and-youtube-music-playlists-for-2024/"><u>[New] Bridging the Gap Integrating Spotify and YouTube Music Playlists for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-flipping-currencies-through-cosmetics-content/"><u>[New] In 2024, Flipping Currencies Through Cosmetics Content</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-budget-friendly-miniature-aerials-review-for-2024/"><u>[Updated] Budget-Friendly Miniature Aerials Review for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-chuckle-and-sob-with-these-top-10-instagram-meme-collectives/"><u>[Updated] Chuckle & Sob with These Top 10 Instagram Meme Collectives</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-eagle-eye-expedition-the-ultimate-guide-to-fps-game-selection/"><u>[Updated] In 2024, Eagle-Eye Expedition - The Ultimate Guide to FPS Game Selection</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-step-by-step-process-to-create-impressive-gopro-timelapses/"><u>2024 Approved Step-by-Step Process to Create Impressive GoPro Timelapses</u></a></li>
-<li><a href="https://facebook.techidaily.com/achieve-prestige-exclusive-badge-from-meta/"><u>Achieve Prestige: Exclusive Badge From Meta</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/deciphering-and-fixing-incompatible-input-warnings-on-your-screen-display/"><u>Deciphering and Fixing Incompatible Input Warnings on Your Screen Display</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dialogues-power-7-social-benefits-explored/"><u>Digital Dialogue’s Power: 7 Social Benefits Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-board-plans-trump-suspension-reevaluation/"><u>FB Board Plans Trump Suspension Reevaluation</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Apple iPhone 13 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/immediate-steps-for-restoring-and-protecting-your-fb-profile/"><u>Immediate Steps for Restoring & Protecting Your FB Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-american-viewpoint-social-networkings-dark-side/"><u>The American Viewpoint: Social Networking's Dark Side</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-engagement-building-lasting-digital-connections/"><u>The Art of Engagement: Building Lasting Digital Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-rise-of-metaai-vs-typical-chatbot-platforms/"><u>The Rise of MetaAI vs Typical Chatbot Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/vaccination-push-via-fb-twittersphere-and-snaps-by-jolie/"><u>Vaccination Push via FB, Twittersphere and Snaps by Jolie</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-the-essential-camera-toolkit-for-yt-enthusiasts/"><u>[New] 2024 Approved The Essential Camera Toolkit for YT Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-boosting-earning-potential-on-youtube-shorts/"><u>[New] In 2024, Boosting Earning Potential on YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-video-production-pro-tips-incorporating-audio-into-youtube-content/"><u>[Updated] Video Production Pro Tips Incorporating Audio Into YouTube Content</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/geminis-landmark-achievement-1m-tokens-reimagined/"><u>Gemini's Landmark Achievement: $1M Tokens Reimagined</u></a></li>
+<li><a href="https://facebook.techidaily.com/green-gridlock-lifted-complete-shift-to-renewables-for-fb/"><u>Green Gridlock Lifted: Complete Shift to Renewables for FB</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-6-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone 6? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instantly-delete-your-fb-push-and-pop-up-notifications/"><u>Instantly Delete Your FB Push and Pop-Up Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/masterclass-rejuvenating-your-fb-passphrase/"><u>Masterclass: Rejuvenating Your FB Passphrase</u></a></li>
+<li><a href="https://facebook.techidaily.com/present-owners-of-the-social-media-giant/"><u>Present Owners of the Social Media Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dos-and-donts-of-followingunfollowing-on-facebook/"><u>The Do's and Don'ts of Following/Unfollowing on Facebook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-poco-f5-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Poco F5 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unshackling-from-social-networking-disabling-or-deleting-your-page/"><u>Unshackling From Social Networking: Disabling or Deleting Your Page</u></a></li>
 </ul></div>
 

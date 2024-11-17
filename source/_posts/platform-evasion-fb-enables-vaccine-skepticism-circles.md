@@ -1,7 +1,7 @@
 ---
 title: "Platform Evasion: FB Enables Vaccine Skepticism Circles"
-date: 2024-09-01T03:49:57.358Z
-updated: 2024-09-02T03:49:57.358Z
+date: 2024-11-11T17:31:03.062Z
+updated: 2024-11-17T17:27:49.991Z
 tags:
   - facebook
 categories:
@@ -37,6 +37,19 @@ thumbnail: https://thmb.techidaily.com/07e687f8419c4806cb630c22e1fb9dad311423267
 
  The company also did not detail how long the frame had been active, nor how many users viewed/used it. So, it's very possible that hundreds—maybe even thousands—of users have been exposed to the potentially harmful message it promotes.
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook vs. Pandemic Misinformation
 
  It's become pretty normal to see the words "Facebook" and "misinformation" in the same headline. Surely that's something that the team behind the platform wants to change, but their approach needs to either get smarter or get more aggressive for that to happen.
@@ -45,14 +58,11 @@ thumbnail: https://thmb.techidaily.com/07e687f8419c4806cb630c22e1fb9dad311423267
 
  It wasn't too long ago that[Facebook released profile frames in support of getting vaccinated](https://www.makeuseof.com/facebooks-latest-profile-frames-encourage-friends-get-covid-19-vaccines/) . Perhaps the company should've checked for the anti-vax frames when adding those.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -61,8 +71,24 @@ thumbnail: https://thmb.techidaily.com/07e687f8419c4806cb630c22e1fb9dad311423267
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-sprinkle-spirits-into-your-screens-animated-text-techniques/"><u>[New] In 2024, Sprinkle Spirits Into Your Screens Animated Text Techniques</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-top-quality-video-uplift-immaculate-resolution/"><u>[Updated] Top Quality Video Uplift Immaculate Resolution</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-empires-edge-scoring-the-ultimate-7-grand-wars/"><u>2024 Approved Empire's Edge Scoring the Ultimate 7 Grand Wars</u></a></li>
+<li><a href="https://facebook.techidaily.com/30-ways-breaking-up-with-friends-on-fb-can-improve-life/"><u>30 Ways Breaking Up with Friends on FB Can Improve Life</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/ace-tools-review-6-superior-options-for-photo-backdrop-cleanup/"><u>Ace Tools Review - 6 Superior Options for Photo Backdrop Cleanup</u></a></li>
+<li><a href="https://facebook.techidaily.com/ban-overturned-social-network-resurgence-of-counter-immunization-spaces/"><u>Ban Overturned: Social Network Resurgence of Counter-Immunization Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-your-brand-at-work-with-social-networks/"><u>Building Your Brand at Work with Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/cease-comments-tips-for-stopping-discussions-on-fb-posts/"><u>Cease Comments: Tips for Stopping Discussions on FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/channel-connectivity-a-new-era-for-fb-groups/"><u>Channel Connectivity: A New Era for FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/chat-chambers-made-easy-top-tips-for-texting-neophytes/"><u>Chat Chambers Made Easy: Top Tips for Texting Neophytes</u></a></li>
+<li><a href="https://facebook.techidaily.com/closing-a-chapter-on-social-media-deleting-or-memorializing-late-friends/"><u>Closing a Chapter on Social Media: Deleting or Memorializing Late Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-stunning-fb-page-covers-a-step-by-step-guide/"><u>Crafting Stunning FB Page Covers: A Step-by-Step Guide</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723210421278-expert-advice-on-handling-unavailable-dhcp-servers-get-connected-again/"><u>Expert Advice on Handling Unavailable DHCP Servers - Get Connected Again</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-itel-p40plus-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Itel P40+</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/ritrasformare-audio-mp3-nel-video-mov-online-e-libero-con-moveavi/"><u>Ritrasformare Audio MP3 Nel Video MOV Online E Libero Con Moveavi</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-guide-to-youtube-copyright-for-2024/"><u>The Ultimate Guide to YouTube Copyright for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-ultimate-handbook-to-metaverse-promotion/"><u>The Ultimate Handbook to Metaverse Promotion</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

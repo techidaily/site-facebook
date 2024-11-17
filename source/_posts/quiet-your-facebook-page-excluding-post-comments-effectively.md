@@ -1,7 +1,7 @@
 ---
 title: "Quiet Your Facebook Page: Excluding Post Comments Effectively"
-date: 2024-11-03T19:38:56.333Z
-updated: 2024-11-06T22:29:39.735Z
+date: 2024-11-15T17:16:16.123Z
+updated: 2024-11-17T16:45:33.099Z
 tags:
   - facebook
 categories:
@@ -34,18 +34,18 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 
  You can choose between using the Facebook mobile app on your phone or its web version on a PC to manage comments on your profile posts. This guide will show you how to do using both versions.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Manage Comments on the Facebook App
 
  Here's how to manage comments on your posts using the Facebook mobile app:
 
 ![screenshot showing how to manage facebook post comments](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-facebook-post-comments.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![screenshot showing how to manage comments on facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-comments-on-facebook-post.jpg)
 
@@ -65,13 +65,6 @@ Close
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Click on**Settings and privacy > Settings > Privacy** .
 * Select**Public Posts** on the side menu.
 
@@ -82,19 +75,19 @@ Close
 ![screenshot of facebook post filters and tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-post-filters-and-tools-page.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  And that's all you need to manage comments on your Facebook post.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Disable Post Comments in a Facebook Group
@@ -104,6 +97,13 @@ Close
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -136,20 +136,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-through-the-lens-sage-advice-for-improving-your-edits/"><u>[New] 2024 Approved Through the Lens Sage Advice for Improving Your Edits</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-cut-to-perfection-an-in-depth-look-at-vivacut-for-24/"><u>[New] In 2024, Cut to Perfection An In-Depth Look at VivaCut for '24</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-changing-up-the-sound-how-to-customize-your-iphone-tunes/"><u>[Updated] Changing Up the Sound How to Customize Your iPhone Tunes</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-make-a-youtube-intro-with-best-youtube-intro-makers/"><u>[Updated] How to Make a YouTube Intro With Best YouTube Intro Makers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-live-streaming-on-mac-os-costless-option/"><u>2024 Approved Live Streaming on Mac OS - Costless Option</u></a></li>
-<li><a href="https://facebook.techidaily.com/could-second-life-make-a-comeback-as-we-head-into-the-metaverse/"><u>Could Second Life Make a Comeback as We Head Into the Metaverse?</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/essential-tweeter-pro-application-best-tools-and-programs-ranked/"><u>Essential Tweeter Pro Application: Best Tools & Programs Ranked</u></a></li>
-<li><a href="https://facebook.techidaily.com/explaining-the-hidden-meaning-behind-fb-messenger-symbols/"><u>Explaining the Hidden Meaning Behind FB Messenger Symbols</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Infinix Hot 40 Pro? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/interconnected-evolution-4-ways-platforms-altered-society/"><u>Interconnected Evolution: 4 Ways Platforms Altered Society</u></a></li>
-<li><a href="https://facebook.techidaily.com/real-time-warning-for-hidden-screen-captures/"><u>Real-Time Warning for Hidden Screen Captures</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/replica-di-un-supporto-usb-avviabile-da-un-altro-in-sistema-operativo-windows-7/"><u>Replica Di Un Supporto USB Avviabile Da Un Altro in Sistema Operativo Windows 7</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-purity-drive-excluding-polityfaith-talk/"><u>Social Media Purity Drive: Excluding Polity/Faith Talk</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-ultimate-checklist-pre-purchase-considerations-for-desktops/"><u>The Ultimate Checklist: Pre-Purchase Considerations for Desktops</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150176344-watch-for-verdict-facebook-board-to-decide-on-presidential-block/"><u>Watch For Verdict: Facebook Board to Decide on Presidential Block.</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-fostering-self-assurance-against-virtual-hostility/"><u>[New] Fostering Self-Assurance Against Virtual Hostility</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-free-iphones-masterclass-perfect-your-pictures-with-simple-edits/"><u>[New] FREE iPhones Masterclass Perfect Your Pictures with Simple Edits</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-photo-your-desktop-windows-edition/"><u>[New] In 2024, Photo Your Desktop Windows Edition</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-edit-with-ease-prime-10-converters-unveiled/"><u>[Updated] Edit with Ease Prime 10 Converters Unveiled</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-maximize-offline-fb-usage-with-free-downloaders/"><u>[Updated] Maximize Offline FB Usage with Free Downloaders</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-art-of-compelling-podcast-summaries-explained/"><u>[Updated] The Art of Compelling Podcast Summaries Explained</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/evolution-through-pixels-the-story-behind-windows-wallpaper-design/"><u>Evolution Through Pixels: The Story Behind Windows Wallpaper Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-shutdown-the-data-dilemma-continues/"><u>Facebook Shutdown: The Data Dilemma Continues</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-a-meta-account-more-private-than-a-facebook-account-for-oculus-quest-2/"><u>Is a Meta Account More Private Than a Facebook Account for Oculus Quest 2?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-digital-divide-metaverse-and-vrs-6-key-distinctions/"><u>Navigating The Digital Divide: Metaverse & VR's 6 Key Distinctions</u></a></li>
+<li><a href="https://facebook.techidaily.com/real-time-notifications-for-lost-chat-images-on-messenger/"><u>Real-Time Notifications for Lost Chat Images on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/reverse-the-ruin-how-to-fix-mistakenly-removed-fb-items/"><u>Reverse the Ruin: How to Fix Mistakenly Removed FB Items</u></a></li>
 </ul></div>
 

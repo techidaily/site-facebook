@@ -1,7 +1,7 @@
 ---
 title: WhatsApp and Facebook Clash as Germany Imposes New Data Protection Order
-date: 2024-09-01T03:52:08.140Z
-updated: 2024-09-02T03:52:08.140Z
+date: 2024-11-14T17:30:21.359Z
+updated: 2024-11-17T17:25:31.225Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
 
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Where Does Facebook Go From Here?
 
  Facebook already delayed the rollout of WhatsApp's new privacy policy after an online backlash against it. With the policy once again being called into question, perhaps it would be wise for Facebook to reconsider WhatsApp's new privacy policy.
@@ -44,22 +51,23 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Everyone Is Gunning for Facebook Right Now
 
  Facebook's moves are getting blocked left, right, and center. The company has been asked to[cancel its plans for an Instagram for kids](https://www.makeuseof.com/attorneys-general-facebook-instagram-for-children/) ,[India is investigating the new WhatsApp policy](https://www.makeuseof.com/india-investigating-whatsapp-privacy-policy/) , and[Apple has been coming for Facebook's ad tracking](https://www.makeuseof.com/zuckerberg-apple-privacy-push/) .
 
  So, with everyone seemingly gunning for Facebook right now, the social network needs to tread carefully in order to avoid yet another PR disaster.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -68,4 +76,16 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-horizon-capture-setup-vr/"><u>[Updated] 2024 Approved Horizon Capture Setup VR</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/complete-walkthrough-navigating-and-winning-in-diablo-immortal-for-mac-users/"><u>Complete Walkthrough: Navigating and Winning in Diablo Immortal for Mac Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-connections-the-essential-guide-to-social-integration-for-xbox-players/"><u>Crafting Connections: The Essential Guide to Social Integration for Xbox Players</u></a></li>
+<li><a href="https://fox-http.techidaily.com/harmony-match-maker/"><u>Harmony Match Maker</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/insights-and-pricing-details-on-upcoming-google-tv-streaming-device-release-dates-and-features-revealed/"><u>Insights & Pricing Details on Upcoming Google TV Streaming Device - Release Dates & Features Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/sticker-ads-in-facebook-stories-test-for-marketers/"><u>Sticker Ads in Facebook Stories: Test for Marketers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-4-ways-for-apple-iphone-xs-to-mac-mirroring-drfone-by-drfone-ios/"><u>Top 4 Ways for Apple iPhone XS to Mac Mirroring | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-public-discontent-with-social-media-giants/"><u>Unraveling Public Discontent with Social Media Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-unveils-its-covert-strategy-for-free-services/"><u>WhatsApp Unveils Its Covert Strategy for Free Services</u></a></li>
+</ul></div>
 

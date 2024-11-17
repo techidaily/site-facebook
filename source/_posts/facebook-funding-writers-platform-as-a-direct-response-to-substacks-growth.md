@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2024-11-06T09:13:06.953Z
-updated: 2024-11-07T04:06:42.749Z
+date: 2024-11-11T16:12:43.981Z
+updated: 2024-11-17T17:32:41.288Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,16 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -66,22 +72,22 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/updated-saving-big-on-vr-equipment-from-china/"><u>[Updated] Saving Big on VR Equipment From China</u></a></li>
-<li><a href="https://techidaily.com/1724312958750-abbyy/"><u>「言語無関係な請求書管理 - フレックスキャプチャABBYYの日本語対応完了！」</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-social-medias-biggest-loser-facebooks-users/"><u>Analyzing Social Media's Biggest Loser: Facebook’s Users</u></a></li>
-<li><a href="https://driver-install.techidaily.com/blend-hp-envy-5530-software-into-win10-device/"><u>Blend HP Envy 5530 Software Into Win10 Device</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpts-role-in-enhancing-creative-writing-skills-6-techniques-to-try/"><u>ChatGPT's Role in Enhancing Creative Writing Skills: 6 Techniques to Try</u></a></li>
-<li><a href="https://facebook.techidaily.com/curbing-the-ban-facebook-board-assessment-of-executive-decision/"><u>Curbing the Ban: Facebook Board Assessment of Executive Decision.</u></a></li>
-<li><a href="https://facebook.techidaily.com/cutting-edge-support-for-nfts-in-meta-drops-trial-phase/"><u>Cutting-Edge Support for NFTs in Meta Drops Trial Phase</u></a></li>
-<li><a href="https://facebook.techidaily.com/did-a-facebook-error-expose-our-conversational-numbers-unintentionally/"><u>Did a Facebook Error Expose Our Conversational Numbers Unintentionally?</u></a></li>
-<li><a href="https://facebook.techidaily.com/has-your-phone-number-been-leaked-through-facebook/"><u>Has Your Phone Number Been Leaked Through Facebook?</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-105-classic-phone-without-pin-by-drfone-android/"><u>How to Unlock Nokia 105 Classic Phone without PIN</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/imessageiphonepc/"><u>IMessage通知のデジタルアーカイブ化:iPhoneからPCへの簡単手順</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-10-must-have-strategies-for-podcast-visuals-excellence/"><u>In 2024, 10 Must-Have Strategies for Podcast Visuals Excellence</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-full-exploration-new-features-in-videoshow-app-24/"><u>In 2024, Full Exploration New Features in VideoShow App '24</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-mastery-unlock-the-potential-of-hashtags-for-fb-success/"><u>Social Media Mastery: Unlock the Potential of Hashtags for FB Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-quiet-after-deactivating-your-fb-page/"><u>The Quiet After Deactivating Your FB Page</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-do-you-see-these-specific-fb-advertisements/"><u>Why Do You See These Specific FB Advertisements?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-unveiling-whatsapps-call-conversations/"><u>[New] In 2024, Unveiling WhatsApp's Call Conversations</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-the-beginners-guide-to-pioneering-minecraft-recordings-on-mac/"><u>[Updated] 2024 Approved The Beginner's Guide to Pioneering Minecraft Recordings on Mac</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-deep-dive-into-apps-with-az-recorder/"><u>[Updated] Deep Dive Into Apps with AZ Recorder</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-minecraft-homestead-essentials-6-10/"><u>[Updated] Minecraft Homestead Essentials #6-10</u></a></li>
+<li><a href="https://facebook.techidaily.com/11-common-facebook-problems-and-errors-and-how-to-fix-them/"><u>11 Common Facebook Problems and Errors (and How to Fix Them)</u></a></li>
+<li><a href="https://facebook.techidaily.com/12-proven-methods-to-skyrocket-engagement-in-social-networking/"><u>12 Proven Methods to Skyrocket Engagement in Social Networking</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-honor-magic-5-pro-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Honor Magic 5 Pro Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-plan-to-transform-your-online-biography/"><u>A Step-by-Step Plan to Transform Your Online Biography</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-screen-a-year-without-a-new-oculus-quest/"><u>Beyond the Screen: A Year Without a New Oculus Quest</u></a></li>
+<li><a href="https://facebook.techidaily.com/captivating-audiences-pages-and-group-polling-mastery/"><u>Captivating Audiences: Pages & Group Polling Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-shadowbans-and-their-evasion-techniques/"><u>Comprehensive Guide to Shadowbans & Their Evasion Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensively-exploring-metas-latest-privacy-regulations/"><u>Comprehensively Exploring Meta’s Latest Privacy Regulations</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-lives-on-even-in-fbs-demise/"><u>Data Lives On, Even in FB's Demise</u></a></li>
+<li><a href="https://win-blog.techidaily.com/dvd-movavi/"><u>DVD에서 영상/음악 파일로의 원활한 전환: Movavi 동영상 변퓨터 사용법</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-sites-for-buying-google-pixel-tunes/"><u>In 2024, Top Sites for Buying Google Pixel Tunes</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-paradox-of-productivity-is-generative-ai-causing-extra-jobs-according-to-zdnet/"><u>The Paradox of Productivity: Is Generative AI Causing Extra Jobs, According to ZDNet?</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/understanding-the-causes-of-sluggishness-how-to-speed-up-your-google-drive-uploads/"><u>Understanding the Causes of Sluggishness: How to Speed Up Your Google Drive Uploads</u></a></li>
 </ul></div>
 

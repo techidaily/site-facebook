@@ -1,7 +1,7 @@
 ---
 title: Giphy Under Threat? Possible Facebook Divestment Unpacked
-date: 2024-10-31T09:40:35.114Z
-updated: 2024-11-06T16:52:49.752Z
+date: 2024-11-10T16:56:26.951Z
+updated: 2024-11-17T16:29:06.044Z
 tags:
   - facebook
 categories:
@@ -41,16 +41,10 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Meta's Appeal to Keep Giphy
@@ -58,10 +52,10 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
@@ -77,10 +71,10 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
@@ -106,24 +100,24 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-enhance-your-profile-with-free-imagery/"><u>[Updated] 2024 Approved Enhance Your Profile with Free Imagery</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-earnings-expertise-in-streams-a-comparative-study/"><u>2024 Approved Earnings Expertise in Streams A Comparative Study</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-excessive-ad-content-tailoring-on-social-networks/"><u>Cut Excessive Ad Content Tailoring on Social Networks</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/experts-choice-of-ultimate-magsafe-wallets-comprehensive-testing-and-reviews-gadgetmasters/"><u>Experts' Choice of Ultimate MagSafe Wallets : Comprehensive Testing and Reviews | GadgetMasters</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-quizzes-a-disguised-threat-to-security/"><u>Facebook Quizzes: A Disguised Threat to Security?</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/guida-facile-come-masterare-il-processo-di-duplicazione-dei-dvd-su-un-macbook-pro-o-air/"><u>Guida Facile: Come Masterare Il Processo Di Duplicazione Dei DVD Su Un MacBook Pro O Air</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-avoiding-misdated-memories-with-exact-times/"><u>In 2024, Avoiding Misdated Memories with Exact Times</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Nokia C12 Pro? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/interactive-isles-a-guide-to-the-leading-20-online-communities/"><u>Interactive Isles: A Guide to the Leading 20 Online Communities</u></a></li>
-<li><a href="https://facebook.techidaily.com/joint-endeavor-facebook-advances-rust-development/"><u>Joint Endeavor: Facebook Advances Rust Development</u></a></li>
-<li><a href="https://win-forum.techidaily.com/proven-techniques-clearing-out-user-accounts-on-your-windows-11-machine-with-the-help-of-revouninstaller/"><u>Proven Techniques: Clearing Out User Accounts on Your Windows 11 Machine with the Help of RevoUninstaller</u></a></li>
-<li><a href="https://howto.techidaily.com/solved-warning-camera-failed-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-5-best-places-to-find-freelance-work/"><u>The 5 Best Places to Find Freelance Work</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-silent-space-after-social-goodbyes/"><u>The Silent Space After Social Goodbyes</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/turboinsta-video-boosting-online-and-mobile-fixes-for-2024/"><u>TurboInsta Video Boosting Online & Mobile Fixes for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unchain-yourself-avoid-being-tagged-in-photos/"><u>Unchain Yourself: Avoid Being Tagged in Photos</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-secrets-of-fbs-curated-content/"><u>Unraveling the Secrets of Fb's Curated Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/wiping-your-digital-history-from-facebook-scope/"><u>Wiping Your Digital History From Facebook Scope</u></a></li>
-<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-on-iphone-se-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes On iPhone SE?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-manual-for-crafting-youtube-playlists/"><u>[New] 2024 Approved How-To Manual for Crafting YouTube Playlists</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-idea-to-screen-smartphone-video-creation-tips-for-2024/"><u>[New] From Idea to Screen Smartphone Video Creation Tips for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-essential-tips-for-navigating-zoom-on-win11-systems/"><u>[Updated] 2024 Approved Essential Tips for Navigating Zoom on Win11 Systems</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-audio-overhaul-methods-for-content-creators-online/"><u>[Updated] Audio Overhaul Methods for Content Creators Online</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-lesser-known-to-youtube-star-amassing-an-army-of-admirers/"><u>[Updated] From Lesser Known to YouTube Star Amassing an Army of Admirers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-best-selling-oculus-rift-gaming-experiences/"><u>2024 Approved The Best-Selling Oculus Rift Gaming Experiences</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-online-identity-with-facebook-page-update/"><u>Enhancing Online Identity with Facebook Page Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-5-key-ways-to-leverage-facebook-in-your-career/"><u>Exploring 5 Key Ways to Leverage Facebook in Your Career</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-now-powered-entirely-by-renewable-energy/"><u>Facebook Is Now Powered Entirely by Renewable Energy</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-championed-by-artists-the-top-6-nft-maker-tools/"><u>In 2024, Championed by Artists The Top 6 NFT Maker Tools</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-tecno-spark-20-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Tecno Spark 20 Phone FRP Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-oculus-quest-more-secure-on-meta-or-fb-platforms/"><u>Is Oculus Quest More Secure on Meta or FB Platforms?</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-vs-virtual-reality-exploring-6-diverging-paradigms/"><u>Metaverse Vs. Virtual Reality: Exploring 6 Diverging Paradigms</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-past-bondings-with-facebook-friends/"><u>Navigate Past Bondings with Facebook Friends</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/securing-your-work-top-10-photo-watermark-solutions-for-2024/"><u>Securing Your Work Top 10 Photo Watermark Solutions for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/staying-safe-from-social-engineering-snares/"><u>Staying Safe From Social Engineering Snares</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fight-for-freedom-trumps-legal-challenge-to-tech-firms/"><u>The Fight for Freedom: Trump's Legal Challenge to Tech Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-popularity-phenomenon-elevate-your-virtual-forum/"><u>The Popularity Phenomenon: Elevate Your Virtual Forum</u></a></li>
+<li><a href="https://games-able.techidaily.com/ultimate-value-gaming-motherboard-deals/"><u>Ultimate Value Gaming Motherboard Deals</u></a></li>
 </ul></div>
 

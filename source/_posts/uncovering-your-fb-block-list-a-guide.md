@@ -1,7 +1,7 @@
 ---
 title: "Uncovering Your FB Block List: A Guide"
-date: 2024-11-04T23:37:41.318Z
-updated: 2024-11-06T23:06:15.995Z
+date: 2024-11-13T17:14:11.565Z
+updated: 2024-11-17T16:59:21.436Z
 tags:
   - facebook
 categories:
@@ -45,16 +45,10 @@ Close
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Your Blocked List on the Web
@@ -62,16 +56,10 @@ Close
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
@@ -84,10 +72,10 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can People Tell if You've Blocked Them on Facebook?
@@ -99,10 +87,10 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
@@ -124,24 +112,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-amazing-appraisal-and-backup-options/"><u>[New] Amazing Appraisal & Backup Options</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ioneering-online-video-secrets-for-youtubes-spherical-livestreaming-techniques-for-2024/"><u>[New] Pioneering Online Video Secrets for YouTube's Spherical Livestreaming Techniques for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-behind-the-scenes-top-picks-of-monitors-and-tvs-for-xbox-series-x-gamers/"><u>[Updated] Behind-the-Scenes Top Picks of Monitors & TVs for Xbox Series X Gamers</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-top-choices-360-video-equipment-for-livestreaming-platforms-for-2024/"><u>[Updated] Top Choices 360° Video Equipment for Livestreaming Platforms for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-5-useful-tool-to-brighten-video-online/"><u>2024 Approved 5 Useful Tool to Brighten Video Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/app-accessibility-at-no-cost-understanding-snapchats-tracking-practices/"><u>App Accessibility at No Cost: Understanding Snapchat’s Tracking Practices</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-remembrance-and-respect-on-social-media-post-death/"><u>Balancing Remembrance and Respect on Social Media Post-Death</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-approach-for-changing-your-fb-visual-identity/"><u>Best Approach for Changing Your FB Visual Identity</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-barriers-learn-these-30-social-acronyms-fast/"><u>Breaking Down Barriers: Learn These 30 Social Acronyms Fast</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-digital-golds-guardians-cryptocurrency-stability-coins/"><u>Decoding Digital Gold's Guardians: Cryptocurrency Stability Coins</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-purpose-and-effect-of-fbcta/"><u>Dissecting the Purpose and Effect of FBCTA</u></a></li>
-<li><a href="https://common-error.techidaily.com/guide-repairing-non-responsive-fn-key-issues-in-dell-notebooks-and-desktops/"><u>Guide: Repairing Non-Responsive Fn Key Issues in Dell Notebooks and Desktops</u></a></li>
-<li><a href="https://win-studio.techidaily.com/impostazione-rapida-e-facile-per-la-funzione-di-mirroring-su-aomei-backupper-passaggi-dettagliati-per-un-backup-perfetto/"><u>Impostazione Rapida E Facile per La Funzione Di Mirroring Su AOMEI Backupper: Passaggi Dettagliati per Un Backup Perfetto</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-a-guide-to-using-snapchats-influencer-showcase/"><u>In 2024, A Guide to Using Snapchat's Influencer Showcase</u></a></li>
-<li><a href="https://facebook.techidaily.com/picture-perfection-social-strategies-for-successful-profiles/"><u>Picture Perfection: Social Strategies for Successful Profiles</u></a></li>
-<li><a href="https://network-issues.techidaily.com/reversing-win11-dark-screen-anomaly/"><u>Reversing Win11 Dark Screen Anomaly</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/transform-your-digital-self-updating-status-and-avatars-on-discord-for-2024/"><u>Transform Your Digital Self Updating Status & Avatars on Discord for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/weighing-the-advantages-and-disadvantages-of-facebook-for-app-logins/"><u>Weighing the Advantages and Disadvantages of Facebook for App Logins</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-is-facebook-messenger-going-to-offer-end-to-end-encryption/"><u>When Is Facebook Messenger Going to Offer End-to-End Encryption?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-apex-chart-seeker-monitor-most-viewed-videos-for-2024/"><u>[New] Apex Chart Seeker Monitor Most Viewed Videos for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-adeptness-at-mobile-app-development-for-luts/"><u>[Updated] Adeptness at Mobile App Development for LUTs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-common-issues-with-youtube-shorts-thumbnails/"><u>[Updated] Common Issues with YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-ultimate-selection-of-omnidirectional-recording-devices-for-2024/"><u>[Updated] Ultimate Selection of Omnidirectional Recording Devices for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Samsung Galaxy S23 FE? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-oneplus-11r-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass OnePlus 11R FRP Without Computer</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/infusing-your-charm-astrology-inspired-whatsapp-biographies/"><u>Infusing Your Charm – Astrology-Inspired WhatsApp Biographies</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-fb-shortcut-setup-guide/"><u>Mastering FB: Shortcut Setup Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-spontaneous-social-media-ousters/"><u>Navigating Spontaneous Social Media Ousters</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-2024-approved-best-tool-to-translate-youtube-video-to-arabic/"><u>New 2024 Approved Best Tool to Translate YouTube Video to Arabic</u></a></li>
+<li><a href="https://facebook.techidaily.com/saturation-point-is-facebook-there-now/"><u>Saturation Point – Is Facebook There Now?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-stitching-piecing-together-profile-and-group-links/"><u>Social Stitching: Piecing Together Profile & Group Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-networker-eliminating-public-view-of-fb-stories/"><u>The Invisible Networker: Eliminating Public View of Fb Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-power-dynamics-between-metaai-and-bots/"><u>Unraveling the Power Dynamics Between MetaAI and Bots</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: What Is a Facebook Cloning Scam?
-date: 2024-11-03T07:45:36.045Z
-updated: 2024-11-07T07:10:37.032Z
+date: 2024-11-16T16:22:03.960Z
+updated: 2024-11-17T17:42:07.695Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,19 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 
  The more they trick into adding them, the more legit their accounts will look like.
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Do Scammers Clone Accounts?
 
  When scammers reach out to these contacts, they might send a message with a phishing link they’ll ask contacts to click. And because your contacts trust, you there’s a chance they will click on that link.
@@ -48,13 +61,6 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 
  They’d say something about being in an accident, a particularly sticky situation, or an emergency. Then they’ll ask your friends to send money right away. Because your friends and family care about you and want to get you out of the situation fast, there’s a chance they’ll send the scammers money without thinking.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Facebook Cloning vs. Facebook Hacking
 
  Facebook cloning does not involve getting into your account using credentials they may have acquired through a data leak or another phishing attack.
@@ -62,13 +68,6 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  Unlike hacking, cloning simply means copying your account, then pretending to be you without gaining access to your real account.
 
  They will remain outside your Facebook; they can, however, use a fake version of your account to trick your friends into giving them important information. As such, after a cloning scam, they can hack your friends' accounts.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Check If Your Facebook Account Has Been Cloned
 
@@ -84,6 +83,13 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 
  There’s also a chance the scammers have already blocked you and you won’t find it when you search so ask your friends to find it for you.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Protect Yourself From Facebook Account Cloning
 
  Be mindful of what you share with people outside your friends' list and the platform. Remember that everything you share—photos, private information, friends list—that’s set to public can be seen by everyone on the internet.
@@ -95,10 +101,10 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  Also, set your friends list to private so scammers can’t target them.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Check If Your Facebook Account Is Public
@@ -112,10 +118,10 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  To exit "View As" mode, click**Exit View As** on the top right corner of the screen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What to Do If You Find a Cloned Facebook Account
@@ -145,21 +151,22 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-free-limit-breakers-for-every-story-lover/"><u>[New] 2024 Approved Free Limit Breakers for Every Story Lover</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-grandview-media-mastering-the-art-of-selecting-a-cms/"><u>[Updated] 2024 Approved Grandview Media Mastering the Art of Selecting a CMS</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-path-to-prominence-with-powerful-instagram-video-narratives/"><u>[Updated] In 2024, The Path to Prominence with Powerful Instagram Video Narratives</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-instant-image-clarity-picart-background-cleansing-hacks/"><u>2024 Approved Instant Image Clarity PicArt Background Cleansing Hacks</u></a></li>
-<li><a href="https://facebook.techidaily.com/american-public-consensus-social-medias-downside/"><u>American Public Consensus: Social Media's Downside</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-metaais-role-in-advancing-conversational-tech/"><u>Assessing MetaAI’s Role in Advancing Conversational Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/delving-deeper-real-numbers-of-facebook-leavers/"><u>Delving Deeper: Real Numbers of Facebook Leavers</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-governance-and-rulings-of-fbs-board/"><u>Dissecting The Governance and Rulings of FB's Board</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effective-solutions-dealing-with-a-broken-or-malfunctioning-headset-mic/"><u>Effective Solutions: Dealing With a Broken or Malfunctioning Headset Mic</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Vivo Y78 5G | Dr.fone</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/immediate-solutions-resolving-blank-folder-issues-in-windows-11/"><u>Immediate Solutions: Resolving Blank Folder Issues in Windows 11</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-most-popular-fb-videos-download-now/"><u>In 2024, Most Popular FB Videos - Download Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/precise-connections-curating-your-fb-circle/"><u>Precise Connections: Curating Your FB Circle</u></a></li>
-<li><a href="https://facebook.techidaily.com/scam-or-savvy-the-double-edged-sword-of-fb-cloning/"><u>Scam or Savvy? The Double-Edged Sword of FB Cloning</u></a></li>
-<li><a href="https://fox-info.techidaily.com/the-art-of-creating-spherical-shots-with-fisheye-lenses-for-2024/"><u>The Art of Creating Spherical Shots with Fisheye Lenses for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-rise-of-anti-tracking-sentiment-in-iphone-world/"><u>The Rise of Anti-Tracking Sentiment in iPhone World</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-detailed-insight-the-functionality-of-google-podcast-app/"><u>[Updated] In 2024, Detailed Insight The Functionality of Google Podcast App</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unlocking-imovies-potential-youtube-video-edition-excellence/"><u>[Updated] In 2024, Unlocking iMovie's Potential YouTube Video Edition Excellence</u></a></li>
+<li><a href="https://facebook.techidaily.com/hints-and-echoes-deciphering-the-art-of-vague-blogging/"><u>Hints & Echoes: Deciphering the Art of Vague Blogging</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-samsung-galaxy-s23-ultra-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Samsung Galaxy S23 Ultra Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-12-pro-to-the-previous-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 12 Pro to the Previous iOS System Version? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/intuitive-design-mastering-your-newsfeeds-appearance/"><u>Intuitive Design - Mastering Your Newsfeed's Appearance</u></a></li>
+<li><a href="https://facebook.techidaily.com/joe-just-waits-bringing-fb-snap-and-tweet-to-the-vax-scene/"><u>JOE JUST WAITS: Bringing FB, Snap, and Tweet to the Vax Scene</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-printer-settings-and-outputs-in-adobe-photoshop/"><u>Mastering Printer Settings and Outputs in Adobe Photoshop</u></a></li>
+<li><a href="https://program-issues.techidaily.com/mastering-the-fixes-for-warzones-flickering-challenges-expert-tips-inside/"><u>Mastering the Fixes for Warzone's Flickering Challenges – Expert Tips Inside</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/maximizing-productivity-6-chatgpt-strategies-for-remote-professionals/"><u>Maximizing Productivity: 6 ChatGPT Strategies for Remote Professionals</u></a></li>
+<li><a href="https://facebook.techidaily.com/opting-out-of-iphones-personal-data-harvesting/"><u>Opting Out of iPhones' Personal Data Harvesting</u></a></li>
+<li><a href="https://facebook.techidaily.com/patterns-in-digital-identity-theft/"><u>Patterns in Digital Identity Theft</u></a></li>
+<li><a href="https://fox-that.techidaily.com/resolving-not-delivered-errors-in-ios-messaging-a-guide/"><u>Resolving 'Not Delivered' Errors in iOS Messaging - A Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/second-lifes-potential-renaissance-as-we-navigate-the-metaverse/"><u>Second Life's Potential Renaissance as We Navigate The Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwritten-protocols-and-social-norms-on-facebook/"><u>Unwritten Protocols and Social Norms on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-is-the-facebook-whistleblower-and-what-did-they-say-on-60-minutes/"><u>Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-nokia-c12-pro-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Nokia C12 Pro Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 

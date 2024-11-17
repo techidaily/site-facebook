@@ -1,7 +1,7 @@
 ---
 title: Securely Engage with Friends on Facebook, Here’s How
-date: 2024-10-31T08:55:33.151Z
-updated: 2024-11-06T21:39:55.350Z
+date: 2024-11-16T17:31:51.834Z
+updated: 2024-11-17T17:33:58.385Z
 tags:
   - facebook
 categories:
@@ -40,16 +40,16 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * To tighten your security even further, you can add[two-factor authentication](https://www.facebook.com/security/2fac/setup/intro/) to your Facebook account. You can use an authentication app, receive an SMS message, or security key when logging in from an unrecognized browser or device.
 * Be made aware of any[unrecognized Facebook login attempts](https://www.makeuseof.com/tag/check-accessing-facebook-account/) by option to**Get alerts about unrecognized logins** under the**Setting up extra security** section.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2. Privacy
 
 ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
 
@@ -66,13 +66,6 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 ![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
 
 * Although you can review your tagged posts and photos elsewhere, you're able to adjust the global settings for these under the[Profile and tagging](https://www.facebook.com/settings?tab=timeline) tab. Here you can decide who can post on your profile.
@@ -80,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * If you want to further customize your profile settings, you can **hide comments containing certain words from your profile** by adding words, phrases, or emojis. This means the comments containing these words will remain visible only to those who wrote them, and their friends.
 * Allowing friends to tag you in photos or posts can be managed in the**Tagging** section. Here, you can limit who sees the posts you're tagged in, as well as the audience of the post.
 * Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4. Public Posts
 
@@ -92,9 +92,29 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * Some information on Facebook is always public, like your cover photos, profile pictures, and featured photos. You can manage who can like or comment on these, including public, friends of friends, or friends only.
 * If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5. Blocking
 
 ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: Paparacy/[Shutterstock](https://www.shutterstock.com/image-photo/moscow-russia-april-19-2018-logo-1071882503)
 
@@ -103,23 +123,9 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * To block someone from your Facebook and Facebook Messenger, you can add them to your**Block messages** list. You'll need to ensure you block their profile on Facebook too.
 * Nuisance apps you don't want to receive notifications for? Using the**Block app invites** and**Block apps** options, you can stop invites from certain people to apps, or stop notifications from specific apps altogether.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. Quick Tips
 
 ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
 
@@ -146,24 +152,22 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-maximizing-team-productivity-with-snap-camera-integration/"><u>[New] In 2024, Maximizing Team Productivity with Snap Camera Integration</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-youtube-integration-a-beginners-guide-to-google-meet/"><u>[New] In 2024, YouTube Integration A Beginner's Guide to Google Meet</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-revolutionize-your-laptop-experience-innovative-methods-for-screen-capture/"><u>[Updated] Revolutionize Your Laptop Experience Innovative Methods for Screen Capture</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-best-mac-screen-recorder-with-audio/"><u>2024 Approved Best Mac Screen Recorder with Audio</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-optimizing-fade-infade-out-routines/"><u>2024 Approved Optimizing Fade-In/Fade-Out Routines</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-for-unseen-messages-in-online-chats/"><u>Alert for Unseen Messages in Online Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-free-irreversible-disconnection-from-fb-community/"><u>Breaking Free: Irreversible Disconnection From FB Community</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-social-media-and-streaming-services-for-spotify/"><u>Bridging Social Media and Streaming Services for Spotify</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/download-adult-content-from-sunporno-the-ultimate-guide-to-free-movie-access/"><u>Download Adult Content From SunPorno: The Ultimate Guide to Free Movie Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-releases-ray-bans-stories-insights-and-pricing-info/"><u>Facebook Releases Ray-Bans Stories: Insights & Pricing Info</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-data-from-apple-iphone-13-mini-to-new-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How To Transfer Data from Apple iPhone 13 mini to New iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-aspect-ratios-for-youtube-videos-shorts-and-ads-guide/"><u>Mastering Aspect Ratios for YouTube Videos, Shorts & Ads Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-labyrinth-of-facebook-privacy-with-7-tools/"><u>Navigating the Labyrinth of Facebook Privacy with 7 Tools</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-perfecting-tone-modulation-keeping-sound-quality-intact-in-audacity/"><u>New 2024 Approved Perfecting Tone Modulation Keeping Sound Quality Intact in Audacity</u></a></li>
-<li><a href="https://facebook.techidaily.com/paving-friend-paths-with-effective-fb-tags-learn-3-strategies/"><u>Paving Friend Paths with Effective FB Tags – Learn 3 Strategies</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/restore-damaged-movie-files-quickly-use-vlcs-powerful-features/"><u>Restore Damaged Movie Files Quickly – Use VLC's Powerful Features!</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-and-streaming-giants-team-up-for-project-boombox/"><u>Social and Streaming Giants Team Up for Project Boombox</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-voyage-blueprint-from-facebook-to-meta-innovation/"><u>Virtual Voyage Blueprint: From Facebook to Meta Innovation</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-reimagining-instagram-is-the-next-big-thing/"><u>Why Reimagining Instagram Is the Next Big Thing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-androids-latest-advancements-for-immersive-video-viewing/"><u>[New] 2024 Approved Android's Latest Advancements for Immersive Video Viewing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-secure-hassle-free-passport-images-top-10-choices/"><u>[Updated] 2024 Approved Secure, Hassle-Free Passport Images - Top 10 Choices</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-earning-streaming-strategies-8-beginners-tips-for-2024/"><u>[Updated] Earning Streaming Strategies - 8 Beginners' Tips for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-the-ultimate-guide-to-kids-drones/"><u>[Updated] The Ultimate Guide to Kids' Drones</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-million-move-by-social-giant-to-captivate-writing-talent-from-substack/"><u>$5 Million Move by Social Giant to Captivate Writing Talent From Substack</u></a></li>
+<li><a href="https://facebook.techidaily.com/adapting-to-the-rise-of-crypto-on-platforms/"><u>Adapting to the Rise of Crypto on Platforms</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/affordable-apple-watch-series-se-anticipated-updates-and-features-coming-your-way-insights/"><u>Affordable Apple Watch Series SE: Anticipated Updates and Features Coming Your Way – Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-platforms-catering-to-the-elderly-social-scene/"><u>Best Platforms Catering to the Elderly Social Scene</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-buzz-examining-the-real-story-of-fb-papers/"><u>Beyond Buzz: Examining the Real Story of FB Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-facebooks-grip-a-list-of-10-motivators-for-quitting/"><u>Breaking Free From Facebook's Grip: A List of 10 Motivators for Quitting</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-the-cycle-why-taking-breaks-is-essential-for-mental-health/"><u>Breaking the Cycle: Why Taking Breaks Is Essential for Mental Health</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-out-controversy-refresh-your-feed-focus/"><u>Cut Out Controversy: Refresh Your Feed Focus</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-destiny-without-facebooks-influence/"><u>Data Destiny Without Facebook’s Influence</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-poco-c51-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-samsung-galaxy-f15-5g-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Samsung Galaxy F15 5G?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-key-elements-in-asmr-video-content/"><u>In 2024, Key Elements in ASMR Video Content</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-motorola-g54-5g-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Motorola G54 5G to iOS not Working Problems | Dr.fone</u></a></li>
 </ul></div>
 

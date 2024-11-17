@@ -1,7 +1,7 @@
 ---
 title: Tap Into Newly Viewed Vids on Social Network
-date: 2024-11-01T21:15:43.481Z
-updated: 2024-11-06T16:24:37.568Z
+date: 2024-11-13T16:19:16.152Z
+updated: 2024-11-17T16:46:11.951Z
 tags:
   - facebook
 categories:
@@ -45,13 +45,6 @@ That's it. Here you will find all the recently watched videos.
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Filter Facebook Watched Videos by Date on the Web
 
  If you want to view videos watched in a particular month and year, you can do that too. Here's how:
@@ -62,10 +55,10 @@ That's it. Here you will find all the recently watched videos.
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
@@ -77,6 +70,13 @@ That's it. Here you will find all the recently watched videos.
  It's very easy to view recently watched Facebook videos on an Android or iOS device. Here are the steps you need to follow:
 
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
@@ -93,13 +93,6 @@ Close
 
  You'll now see all the videos you recently watched on your Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Filter Facebook Watched Videos by Date on Android and iOS
 
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
@@ -107,6 +100,13 @@ Close
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -116,10 +116,10 @@ Close
 4. Enter the**Start** and**End** date. Then, click**Done** .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
@@ -141,18 +141,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-mastering-social-connectivity-from-instagram-to-tiktoks-playground/"><u>[New] In 2024, Mastering Social Connectivity From Instagram to TikTok's Playground</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-ultra-fast-instagram-video-views-for-smartphone-users-for-2024/"><u>[New] Ultra-Fast Instagram Video Views for Smartphone Users for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-easytech-snapshot-quick-rundown/"><u>[Updated] 2024 Approved EasyTech Snapshot Quick Rundown</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-enhancing-youtube-popularity-editing-and-optimizing-content-metadata-for-2024/"><u>[Updated] Enhancing YouTube Popularity Editing & Optimizing Content Metadata for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-storing-image-frames-from-videos-on-windows-11/"><u>2024 Approved Storing Image Frames From Videos on Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-detox-revelations-from-a-no-snap-break/"><u>Digital Detox: Revelations From a No-Snap Break</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-metas-new-privacy-standards-and-impact/"><u>Dissecting Meta's New Privacy Standards and Impact</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-latest-epson-artisan-1430-drivers-for-pc-compatible-with-win-11108/"><u>Get the Latest Epson Artisan 1430 Drivers for PC - Compatible with Win 11/10/8</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/pro-equipment-list-for-adventure-documentaries-for-2024/"><u>Pro Equipment List for Adventure Documentaries for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-oneplus-11r-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on OnePlus 11R | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/reasons-behind-decs-instagram-conversations-ending/"><u>Reasons Behind Dec’s Instagram Conversations Ending</u></a></li>
-<li><a href="https://facebook.techidaily.com/taking-back-your-privacy-from-facebooks-watchfulness/"><u>Taking Back Your Privacy From Facebook's Watchfulness</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-a-new-self-the-art-of-changing-your-fb-photo/"><u>Unveiling a New Self: The Art of Changing Your FB Photo</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-add-good-bokeh-effects-in-instagram-stories/"><u>[New] How to Add Good Bokeh Effects in Instagram Stories</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-free-up-space-superior-cloud-pickers-list/"><u>[New] Ultimate Free Up Space Superior Cloud Pickers' List</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-investing-in-the-future-learning-to-proficiently-record-skype-calls/"><u>[Updated] 2024 Approved Investing in the Future Learning to Proficiently Record Skype Calls</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-embedding-your-pre-recorded-video-in-a-live-facebook-showcase/"><u>[Updated] In 2024, Embedding Your Pre-Recorded Video in a Live Facebook Showcase</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-seamless-sound-transfer-top-10-youtube-to-mp3-picks/"><u>[Updated] In 2024, Seamless Sound Transfer Top 10 YouTube to Mp3 Picks</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-unpacking-features-a-deep-dive-into-free2xs-tools-for-2024/"><u>[Updated] Unpacking Features A Deep Dive Into Free2X's Tools for 2024</u></a></li>
+<li><a href="https://techidaily.com/ai-conversationalists-showdown-comparing-chatgpt-perplexity-and-claude/"><u>AI Conversationalists Showdown: Comparing ChatGPT, Perplexity, and Claude</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-googles-significant-announcements/"><u>Decoding Google's Significant Announcements</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-controversial-facebook-documents/"><u>Decoding the Controversial Facebook Documents</u></a></li>
+<li><a href="https://facebook.techidaily.com/differentiating-fact-from-fiction-in-jokes-at-facebook/"><u>Differentiating Fact From Fiction in Jokes at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dystopia-major-social-networks-downed/"><u>Digital Dystopia: Major Social Networks Downed</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-fortune-unites-with-who-in-health-crisis-funding/"><u>Digital Fortune Unites with WHO in Health Crisis Funding</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-social-medias-survivor-the-case-for-facebook/"><u>Dissecting Social Media's Survivor - The Case for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-shunning-facial-identification-compromise-facebook-user-protection/"><u>Does Shunning Facial Identification Compromise Facebook User Protection?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-honor-x50-gt-pin-by-drfone-android-unlock-android-unlock/"><u>How to remove Honor X50 GT PIN</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/update-your-hp-printer-software-on-windows-download-latest-drivers-for-w10-and-w11/"><u>Update Your HP Printer Software on Windows: Download Latest Drivers for W10 & W11</u></a></li>
 </ul></div>
 

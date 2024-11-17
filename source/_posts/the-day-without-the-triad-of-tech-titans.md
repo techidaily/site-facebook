@@ -1,7 +1,7 @@
 ---
 title: The Day Without the Triad of Tech Titans
-date: 2024-09-01T03:50:37.145Z
-updated: 2024-09-02T03:50:37.145Z
+date: 2024-11-13T18:01:24.044Z
+updated: 2024-11-17T17:38:08.044Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,19 @@ thumbnail: https://thmb.techidaily.com/99f8be9be102276bc593db3bcc6b07419f9816f24
 
  So, why were Facebook's apps down? And what caused this epic outage?
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Facebook Went Down for Six Hours
 
  Facebook's platforms are now back up and running, and Facebook has since apologized and offered an explanation for the outage. The social media platform has blamed the outage on a "faulty configuration change."
@@ -50,22 +63,23 @@ thumbnail: https://thmb.techidaily.com/99f8be9be102276bc593db3bcc6b07419f9816f24
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Is Your Facebook Data Safe After the Outage?
 
  The first concern for many users is whether their data is still safe, considering how large of a corporation Facebook is. However, the company has sought to assure all users that they have no reason to be concerned, stating that there is "no evidence that user data was compromised as a result of this downtime."
 
  We have no other option than to trust Facebook on this, but given the company's history and reputation, that's a big ask.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -74,4 +88,19 @@ thumbnail: https://thmb.techidaily.com/99f8be9be102276bc593db3bcc6b07419f9816f24
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-essential-software-for-animation-and-3d-models-for-2024/"><u>[New] Essential Software for Animation & 3D Models for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-the-leading-selection-of-tools-to-download-facebook-lite-videos/"><u>[New] The Leading Selection of Tools to Download Facebook Lite Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-master-soft-edges-on-digital-images-mobilepc/"><u>2024 Approved Master Soft Edges on Digital Images, Mobile/PC</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/como-corregir-un-nombre-de-directorio-no-valido-en-windows-11-o-versiones-anteriores-con-tacticas-efectivas/"><u>Cómo Corregir Un Nombre De Directorio No Valido en Windows 11 O Versiones Anteriores Con Tácticas Efectivas</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-a2plus-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi A2+ Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/no-more-lags-resolving-fps-drops-eradicating-gameplay-hiccups-and-boosting-performance/"><u>No More Lags: Resolving FPS Drops, Eradicating Gameplay Hiccups & Boosting Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-surprise-whats-not-in-your-feed/"><u>Social Media Surprise: What's Not in Your Feed?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solution-guide-why-is-my-corsair-headset-failing-to-work/"><u>Solution Guide: Why Is My Corsair Headset Failing to Work?</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-does-fb-activity-hit-its-apex/"><u>When Does FB Activity Hit Its Apex?</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-receives-5m-lifeline-from-tech-colossus/"><u>WHO Receives $5M Lifeline From Tech Colossus</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebook-could-be-opening-a-retail-store-near-you-soon/"><u>Why Facebook Could Be Opening a Retail Store Near You Soon</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook & Spotify Collaborate on Innovative Boombox Venture
-date: 2024-11-03T00:37:33.791Z
-updated: 2024-11-07T09:15:44.192Z
+date: 2024-11-11T16:04:25.013Z
+updated: 2024-11-17T17:51:14.185Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Audio Is Exploding, But Is It Here to Stay?
@@ -66,18 +66,17 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-in-the-ring-with-video-recording-who-will-triumph-obs-or-bandicam/"><u>[New] In 2024, In the Ring with Video Recording Who Will Triumph, OBS or Bandicam?</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-taking-stock-of-magix-project-management-app/"><u>[New] In 2024, Taking Stock of MAGIX Project Management App</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-jest-journal-chronicles-of-timely-laughter/"><u>[New] Jest Journal Chronicles of Timely Laughter</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-quick-guide-automating-mac-screenshot-via-shortcuts/"><u>[Updated] Quick Guide Automating Mac Screenshot via Shortcuts</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-moviemakermag-extreme-review-complete-take-on-androvid-editor/"><u>2024 Approved MovieMakerMag Extreme Review – Complete Take on AndroVid Editor</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-samsung-galaxy-a34-5g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Samsung Galaxy A34 5G? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-leaks-decoded-the-implications-explored/"><u>Facebook Leaks Decoded: The Implications Explored</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-lock-apps-on-poco-f5-pro-5g-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Poco F5 Pro 5G to Protect Your Individual Information</u></a></li>
-<li><a href="https://facebook.techidaily.com/majority-opinion-digital-life-negates-benefits/"><u>Majority Opinion: Digital Life Negates Benefits</u></a></li>
-<li><a href="https://extra-information.techidaily.com/refining-your-tiktok-profile-age-with-ease/"><u>Refining Your TikTok Profile Age with Ease</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Lava Storm 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-how-to-utilize-fb-help-center-services/"><u>Understanding How to Utilize FB Help Center Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-can-users-have-several-identities-in-a-singular-facebook-identity/"><u>Why Can Users Have Several Identities in a Singular Facebook Identity?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-harness-the-full-power-of-google-photos/"><u>[New] Harness the Full Power of Google Photos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-15-youtube-playlists-catering-to-musicians/"><u>[New] Top 15 YouTube Playlists Catering to Musicians</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-does-youtube-offer-regular-viewers-money/"><u>[Updated] 2024 Approved Does YouTube Offer Regular Viewers Money?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/cutting-edge-srt-modifications-for-modern-computers/"><u>Cutting-Edge SRT Modifications for Modern Computers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Tecno Phantom V Flip | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Itel A60s | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-concerns-removing-facial-recognition-data-effects-on-users/"><u>Privacy Concerns: Removing Facial Recognition Data Effects on Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-regain-facebook-acces-after-sign-out/"><u>Strategies to Regain Facebook Acces After Sign-Out</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-data-transfer-failures-from-usb-devices/"><u>Troubleshooting Data Transfer Failures From USB Devices</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-tips-swiftly-repair-your-iphoneipad-widget-problems-with-these-essential-fixes/"><u>Troubleshooting Tips: Swiftly Repair Your iPhone/iPad Widget Problems with These Essential Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebook-networks-finding-page-and-profile-links/"><u>Unveiling Facebook Networks: Finding Page & Profile Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/vague-narratives-explored-a-digital-phenomenons-analysis/"><u>Vague Narratives Explored: A Digital Phenomenon's Analysis</u></a></li>
 </ul></div>
 

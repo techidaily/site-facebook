@@ -1,7 +1,7 @@
 ---
 title: Facebook and Instagram Add Notices That Say User Tracking Keeps Their Apps Free
-date: 2024-09-01T03:51:47.162Z
-updated: 2024-09-02T03:51:47.162Z
+date: 2024-11-10T17:07:00.104Z
+updated: 2024-11-17T17:24:40.506Z
 tags:
   - facebook
 categories:
@@ -29,6 +29,13 @@ thumbnail: https://thmb.techidaily.com/6d87b1c3f35bd086cb57f3daa2bccf1c889bbcea5
 
 > \[Apple's prompt\] discourages people from giving their permission, and provides little detail about what this decision means. (...) We will show an educational screen before presenting Apple’s prompt to help people make an informed decision about how their information is used.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Why Does Facebook Oppose the Apple iOS 14 Update So Much?
 
  The iOS 14 update added**App Tracking Transparency** , which requires all your apps that track user behavior to ask you for explicit permission to do so before anything else. You can tweak this setting for each individual app, or apply the same setting to all apps via the**Settings** menu.
@@ -38,22 +45,23 @@ thumbnail: https://thmb.techidaily.com/6d87b1c3f35bd086cb57f3daa2bccf1c889bbcea5
  Related: [Apple Releases iOS 14.5 With a Long List of New Features](https://www.makeuseof.com/apple-releases-ios-14-5-update-iphone-ipad-ipod-touch/)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Will Facebook Go Back on Its Word?
 
  The new pop-up designs were first noticed by technology researcher Ashkan Soltani, who also notes in his Twitter thread that Facebook's homepage once read "free and always will be." Oh, the sweet potential irony.
 
  That slogan was silently removed from the site in 2019, so clearly that isn't the case anymore. We may soon see Facebook and Instagram adding premium features or versions of their apps—especially now that Apple's latest updates just might significantly reduce how much income the company makes from advertisers.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -62,4 +70,23 @@ thumbnail: https://thmb.techidaily.com/6d87b1c3f35bd086cb57f3daa2bccf1c889bbcea5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-streamline-your-screens-the-benefits-of-using-showmore-for-2024/"><u>[New] Streamline Your Screens The Benefits of Using ShowMore for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-discover-the-top-12-tycoon-games-for-captivating-players/"><u>[Updated] 2024 Approved Discover the Top 12 Tycoon Games for Captivating Players</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-achieving-subtle-volume-diminishment-in-logic-pro/"><u>[Updated] Achieving Subtle Volume Diminishment in Logic Pro</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-smartphone-simplicity-meets-online-impact-making-videos-easy/"><u>2024 Approved Smartphone Simplicity Meets Online Impact Making Videos Easy</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-the-silence-whistleblower-on-fb-platform/"><u>Breaking the Silence: Whistleblower on FB Platform</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/copyright-woes-instant-video-ban-for-2024/"><u>Copyright Woes Instant Video Ban for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-the-online-world-9-ways-social-media-enhances-life/"><u>Embracing the Online World: 9 Ways Social Media Enhances Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-life-balance-through-facebooks-time-out-reminder/"><u>Enhance Life Balance Through Facebook's Time-Out Reminder</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-next-step-boosting-user-engagement-with-new-panel-features/"><u>Facebook’s Next Step: Boosting User Engagement With New Panel Features</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-x50-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor X50 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-c33-2023-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Realme C33 2023? Fixed | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-messenger-unlocking-soundmojis-magic/"><u>Mastering Messenger: Unlocking Soundmojis Magic</u></a></li>
+<li><a href="https://facebook.techidaily.com/rediscovering-trump-on-meta-platforms/"><u>Rediscovering Trump on Meta Platforms</u></a></li>
+<li><a href="https://techidaily.com/remove-google-frp-lock-on-vivo-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Vivo</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-infinix-note-30i-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Infinix Note 30i Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-changing-in-the-landscape-of-us-antitrust/"><u>What's Changing in the Landscape of U.S. Antitrust</u></a></li>
+</ul></div>
 

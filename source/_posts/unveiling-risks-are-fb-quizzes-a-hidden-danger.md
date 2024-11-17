@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Risks: Are FB Quizzes a Hidden Danger?"
-date: 2024-10-31T05:32:17.007Z
-updated: 2024-11-07T12:07:01.842Z
+date: 2024-11-10T16:06:26.747Z
+updated: 2024-11-17T16:20:56.540Z
 tags:
   - facebook
 categories:
@@ -30,16 +30,16 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
 [The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Cybersecurity Risks of Facebook Quizzes
 
 ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
 
@@ -61,20 +61,27 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Take Screenshots and Notes
 
 ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 
  Screenshot or write down your answers to the quiz next. If possible, delete your quiz response from the post. In most cases, this won't be possible and information might have already been gathered before you press "Submit".
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Report the Scam Quiz
 
@@ -87,10 +94,10 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
  Finally,[submit a report](https://www.identitytheft.gov/#/) to the Federal Trade Commission to alert them to a potential identity theft risk. This will help protect you and others from identity theft if the quiz gave away sensitive information to a fraudster or scammer. If you have an identity protection service or insurance plan, contact those representatives, as well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Change Your Security Question Answers
@@ -100,13 +107,6 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
  In most cases, you can choose another question. But if you’re struggling to find security question options that weren’t compromised by the quiz answers, you can even use fake answers. Just keep track of what you said.
 
  Some websites or services may allow you to secure your account without using security questions. If this is an option, it is worth using. For example, you might be able to use one-time codes sent to your phone or email instead of answering security questions to reset your password, i.e.[two-factor authentication (2FA)](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) .
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Staying Safe on Facebook
 
@@ -127,15 +127,22 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-conquer-common-youtube-short-setbacks/"><u>[Updated] 2024 Approved Conquer Common YouTube Short Setbacks</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-gain-massive-viewership-with-a-small-financial-investment/"><u>[Updated] 2024 Approved Gain Massive Viewership with a Small Financial Investment</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-guiding-steps-for-effective-gopro-time-lapse-capture-for-2024/"><u>[Updated] Guiding Steps for Effective GoPro Time-Lapse Capture for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/digging-deeper-rethinking-the-stigma-around-fb-reports/"><u>Digging Deeper: Rethinking The Stigma Around FB Reports</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-infinix-smart-7-hd-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Infinix Smart 7 HD?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-realme-v30t-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Realme V30T Phones</u></a></li>
-<li><a href="https://facebook.techidaily.com/quell-the-public-forum-strategies-for-curtailing-comments-in-facebook/"><u>Quell the Public Forum: Strategies for Curtailing Comments in Facebook</u></a></li>
-<li><a href="https://fox-links.techidaily.com/remove-a-background-in-affinity-photo-for-2024/"><u>Remove a Background in Affinity Photo for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/saving-your-social-footprint-regaining-deleted-fb-stories/"><u>Saving Your Social Footprint: Regaining Deleted FB Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-mysteries-of-filter-bubble-act/"><u>Unraveling the Mysteries of Filter Bubble Act</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-unlock-image-potential-with-editors-essentials/"><u>[New] 2024 Approved Unlock Image Potential with Editor's Essentials</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-your-guide-to-cost-free-android-screenshots/"><u>[New] 2024 Approved Your Guide to Cost-Free Android Screenshots</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-convert-facebook-posts-to-mp3-files-for-2024/"><u>[Updated] Convert Facebook Posts to MP3 Files for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/essentials-of-facebook-job-advertising-guide/"><u>Essentials of Facebook Job Advertising Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-your-frozen-facebook-page/"><u>Fixing Your Frozen Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-avoid-pitfalls-in-facebooks-marketplace-space/"><u>How to Avoid Pitfalls in Facebook's Marketplace Space</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-streamsurf-skimming-above-dacast/"><u>In 2024, StreamSurf Skimming Above DaCast</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-s-best-time-lapse-video-editing-tools-a-comprehensive-review/"><u>New In 2024, S Best Time-Lapse Video Editing Tools A Comprehensive Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-online-venues-for-elders-connections/"><u>Optimal Online Venues for Elders Connections</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/professional-posting-hacks-for-instagram-tv-for-2024/"><u>Professional Posting Hacks for Instagram TV for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/shifting-social-landscape-four-reasons-users-leave-fb/"><u>Shifting Social Landscape: Four Reasons Users Leave FB</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/swift-solutions-to-resolve-6-typical-chatgpt-errors/"><u>Swift Solutions to Resolve 6 Typical ChatGPT Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-moral-dilemrances-of-disapproving-platforms/"><u>The Moral Dilemrances of Disapproving Platforms</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-perfect-way-to-watch-all-conjuring-movies-in-their-correct-order/"><u>The Perfect Way to Watch All 'Conjuring' Movies in Their Correct Order</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/tiny-tycoons-car-contests/"><u>Tiny Tycoons' Car Contests</u></a></li>
+<li><a href="https://facebook.techidaily.com/trust-in-facebooks-secret-talks/"><u>Trust in Facebooks Secret Talks</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-scares-us-threefold-in-society/"><u>Why Meta Scares Us Threefold in Society</u></a></li>
 </ul></div>
 

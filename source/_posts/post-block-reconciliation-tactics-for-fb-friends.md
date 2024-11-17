@@ -1,7 +1,7 @@
 ---
 title: Post-Block Reconciliation Tactics for FB Friends
-date: 2024-11-06T09:41:38.369Z
-updated: 2024-11-07T06:18:07.518Z
+date: 2024-11-12T17:17:01.777Z
+updated: 2024-11-17T16:27:46.486Z
 tags:
   - facebook
 categories:
@@ -43,10 +43,10 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
  Use the right option for the situation and you shouldn't have to worry about unblocking and refriending people in the future. Follow our[guide to Facebook blocking](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) for more help.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Refriend Someone on Facebook After Unblocking Them
@@ -58,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 ![Facebook Send Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/Facebook-Send-Friend-Request.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Click that to send them a new friend request; if they accept, you'll be friends again. However, keep in mind that if you've had a bad interaction with this person, they may delete your request. If they do, Facebook provides the**Mark as Spam** option to them, which prevents you from sending more friend requests.
@@ -75,10 +75,10 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
  Finally, there's also a chance that your former friend deactivated their Facebook account while you had them blocked. To find out if this is the case, try asking a mutual friend if they're still friends with the person you had blocked. If they aren't using Facebook anymore, you'll have to connect with them elsewhere.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Refriending on Facebook Is Possible, Even After Blocking
@@ -102,22 +102,14 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-next-generation-of-video-communities-post-youtube/"><u>[New] 2024 Approved The Next Generation of Video Communities Post-YouTube</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-secure-your-device-footage-with-mi-11-techniques/"><u>[Updated] 2024 Approved Secure Your Device Footage with Mi 11 Techniques</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-highly-recommended-auto-cameras-for-vehicle-tracking/"><u>[Updated] Highly Recommended Auto Cameras for Vehicle Tracking</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/achetez-movavi-video-editor-premium-gratuitement-des-paiements-totalement-proteges-et-des-reductions-non-stop/"><u>Achetez Movavi Video Editor Premium Gratuitement - Des Paiements Totalement Protégés Et Des Réductions Non Stop !</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/effortless-spot-sharing-on-facebook-chatrooms/"><u>Effortless Spot Sharing on Facebook Chatrooms</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-resilience-unveiling-its-longevity-strategy/"><u>Facebook's Resilience: Unveiling Its Longevity Strategy</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-status-active-or-offline-discover-and-track/"><u>FB Status: Active or Offline - Discover & Track</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ipogo-will-be-the-new-ispoofer-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Google Pixel 8? | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/is-it-possible-to-operate-linux-without-accessing-the-command-line-interface/"><u>Is It Possible To Operate Linux Without Accessing The Command Line Interface?</u></a></li>
-<li><a href="https://facebook.techidaily.com/metaverse-on-facebook-three-pivotal-warnings-to-consider/"><u>Metaverse on Facebook: Three Pivotal Warnings to Consider</u></a></li>
-<li><a href="https://facebook.techidaily.com/methods-for-finding-lost-facebook-tweets/"><u>Methods for Finding Lost Facebook Tweets</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-vivo-t2-pro-5g-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Vivo T2 Pro 5G? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguard-yourself-essential-online-disclosures-to-avoid/"><u>Safeguard Yourself: Essential Online Disclosures to Avoid</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-conceal-like-counts-on-sites/"><u>Secure Your Digital Footprint: Conceal Like Counts on Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-owns-facebook-now/"><u>Who Owns Facebook Now?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-audio-made-simple-for-imovie-editors-for-2024/"><u>YouTube Audio, Made Simple for iMovie Editors for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-breaking-barriers-twitter-to-facebook-posting-process/"><u>[Updated] Breaking Barriers Twitter-to-Facebook Posting Process</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-capturing-every-moment-in-motion-with-polaroids-new-release/"><u>[Updated] Capturing Every Moment in Motion with Polaroid's New Release</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-social-media-revolution-removing-politicalreligious-posts/"><u>A Social Media Revolution: Removing Political/Religious Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-conversations-across-platforms-whatsapp-and-fb-avatars/"><u>Bridging Conversations Across Platforms: WhatsApp & FB Avatars</u></a></li>
+<li><a href="https://win11.techidaily.com/bypassing-connection-issues-0x00000001-resolution-guide/"><u>Bypassing Connection Issues - 0X00000001 Resolution Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/cracking-the-code-to-authenticity-in-online-profiles/"><u>Cracking the Code to Authenticity in Online Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-content-and-cashflow-how-meta-boosts-money-making-reels/"><u>Creating Content and Cashflow: How Meta Boosts Money-Making Reels</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-vivo-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Vivo Device</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-rising-popularity-of-openstack-and-kata-containers-understanding-their-growing-market-presence/"><u>The Rising Popularity of OpenStack & Kata Containers: Understanding Their Growing Market Presence</u></a></li>
 </ul></div>
 

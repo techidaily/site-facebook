@@ -1,7 +1,7 @@
 ---
 title: Pinpointing Unfriended Individuals on Facebook
-date: 2024-11-01T22:32:18.722Z
-updated: 2024-11-07T08:10:52.393Z
+date: 2024-11-13T17:17:44.371Z
+updated: 2024-11-17T17:33:44.862Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ Close
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Your Blocked List on the Web
@@ -56,10 +56,10 @@ Close
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
@@ -72,10 +72,10 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can People Tell if You've Blocked Them on Facebook?
@@ -87,10 +87,10 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
@@ -112,24 +112,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-improve-browser-performance-fb-vids-chrome/"><u>[New] 2024 Approved Improve Browser Performance FB Vids, Chrome</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nlock-youtubes-secrets-transcribe-for-free-and-efficiently/"><u>[New] Unlock YouTube's Secrets Transcribe for Free and Efficiently</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-best-buy-top-10-gaming-gpus-for-high-quality-online-viewing/"><u>[Updated] 2024 Approved Best Buy Top 10 Gaming GPUs for High-Quality Online Viewing</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-master-the-art-of-activating-and-deactivating-pip-in-ios-browsers-for-2024/"><u>[Updated] Master the Art of Activating and Deactivating PIP in iOS Browsers for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-quicksnap-hd-pro-logging-kit/"><u>2024 Approved QuickSnap HD Pro Logging Kit</u></a></li>
-<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-nokia-105-classic-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your Nokia 105 Classic | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-success-in-social-media-marketing-on-fb/"><u>Decoding #Success in Social Media Marketing on FB</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/discover-the-ultimate-black-friday-and-holiday-promotions-at-newegg-zdnet-exclusive-list/"><u>Discover the Ultimate Black Friday & Holiday Promotions at Newegg | ZDNET Exclusive List</u></a></li>
-<li><a href="https://facebook.techidaily.com/german-authorities-step-up-to-protect-whatsapp-users-from-facebook-spying/"><u>German Authorities Step Up to Protect WhatsApp Users From Facebook Spying</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-honor-x9a-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Honor X9a for Free? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-to-vivo-s17e-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Vivo S17e Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-the-root-of-hostility-towards-virtual-community-spaces/"><u>Investigating the Root of Hostility Towards Virtual Community Spaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebook-neighborhoods-purpose-and-participants/"><u>Navigating Facebook Neighborhoods: Purpose & Participants</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-teamwork-with-social-media-facebooks-8-features/"><u>Navigating Teamwork with Social Media: Facebook's 8 Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-rules-for-discreet-facebook-and-instagram-interactions/"><u>New Rules for Discreet Facebook and Instagram Interactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-sanctions-rightly-suspended-trump-for-now/"><u>Social Media Sanctions: Rightly Suspended Trump for Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-to-monitor-and-record-teen-activity-online-fb-focused/"><u>Strategies to Monitor and Record Teen Activity Online, FB-Focused</u></a></li>
-<li><a href="https://facebook.techidaily.com/superior-senior-centric-digital-hubs/"><u>Superior Senior-Centric Digital Hubs</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-contacts-from-reno-11-5g-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Reno 11 5G.</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-key-sites-the-6-most-vital-platforms-for-b2b-relationships/"><u>[New] Key Sites The 6 Most Vital Platforms for B2B Relationships</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/boosting-dungeons-and-dragons-leveraging-chatgpt-for-game-improvement/"><u>Boosting Dungeons & Dragons: Leveraging ChatGPT for Game Improvement</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-fabrications-the-cloning-catastrophe-explored/"><u>Facebook Fabrications: The Cloning Catastrophe Explored</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/full-guide-to-unlock-your-realme-v30-by-drfone-android/"><u>Full Guide to Unlock Your Realme V30</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-connectivity-crisis-six-hour-network-failure/"><u>Global Connectivity Crisis: Six-Hour Network Failure</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-turn-off-comments-on-a-facebook-post/"><u>How to Turn Off Comments on a Facebook Post</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-can-we-bypass-samsung-galaxy-xcover-6-pro-tactical-edition-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Samsung Galaxy XCover 6 Pro Tactical Edition FRP?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unboxing-the-secrets-to-stunning-shorts-thumbnails/"><u>In 2024, Unboxing the Secrets to Stunning Shorts Thumbnails</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723002410064-solving-league-of-legends-stalling-problems-in-minutes-learn-how/"><u>Solving League of Legends Stalling Problems in Minutes – Learn How</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-facebook-mini-posts-hd-edition/"><u>The Ultimate Guide to Facebook Mini Posts (HD Edition)</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-to-do-before-permanently-saying-goodbye-to-facebook/"><u>What to Do Before Permanently Saying Goodbye to Facebook</u></a></li>
 </ul></div>
 

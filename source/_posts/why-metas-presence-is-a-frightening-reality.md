@@ -1,7 +1,7 @@
 ---
 title: Why Meta's Presence Is a Frightening Reality
-date: 2024-11-05T03:02:21.814Z
-updated: 2024-11-07T08:24:31.556Z
+date: 2024-11-10T16:16:27.423Z
+updated: 2024-11-17T16:02:42.663Z
 tags:
   - facebook
 categories:
@@ -48,13 +48,6 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
 
 ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  With great monopoly comes great power. Meta's powers are enormous. Only a few private companies can measure up to its global influence. The company controls some of the world's most important digital communication tools. With over a quarter of the world's population using their apps, Meta holds a rare power over how the world communicates.
 
  Perhaps much more concerning is the fact that a disproportionate amount of this power rests on one individual—Mark Zuckerberg. According to this[SEC document](https://www.sec.gov/Archives/edgar/data/1326801/000132680118000022/facebook2018definitiveprox.htm) , Zuckerberg controls around 60% of Meta's voting power, effectively bestowing on him dictatorial powers over the billions of people that use Meta's product.
@@ -64,22 +57,21 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
  As evidenced in the buildup to the last two US presidential elections, filtered information can positively or negatively influence global outcomes. Consequently, Meta can easily influence global culture by controlling the kind of information billions of people have access to. That much power, if unchecked, is potentially dangerous.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. A Privacy Dilemma
 
 ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
 
@@ -105,22 +97,36 @@ Not convinced?
 
 ![Screenshot_20211223-204847](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204847.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
 
-![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
 
 Close
 
  You might be surprised just how much information Meta is getting on you.
 
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the[New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Stay Conscious of Meta's Influence
 
@@ -145,22 +151,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-windows-11-update-deep-dive/"><u>[New] In 2024, Windows 11 Update Deep Dive</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-the-hottest-tiktok-trends-on-twitter/"><u>[New] The Hottest TikTok Trends on Twitter</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-commercial-success-story-with-5-igfb-strategies/"><u>Crafting a Commercial Success Story with 5 IG/FB Strategies</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/elevating-articles-with-chatgpts-assistance/"><u>Elevating Articles with ChatGPT's Assistance</u></a></li>
-<li><a href="https://fox-that.techidaily.com/eliminate-photo-redundancies-on-apple-products-with-easy-image-combining-techniques/"><u>Eliminate Photo Redundancies on Apple Products with Easy Image Combining Techniques</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-poco-m6-pro-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Poco M6 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-regain-entry-after-forgotten-or-revoked-login-credentials/"><u>How to Regain Entry After Forgotten or Revoked Login Credentials</u></a></li>
-<li><a href="https://facebook.techidaily.com/insight-report-300-investment-in-headsets-for-account-security/"><u>Insight Report: $300 Investment in Headsets for Account Security</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-over-mobile-facebook-exploration/"><u>Mastery Over Mobile Facebook Exploration</u></a></li>
-<li><a href="https://facebook.techidaily.com/messenger-encryption-truthful-or-not/"><u>Messenger Encryption: Truthful or Not?</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-instructions-for-refreshing-your-residential-sound-systems-speakers/"><u>Step-by-Step Instructions for Refreshing Your Residential Sound System's Speakers</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-metaverse-saga-tracing-facebooks-footprints/"><u>The Metaverse Saga: Tracing Facebook's Footprints</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-4-metrics-and-tools-for-thriving-businesses/"><u>Top 4 Metrics & Tools for Thriving Businesses</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-full-featured-spotify-use-in-facebook/"><u>Unlocking Full-Featured Spotify Use in Facebook</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-best-20-adobe-premiere-intro-templates-free-download/"><u>Updated 2024 Approved Best 20 Adobe Premiere Intro Templates Free Download</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/visionary-backdrop-transformers-photorealm-innovation/"><u>Visionary Backdrop Transformers PhotoRealm Innovation</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Will iSpoofer update On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-recording-games-like-a-pro-discover-the-best-of-windows-11-methods/"><u>[New] 2024 Approved Recording Games Like a Pro Discover the Best of Windows 11 Methods</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-best-beams-microphones-for-education-for-2024/"><u>[New] Best Beams Microphones for Education for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-music-anywhere-spotify-miniplayer-within-the-facebook-app/"><u>Embrace Music Anywhere: Spotify Miniplayer Within the Facebook App</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/expert-guide-to-overcoming-realtek-alc887-hd-audio-driver-challenges-on-pcs/"><u>Expert Guide to Overcoming Realtek ALC887 HD Audio Driver Challenges on PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/mysterious-mingle-fb-friends-veil-techniques/"><u>Mysterious Mingle: FB Friends Veil Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-users-whatsapp-clashes-with-government-law/"><u>Protecting Users, WhatsApp Clashes with Government Law</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-writing-failure-in-the-referenced-0xmemory-address/"><u>Resolved: Writing Failure in the Referenced 0xMemory Address</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-usb-recognition-failures-on-windows-11/"><u>Resolving USB Recognition Failures on Windows 11</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solved-overcoming-silent-screens-fixing-audio-glitches-in-discord-sharing-feature/"><u>Solved! Overcoming Silent Screens: Fixing Audio Glitches in Discord Sharing Feature</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tailored-techniques-to-cut-off-unwanted-youtube-content-on-devices-for-2024/"><u>Tailored Techniques to Cut Off Unwanted YouTube Content on Devices for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-essential-studio-handbook-xvideo-studio-guide/"><u>The Essential Studio Handbook XVideo Studio Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/to-connect-or-not-the-pros-and-cons-of-facebook-powered-account-access/"><u>To Connect or Not: The Pros & Cons of Facebook-Powered Account Access</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-tips-for-efficient-macos-sierra-system-updates-for-2024/"><u>Top Tips for Efficient macOS Sierra System Updates for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mastering Teen FB Privacy Safeguards: A Step-by-Step Guide"
-date: 2024-11-05T20:21:12.692Z
-updated: 2024-11-07T10:31:42.364Z
+date: 2024-11-10T17:02:31.733Z
+updated: 2024-11-17T16:26:22.336Z
 tags:
   - facebook
 categories:
@@ -37,19 +37,19 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -59,10 +59,10 @@ Close
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Privacy Setting Basics
@@ -95,14 +95,20 @@ Close
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
-![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
 Close
 
@@ -133,24 +139,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-channel-size-independent-strategies-for-securing-sponsors-for-2024/"><u>[Updated] Channel-Size-Independent Strategies for Securing Sponsors for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-recording-titans-duel-for-2024/"><u>[Updated] Recording Titans Duel for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-seamless-screen-sequences-cycle-youtube-on-your-television/"><u>2024 Approved Seamless Screen Sequences Cycle YouTube on Your Television</u></a></li>
-<li><a href="https://facebook.techidaily.com/activist-attack-one-star-campaign-against-digital-app-store-ratings/"><u>Activist Attack: One Star Campaign Against Digital App Store Ratings</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticity-arena-vying-for-the-top-in-verified-metas-and-blue-ticks/"><u>Authenticity Arena: Vying for the Top in Verified Metas and Blue Ticks</u></a></li>
-<li><a href="https://extra-information.techidaily.com/crafting-laughs-the-ultimate-resource-for-free-templates/"><u>Crafting Laughs The Ultimate Resource for Free Templates</u></a></li>
-<li><a href="https://facebook.techidaily.com/finding-out-how-old-my-virtual-persona-really-is/"><u>Finding Out: How Old My Virtual Persona Really Is</u></a></li>
-<li><a href="https://facebook.techidaily.com/implementing-fbs-mtfc-for-extra-protection/"><u>Implementing FB's MTFC for Extra Protection</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-resolve-your-apple-iphone-15-plus-keeps-asking-for-outlook-password-by-drfone-ios/"><u>In 2024, Resolve Your Apple iPhone 15 Plus Keeps Asking for Outlook Password</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-nokia-c12-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Nokia C12 with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-more-locked-out-mastering-password-resets-on-facebook/"><u>No More Locked Out! Mastering Password Resets on Facebook</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211253260-9781958997482-priesthood-prophecy/"><u>Priesthood & Prophecy | Free Book</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-process-for-handling-libxml2dll-file-missing-errors-successfully/"><u>Step-by-Step Process for Handling 'libxml2.dll File Missing' Errors Successfully</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-for-refreshing-info-on-your-little-ones-messengers/"><u>Steps for Refreshing Info on Your Little One’s Messengers</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/svitamento-del-limite-geografico-dei-tuoi-dvd-come-diventare-indipendente-dalla-regione-codice/"><u>Svitamento Del Limite Geografico Dei Tuoi DVD: Come Diventare Indipendente Dalla Regione Codice</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/the-ultimate-guide-to-mac-based-sound-capture-in-audacity-for-2024/"><u>The Ultimate Guide to Mac-Based Sound Capture in Audacity for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/where-to-avoid-facebook-websites-top-3-places/"><u>Where to Avoid Facebook Websites: Top 3 Places</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-metas-full-implementation-of-e2e-encryption-delayed-to-next-year/"><u>Why Meta's Full Implementation of E2E Encryption Delayed to Next Year</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-personal-cybersecurity-roadmap-on-facebook/"><u>Your Personal Cybersecurity Roadmap on Facebook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-how-to-make-time-lapse-videos-with-gopro-studio/"><u>[Updated] In 2024, How to Make Time Lapse Videos With GoPro Studio</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-spark-your-spirit-a-collection-of-10-uplifting-movies/"><u>[Updated] In 2024, Spark Your Spirit A Collection of 10 Uplifting Movies</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-shift-twitter-video-preview-panel-for-2024/"><u>[Updated] Shift Twitter Video Preview Panel for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1-managing-screen-time-a-step-by-step-guide-to-setting-daily-app-restrictions-on-your-android-device/"><u>1. Managing Screen Time: A Step-by-Step Guide to Setting Daily App Restrictions on Your Android Device</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-samsung-galaxy-a25-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Samsung Galaxy A25 5G without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-access-rites-to-meta-social-network-governance/"><u>Deciphering Access Rites to Meta Social Network Governance</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-digital-picture-proprietorship/"><u>Determining Digital Picture Proprietorship</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-impact-of-touch-on-social-networking/"><u>Dissecting the Impact of Touch on Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-ways-to-disconnect-from-facebook-android-style/"><u>Efficient Ways to Disconnect From Facebook, Android Style</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-profile-metas-paid-verification/"><u>Elevate Your Profile: Metas' Paid Verification</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-vivo-v27e-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Vivo V27e to PC? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-a-look-at-the-future-of-windows-10s-evolution/"><u>In 2024, A Look at the Future of Windows 10'S Evolution</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-infinix-gt-10-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Infinix GT 10 Pro to iPad | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/pinpointing-and-fixing-sound-issues-in-windows/"><u>Pinpointing and Fixing Sound Issues in Windows</u></a></li>
 </ul></div>
 

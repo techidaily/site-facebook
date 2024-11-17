@@ -1,7 +1,7 @@
 ---
 title: "Meta's Pursuit: Aiming for a Social Media Revolution in Europe"
-date: 2024-09-01T03:48:27.451Z
-updated: 2024-09-02T03:48:27.451Z
+date: 2024-11-16T17:12:34.410Z
+updated: 2024-11-17T16:07:48.085Z
 tags:
   - facebook
 categories:
@@ -29,6 +29,13 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
 
  Meta's primary business is selling advertising spaces based upon the data it collects on its users. Instagram and Facebook account for somewhere between 400 million and 500 million users. Losing out on this data would be extremely damaging to Meta's targeted advertising (despite Meta claiming to the contrary).
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is the Privacy Shield No Longer Legal?
 
  So, back in 2011, Austrian lawyer Maximillian Schrems analyzed 1,222 pages of information Facebook held about him after requesting the data from the company. He found that Facebook held onto information he believed he had deleted from the service along with other information that had been shared without his permission. Schrems lodged a complaint with the Irish data protection commissioner, where Facebook was registered for tax purposes.
@@ -40,8 +47,12 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
  With the data transfer vehicle of the Privacy Shield no longer lawful, companies like Meta, Google, Amazon, and Microsoft will all have to consider their European operations. Considering that the cloud computing services offered by Google, Amazon, and Microsoft make up a huge chunk of the internet as we know it, Meta is far from the only major tech company facing a major data headache.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Will Meta Pull Facebook and Instagram?
 
  Most industry experts believe Meta's statement is an empty threat. European Union regulators have been working with their US counterparts in an attempt to shape a new deal for months. It's just that it hasn't yet crossed the line and as Meta's stock price and company value takes a beating elsewhere, shifting the focus is a useful distraction for the social media giant.
@@ -54,14 +65,11 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
 
  European Facebook and Instagram users have very little to worry about until then.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -70,4 +78,23 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-instagram-video-load-times-desktop-advice/"><u>[New] In 2024, Mastering Instagram Video Load Times Desktop Advice</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-ultimate-2023-tweet-video-roundup-for-2024/"><u>[New] Ultimate 2023 Tweet Video Roundup for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-unveiling-the-most-effective-methods-for-your-hp-laptop-recordings/"><u>[Updated] 2024 Approved Unveiling the Most Effective Methods for Your HP Laptop Recordings</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-optimal-series-premium-webcam-grips/"><u>2024 Approved Optimal Series Premium Webcam Grips</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-reasons-you-should-be-worried-about-the-facebook-metaverse/"><u>3 Reasons You Should Be Worried About the Facebook Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-reasons-social-media-killed-online-forums/"><u>6 Reasons Social Media Killed Online Forums</u></a></li>
+<li><a href="https://win-lab.techidaily.com/iphone3/"><u>如何将信息快速传输至新iPhone——抢先告知3个方法</u></a></li>
+<li><a href="https://facebook.techidaily.com/adaptive-timing-for-profile-picture-evolution/"><u>Adaptive Timing for Profile Picture Evolution</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/avoiding-obscured-games-fixes-for-obs-black-screen-issues-for-2024/"><u>Avoiding Obscured Games Fixes for OBS Black Screen Issues for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/basketball-clubs-refuse-social-media-access/"><u>Basketball Clubs Refuse Social Media Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/checking-the-legitimacy-of-fbs-safety-mail-address-securityfbcom/"><u>Checking the Legitimacy of FB's Safety Mail Address: security@fb.com</u></a></li>
+<li><a href="https://facebook.techidaily.com/crossover-creation-facebooks-new-joint-venture-with-spotify/"><u>Crossover Creation: Facebook's New Joint Venture with Spotify</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-ddr5-ram-options-for-superior-performance/"><u>Leading DDR5 RAM Options for Superior Performance</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-depth-analysis-of-the-nero-waveshaper-toolkit/"><u>New In-Depth Analysis of the Nero WaveShaper Toolkit</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154597437-secure-digital-dialogues-facebook-implements-comprehensively-end-to-end-encryption-for-direct-messaging-and-calls/"><u>Secure Digital Dialogues: Facebook Implements Comprehensively End-to-End Encryption for Direct Messaging and Calls</u></a></li>
+</ul></div>
 

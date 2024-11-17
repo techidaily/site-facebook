@@ -1,7 +1,7 @@
 ---
 title: The Hidden Dangers of Keeping Your FB History
-date: 2024-11-04T16:47:03.734Z
-updated: 2024-11-07T07:17:45.447Z
+date: 2024-11-16T16:02:29.019Z
+updated: 2024-11-17T16:04:05.414Z
 tags:
   - facebook
 categories:
@@ -33,18 +33,18 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 
  Managing your Facebook watched videos history is an integral part of staying in control of your digital footprint. Because no one needs to know what videos you watch on Facebook. And if you want to protect your privacy, you can delete your Facebook watch history completely.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete Your Facebook Watch History
 
  You can delete your Facebook video history on whatever device you use to access Facebook. You just need to access your Activity log.
 
  Using the Activity log, you can delete your watch history,[delete comments from Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and more. We'll show you how to clear your watch history on both the Android app and the website.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Delete Your Facebook Watch History on Android
 
@@ -53,10 +53,10 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 ![screenshot showing facebook profile page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-page-on-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![screenshot showing facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-menu-page.jpg)
@@ -85,15 +85,15 @@ Close
 3. ![profile page screenshot on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/profile-page-screenshot-on-facebook-web-desktop.jpg)  
  Click on**Videos you’ve watched** .
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 4. ![screenshot showing activity log page on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-page-on-facebook-web.jpg)  
  You will see a list of all the videos you have watched on Facebook. To clear your watch history, click on**Clear Video Watch History** .
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Clear Your Live Video History on the Web
 
@@ -105,26 +105,20 @@ Close
 4. ![screenshot showing activity log sidebar on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-sidebar-on-facebook.jpg)  
  You can then clear any videos you find there.  
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![live videos youve watched page screenshot on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/live-videos-youve-watched-page-screenshot-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why You Should Delete Your Facebook Watch History
@@ -152,22 +146,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-timeless-lens-capture-expert-picks-of-cameras-for-extended-shutter/"><u>[New] Timeless Lens Capture Expert Picks of Cameras for Extended Shutter</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-covert-snapmotion-concealing-your-picture-taking-on-the-app/"><u>[Updated] 2024 Approved Covert SnapMotion Concealing Your Picture Taking on the App</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-first-timers-cameras-guide-best-of-24/"><u>[Updated] First-Timer's Cameras Guide - Best of '24</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-streamline-your-social-media-mastering-automatic-video-playback/"><u>[Updated] Streamline Your Social Media Mastering Automatic Video Playback</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-platforms-instagrams-new-whatsapp-2fa-strategy/"><u>Bridging Platforms: Instagram's New WhatsApp 2FA Strategy</u></a></li>
-<li><a href="https://facebook.techidaily.com/bring-back-the-bells-and-whistles-resetting-facebook-passwords/"><u>Bring Back the Bells & Whistles - Resetting Facebook Passwords</u></a></li>
-<li><a href="https://facebook.techidaily.com/clearing-your-facebook-footprint-on-android/"><u>Clearing Your Facebook Footprint on Android</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/comprehensive-tutorial-on-setting-up-and-kickstarting-a-successful-youtube-presence/"><u>Comprehensive Tutorial on Setting Up and Kickstarting a Successful YouTube Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/connecting-beyond-boundaries-uncovering-six-key-metaverse-aspects-in-fb/"><u>Connecting Beyond Boundaries: Uncovering Six Key Metaverse Aspects in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-deterrents-enhanced-sanctions-to-halt-misinformation/"><u>Digital Deterrents: Enhanced Sanctions to Halt Misinformation</u></a></li>
-<li><a href="https://discover-great.techidaily.com/facebook-konto-wiederherstellung-ohne-e-mail-losungsansatze/"><u>Facebook Konto Wiederherstellung Ohne E-Mail: Lösungsansätze</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-strives-for-educated-user-engagement-with-new-prompt/"><u>Facebook Strives for Educated User Engagement with New Prompt</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-infinix-smart-8-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Infinix Smart 8 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/networking-neutrality-right-to-suspend-trump-but-for-how-long/"><u>Networking Neutrality: Right to Suspend Trump, But for How Long?</u></a></li>
-<li><a href="https://facebook.techidaily.com/profile-pics-that-promote-prospects-and-peers/"><u>Profile Pics that Promote Prospects and Peers</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/techniques-to-procure-free-visual-frame-videos-for-2024/"><u>Techniques to Procure Free Visual Frame Videos for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/understanding-control-over-sound-attenuation-within-audacity-for-2024/"><u>Understanding Control Over Sound Attenuation Within Audacity for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-soundtrack-strategists-guide-to-youtube-playlists/"><u>[New] 2024 Approved The Soundtrack Strategist's Guide to YouTube Playlists</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-directly-send-snaps-from-your-phone-a-tutorial-for-2024/"><u>[Updated] Directly Send Snaps From Your Phone - A Tutorial for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-meme-marchers-the-path-to-viral-twitcinema/"><u>[Updated] In 2024, Meme Marchers The Path to Viral TwitCinema</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-pioneering-tools-top-5-cloud-based-videography-platforms/"><u>[Updated] Pioneering Tools Top 5 Cloud-Based Videography Platforms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gen-4-echo-dot-analysis-the-aesthetic-and-functional-upgrades/"><u>Gen 4 Echo Dot Analysis: The Aesthetic and Functional Upgrades</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-insight-how-to-engage-with-facebook-neighbors/"><u>Inside Insight: How to Engage with Facebook Neighbors</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-messaging-incorrante-to-using-new-soundemojis/"><u>Interactive Messaging: Incorrante to Using New Soundemojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-marketing-with-8-key-crowdflower-features/"><u>Mastering Marketing with 8 Key CrowdFlower Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/peering-through-facebooks-governance-lens-with-center-debut/"><u>Peering Through Facebook’s Governance Lens with Center Debut</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-protection-plan-reject-these-invasive-apps/"><u>Privacy Protection Plan: Reject These Invasive Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-expansion-of-your-digital-network-via-messenger/"><u>Simplified Expansion of Your Digital Network via Messenger</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-blu-ray-replication-tool-exact-11-clone-without-compression-damage/"><u>Ultimate Blu-Ray Replication Tool - Exact 1:1 Clone without Compression Damage</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-break-free-from-sony-vegas-top-windows-video-editing-software-alternatives/"><u>Updated 2024 Approved Break Free From Sony Vegas Top Windows Video Editing Software Alternatives</u></a></li>
 </ul></div>
 

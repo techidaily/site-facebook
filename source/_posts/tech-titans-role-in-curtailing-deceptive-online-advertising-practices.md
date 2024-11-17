@@ -1,7 +1,7 @@
 ---
 title: Tech Titans' Role in Curtailing Deceptive Online Advertising Practices
-date: 2024-09-01T03:48:56.365Z
-updated: 2024-09-02T03:48:56.365Z
+date: 2024-11-16T16:06:01.110Z
+updated: 2024-11-17T16:31:11.861Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,13 @@ Adam French, Consumer Rights Expert at Which?, said:
 
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Response by Facebook and Google
 
 Facebook and Google both responded to the report by Which?
@@ -51,14 +58,11 @@ Facebook further stated:
 
  While Facebook and Google claim to be doing their part to battle bad ads, the report by Which? suggests that the opposite is true.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -67,8 +71,20 @@ Facebook further stated:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-the-full-review-of-lgs-high-definition-monitoring-experience/"><u>[New] The Full Review of LG's High Definition Monitoring Experience</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-compact-guide-to-macs-screen-recording-shortcuts-for-2024/"><u>[Updated] Compact Guide to Mac's Screen Recording Shortcuts for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-integrating-music-into-unboxing-videos-a-comprehensible-manual/"><u>[Updated] Integrating Music Into Unboxing Videos A Comprehensible Manual</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-reaching-more-posting-tiktok-videos-on-twitter-for-2024/"><u>[Updated] Reaching More Posting TikTok Videos on Twitter for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-ways-to-customize-your-facebook-feed/"><u>4 Ways to Customize Your Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150184377-alert-recover-your-compromised-fb-profile-now/"><u>Alert: Recover Your Compromised FB Profile Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipating-trouble-fbs-future-headline-outlook/"><u>Anticipating Trouble: FB's Future Headline Outlook</u></a></li>
+<li><a href="https://win-able.techidaily.com/avatars-pandora-adventure-stable-gameplay-experience-on-windows-and-pc/"><u>Avatar's Pandora Adventure - Stable Gameplay Experience on Windows & PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-boundaries-metamating-at-facebook/"><u>Breaking Boundaries: Metamating at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/buy-in-to-obtain-metas-paid-verification-badge/"><u>Buy-In to Obtain Meta's Paid Verification Badge</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-epson-l3t3150-software-update-on-windows-11-8-and-7-systems/"><u>Get the Latest Epson L3t3150 Software Update on Windows 11, 8, and 7 Systems</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-full-picture-unraveling-the-google-podcast-application/"><u>In 2024, Full Picture Unraveling the Google Podcast Application</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/mastering-file-saving-on-windows-11-a-compendium-of-six-techniques/"><u>Mastering File Saving on Windows 11 A Compendium of Six Techniques</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

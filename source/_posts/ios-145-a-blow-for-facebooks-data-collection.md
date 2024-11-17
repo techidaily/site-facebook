@@ -1,7 +1,7 @@
 ---
 title: "IOS 14.5: A Blow for Facebook's Data Collection?"
-date: 2024-11-04T11:07:39.787Z
-updated: 2024-11-07T06:08:02.206Z
+date: 2024-11-10T16:34:32.507Z
+updated: 2024-11-17T16:34:53.270Z
 tags:
   - facebook
 categories:
@@ -38,16 +38,16 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Does Facebook Make Money?
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
 
@@ -64,26 +64,26 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Many Users Allow App Tracking?
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
@@ -92,6 +92,13 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
 
@@ -102,13 +109,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  While this seems like a disaster for Facebook at first glance, it remains to be seen how badly it will affect the company.
 
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Facebook's Likely Response
 
@@ -135,22 +135,19 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-in-2024-addressing-hearing-gaps-in-video-content-sharing/"><u>[New] In 2024, Addressing Hearing Gaps in Video Content Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-simple-method-for-clearing-facebook-dings/"><u>A Simple Method for Clearing Facebook Dings</u></a></li>
-<li><a href="https://facebook.techidaily.com/digging-into-digital-distaste-for-global-community-sites/"><u>Digging Into Digital Distaste for Global Community Sites</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/expert-tools-for-photography-driven-film-production/"><u>Expert Tools for Photography-Driven Film Production</u></a></li>
-<li><a href="https://facebook.techidaily.com/friday-the-new-frontier-of-fbs-live-purchasing/"><u>Friday: The New Frontier of FB’s Live Purchasing</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/improving-detail-on-far-crys-rendering/"><u>Improving Detail on Far Cry's Rendering</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Xiaomi Redmi 12? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagrams-thread-feature-to-cease-in-dec/"><u>Instagram's Thread Feature to Cease in Dec</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-social-opportunities-the-case-for-facebook/"><u>Maximizing Social Opportunities: The Case for Facebook</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/mp4swf/"><u>MP4形式へのSWF変換方法と、失敗する理由分析</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-social-space-for-group-interaction-a-comparative-study/"><u>Navigating Social Space for Group Interaction: A Comparative Study</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-future-with-6-key-uses-of-facebook-today/"><u>Navigating the Future with 6 Key Uses of Facebook Today</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/pattern-locks-are-unsafe-secure-your-samsung-galaxy-m14-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Samsung Galaxy M14 5G Phone Now with These Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/scrutinizing-the-most-notable-tech-slip-ups-in-22/"><u>Scrutinizing The Most Notable Tech Slip-Ups in '22</u></a></li>
-<li><a href="https://extra-information.techidaily.com/strategic-cloud-cost-management-best-price-options/"><u>Strategic Cloud Cost Management Best Price Options</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unlocking-the-magic-of-meta-instructions-to-formulate-an-oculus-questquest-2-user-profile/"><u>Unlocking the Magic of Meta: Instructions to Formulate An Oculus Quest/Quest 2 User Profile</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-edit-mp4-files-on-mac-mavericks-a-comprehensive-guide-for-2024/"><u>Updated Edit MP4 Files on Mac Mavericks A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-ace-guide-to-constructing-virtual-classroom-headlines-for-2024/"><u>[Updated] Ace Guide to Constructing Virtual Classroom Headlines for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-best-screen-recording-apps-for-mac-users-excluded-from-bandicam/"><u>[Updated] In 2024, Best Screen Recording Apps for Mac Users - Excluded From Bandicam</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-zooms-finest-audio-to-text-solutions-complimentary-and-subscriptions/"><u>2024 Approved Zoom's Finest Audio-to-Text Solutions Complimentary & Subscriptions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-motorola-moto-g-5g-2023-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Motorola Moto G 5G (2023) Phone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/augmenting-learning-with-vr-for-2024/"><u>Augmenting Learning with VR for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/avchdm2tsmts/"><u>AVCHDフォーマットへのM2TS・MTS変換手順：徹底ガイド</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-the-future-with-meta-ais-social-media-entry/"><u>Deciding the Future with Meta AI's Social Media Entry</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-facebooks-operational-architecture-plan/"><u>Deciphering Facebook’s Operational Architecture Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-previous-social-interactions-on-fb/"><u>Delving Into Previous Social Interactions on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-for-your-profile-remove-regretful-posts-now/"><u>Digital Detox for Your Profile: Remove Regretful Posts Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dialogues-the-leading-20-forums-in-online-communication/"><u>Digital Dialogues: The Leading 20 Forums in Online Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-privacy-dont-join-facebooks-link-ledger/"><u>Dive Into Privacy: Don't Join Facebook's Link Ledger</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-vivo-v27e-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Vivo V27e Screen | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/unlocking-advanced-settings-installing-gpeditmsc-on-windows-home/"><u>Unlocking Advanced Settings: Installing GPEDIT.MSC on Windows Home</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2024-11-03T22:58:28.922Z
-updated: 2024-11-07T00:45:04.902Z
+date: 2024-11-10T17:30:40.816Z
+updated: 2024-11-17T16:07:03.145Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -60,22 +60,22 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-detailed-steps-for-a-flawless-ps3-gameplay-recording-process-for-2024/"><u>[New] Detailed Steps for a Flawless PS3 Gameplay Recording Process for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-unraveling-vrs-impact-on-digital-cinema/"><u>[New] Unraveling VR's Impact on Digital Cinema</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-multi-video-viewing-on-youtube/"><u>[Updated] Mastering Multi-Video Viewing on YouTube</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-seamless-audio-junction-expert-logic-pro-x-tips/"><u>2024 Approved Seamless Audio Junction Expert Logic Pro X Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-facebooks-internal-network-design/"><u>Dissecting Facebook's Internal Network Design</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-capitalize-on-your-tracks-through-facebooks-shared-earnings/"><u>How to Capitalize on Your Tracks Through Facebook's Shared Earnings</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-create-reels-on-facebook/"><u>How to Create Reels on Facebook</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-on-iphone-xs-max-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data on iPhone XS Max? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-apple-iphone-x-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the Apple iPhone X Without Previous Owner?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-lenovo-thinkphone-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Lenovo ThinkPhone to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/move-your-memories-fb-posts-and-notes-on-leading-websites-now-available/"><u>Move Your Memories: FB Posts & Notes on Leading Websites Now Available</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/next-level-relaxation-techniques-through-smarter-sleep-tools/"><u>Next-Level Relaxation Techniques Through Smarter Sleep Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-social-media-integration-a-step-by-step-guide/"><u>Streamlining Social Media Integration: A Step-by-Step Guide</u></a></li>
-<li><a href="https://win-popular.techidaily.com/transfer-your-favorite-songs-from-amazon-music-to-mp3wavaac-format-easy-guide-for-mac-and-pc/"><u>Transfer Your Favorite Songs From Amazon Music to MP3/WAV/AAC Format: Easy Guide for Mac & PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-candidates-fb-as-a-recruitment-tool/"><u>Transforming Candidates: FB as a Recruitment Tool</u></a></li>
-<li><a href="https://facebook.techidaily.com/wake-up-your-inactive-facebook-page-with-simple-fixes/"><u>Wake Up Your Inactive Facebook Page with Simple Fixes</u></a></li>
-<li><a href="https://facebook.techidaily.com/you-can-now-broadcast-on-instagram-live-without-video-or-sound/"><u>You Can Now Broadcast on Instagram Live Without Video or Sound</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-step-by-step-grab-facebook-videos-on-both-oses/"><u>[New] In 2024, Step-by-Step Grab Facebook Videos on Both OSes</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-optimal-visual-snatchers-for-videos/"><u>[Updated] 2024 Approved Optimal Visual Snatchers for Videos</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-tiktok-gaming-top-10-gaming-tiktokers/"><u>[Updated] In 2024, Tiktok Gaming | Top 10 Gaming Tiktokers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024s-8-must-have-iphone-selfie-enhancers/"><u>2024'S #8 Must-Have iPhone Selfie Enhancers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/crucial-aspects-to-evaluate-before-purchasing-vr-tech/"><u>Crucial Aspects to Evaluate Before Purchasing VR Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/deconstructing-public-sentiments-towards-sites-of-virtual-interaction/"><u>Deconstructing Public Sentiments Towards Sites of Virtual Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-actions-by-facebooks-regulatory-authority/"><u>Delay in Actions by Facebook's Regulatory Authority</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-docks-top-20-platforms-for-people-connecting-online/"><u>Digital Docks: Top 20 Platforms for People Connecting Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-general-member-notifications-fb/"><u>Disabling General Member Notifications: FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-why-apple-prefers-originality-over-virtual-realms/"><u>Discover Why Apple Prefers Originality over Virtual Realms</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismissing-automated-public-post-alerts/"><u>Dismissing Automated Public Post Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortlessly-add-context-to-your-fb-images-via-ai/"><u>Effortlessly Add Context to Your FB Images via AI</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-campaigns-8-crowdfire-features-worth-mastering/"><u>Elevate Your Campaigns: 8 Crowdfire Features Worth Mastering</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>How to Change Spotify Location After Moving to Another Country On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-iphone-13-pro-max-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock on iPhone 13 Pro Max or iPad?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-xiaomi-13t-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Xiaomi 13T Pro without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/winxdvd-remboursement-logiciel-politique-and-conditions-de-refaction-digiart/"><u>WinXDVD Remboursement Logiciel : Politique & Conditions De Réfaction | DigiArt</u></a></li>
 </ul></div>
 

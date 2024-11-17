@@ -1,7 +1,7 @@
 ---
 title: Preventing Personal Photos From Pervading Public Domain at Meta
-date: 2024-11-02T08:26:38.656Z
-updated: 2024-11-07T09:15:25.243Z
+date: 2024-11-12T18:05:05.938Z
+updated: 2024-11-17T17:46:45.084Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/24c0edcba484cab644836ae0bb31bb9d7220262ab
  Intimate images, like those including nudity, and content that exploits young people, are already not allowed on Meta’s platforms. Meta’s work with NCMEC will hopefully prevent more content like this from being posted. The enforcement of the guidelines before this was largely retroactive instead of proactive.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Meta Also Announces Safety Update to Instagram
@@ -50,10 +50,10 @@ thumbnail: https://thmb.techidaily.com/24c0edcba484cab644836ae0bb31bb9d7220262ab
 ![User using iPhone Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/theives-stealing-iphones-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Instagram also introduced safety updates to make it more difficult for suspicious adults to interact with teens on the app including direct messages and comments. Teen accounts will also receive notifications to update their privacy settings if a suspicious adult tries to interact with their account.
@@ -61,10 +61,16 @@ thumbnail: https://thmb.techidaily.com/24c0edcba484cab644836ae0bb31bb9d7220262ab
  These features are in addition to other safety features on Instagram, including many specifically for teens like[activating parental supervision on teen Instagram accounts](https://www.makeuseof.com/instagram-how-to-activate-parental-supervision/) .
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Meta Is Working to Prevent Intimate Image Sharing
@@ -86,20 +92,22 @@ thumbnail: https://thmb.techidaily.com/24c0edcba484cab644836ae0bb31bb9d7220262ab
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-correcting-mute-issue-during-obs-recording/"><u>[New] Correcting Mute Issue During OBS Recording</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-crafting-captivating-tiktoks-mastering-the-use-of-pre-designed-templates/"><u>[New] In 2024, Crafting Captivating TikToks Mastering the Use of Pre-Designed Templates</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-pros-recommendation-top-10-apps-for-high-quality-vimeo-downloads/"><u>[New] Pro's Recommendation Top 10 Apps for High-Quality Vimeo Downloads</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-record-and-save-every-sound-on-pc-exclusive-x-recorder/"><u>[Updated] Record & Save Every Sound on PC - Exclusive X-Recorder</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-essential-youtube-equipment-for-starting-your-channel-what-do-you-really-need/"><u>2024 Approved Essential YouTube Equipment For Starting Your Channel - What Do You Really Need?</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-cyberspace-30-the-metaverse-reality/"><u>Decoding Cyberspace 3.0: The Metaverse Reality</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/gamers-paradise-leading-5-hdmi-21-monitors-for-ps5-for-2024/"><u>Gamers' Paradise Leading 5 HDMI 2.1 Monitors for PS5 for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-your-facebook-secure-spotting-and-resolving-breaches/"><u>Is Your Facebook Secure? Spotting & Resolving Breaches</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/live-stream-magic-setting-up-logitech-cam-for-videos-for-2024/"><u>Live-Stream Magic Setting Up Logitech Cam for Videos for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/nixplays-x15d-elevates-photos-to-the-ultimate-viewing-standards/"><u>Nixplay’s X15D Elevates Photos to the Ultimate Viewing Standards</u></a></li>
-<li><a href="https://facebook.techidaily.com/reality-to-rhetoric-ai-transforms-words-in-pictures/"><u>Reality to Rhetoric: AI Transforms Words in Pictures</u></a></li>
-<li><a href="https://extra-support.techidaily.com/stealthy-sound-softening-with-garageband-for-2024/"><u>Stealthy Sound Softening with Garageband for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncover-new-tunes-with-a-mini-player-spotify-in-the-facebook-app/"><u>Uncover New Tunes with a Mini Player – Spotify in the Facebook App</u></a></li>
-<li><a href="https://facebook.techidaily.com/unintended-exposure-have-my-personal-and-phone-numbers-been-shared-on-facebook/"><u>Unintended Exposure: Have My Personal and Phone Numbers Been Shared on Facebook?</u></a></li>
-<li><a href="https://facebook.techidaily.com/uniting-members-efficiently-through-group-channels/"><u>Uniting Members Efficiently Through Group Channels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-enhance-content-top-10-mobile-and-desktop-friendly-editors-for-2024/"><u>[Updated] Enhance Content Top 10 Mobile & Desktop-Friendly Editors for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725285495078-winx-dvd-ripper/"><u>「コピーレス・ビデオ操作の達人：WinX DVD Ripper フリーソフトダウンロード指南」</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlock-creative-potential-smart-b-roll-incorporation/"><u>2024 Approved Unlock Creative Potential Smart B Roll Incorporation</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/avoiding-errors-essential-gpt-chat-tips/"><u>Avoiding Errors: Essential GPT Chat Tips</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/discover-the-coolest-20-animated-concepts-on-tiktok/"><u>Discover the Coolest 20 Animated Concepts on TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/extension-on-whatsapps-revised-terms-implementation-date/"><u>Extension on WhatsApp's Revised Terms Implementation Date</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-iphone-13-pro-could-not-be-activatedreached-issue-by-drfone-ios/"><u>In 2024, How To Fix iPhone 13 Pro Could Not Be Activated/Reached Issue</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-complete-guide-to-oppo-reno-11-5g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Oppo Reno 11 5G FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-connectivity-with-smart-fb-followingunfollowing/"><u>Maximizing Connectivity with Smart FB Following/Unfollowing</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-delete-disapproved-post-replies/"><u>Navigating the Nuances: Delete Disapproved Post Replies</u></a></li>
+<li><a href="https://review-topics.techidaily.com/nokia-data-recovery-recover-lost-data-from-nokia-c12-pro-by-fonelab-android-recover-data/"><u>Nokia Data Recovery – recover lost data from Nokia C12 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-your-music-via-spotify-mini-on-facebook/"><u>Personalize Your Music via Spotify Mini on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/phoney-pages-identifying-social-swindlers/"><u>Phoney Pages: Identifying Social Swindlers</u></a></li>
+<li><a href="https://facebook.techidaily.com/room-ready-rookies-a-guide-to-effective-room-use/"><u>Room-Ready Rookies: A Guide to Effective Room Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-guide-to-digital-grief-handling-facebook-profiles-of-the-deceased/"><u>The Guide to Digital Grief: Handling Facebook Profiles of the Deceased</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-step-by-step-blueprint-to-banishing-your-fb-brand-online/"><u>The Step-By-Step Blueprint to Banishing Your FB Brand Online</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-picks-for-ultimate-tech-presents-at-best-buy-zdnet-insights/"><u>Top Picks for Ultimate Tech Presents at Best Buy | ZDNet Insights</u></a></li>
 </ul></div>
 

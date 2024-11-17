@@ -1,7 +1,7 @@
 ---
 title: Your Daily Soundtrack via Spotify's Mini Player, Facebook Style
-date: 2024-11-03T16:29:28.998Z
-updated: 2024-11-06T22:39:50.862Z
+date: 2024-11-11T17:26:45.420Z
+updated: 2024-11-17T17:15:50.138Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/a2ae0e9b349bfae6598135f3a2f084fcd5a624b33
  Spotify’s miniplayer has already launched in the US, Canada, Australia, and in 25 other countries. Spotify is planning to expand this feature to more countries over the following months.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Listen to Spotify Songs Through the Facebook Miniplayer
@@ -60,19 +60,19 @@ thumbnail: https://thmb.techidaily.com/a2ae0e9b349bfae6598135f3a2f084fcd5a624b33
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -82,10 +82,10 @@ Close
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## More Audio Features Are Coming Soon
@@ -109,18 +109,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-unveiling-hidden-potential-in-videos-top-5-strategies-for-stellar-tiktok-captions/"><u>[New] 2024 Approved Unveiling Hidden Potential in Videos Top 5 Strategies for Stellar TikTok Captions</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-optimizing-podcast-visibility-via-instagram-channels/"><u>[Updated] Optimizing Podcast Visibility via Instagram Channels</u></a></li>
-<li><a href="https://blog-min.techidaily.com/complete-set-of-macxdvd-pro-features-now-available-with-exclusive-full-license-at-no-cost/"><u>Complete Set of MacXDVD Pro Features Now Available with Exclusive Full License at No Cost</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/expert-video-edits-how-to-masterly-modify-and-shorten-videos-on-vimeo-online-for-2024/"><u>Expert Video Edits How to Masterly Modify and Shorten Videos on Vimeo Online for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/expressive-exchanges-textual-embellishments-in-messages/"><u>Expressive Exchanges: Textual Embellishments in Messages</u></a></li>
-<li><a href="https://facebook.techidaily.com/giphy-at-a-crossroads-as-fb-sell-scenario-emerges/"><u>Giphy at a Crossroads as FB Sell Scenario Emerges</u></a></li>
-<li><a href="https://windows11.techidaily.com/handling-error-code-0xc00000f-with-ease-on-pcs/"><u>Handling Error Code 0xC00000F with Ease on PCs</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-g22-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Nokia G22 Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/master-the-motion-personalized-animation-techniques/"><u>Master the Motion Personalized Animation Techniques</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/obspluszoom-creating-a-flawless-production-workflow-for-2024/"><u>OBS+Zoom Creating a Flawless Production Workflow for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/skillful-use-of-alternative-chat-platforms-not-fb/"><u>Skillful Use of Alternative Chat Platforms, Not FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/suspension-of-decision-facebooks-regulatory-board/"><u>Suspension of Decision: Facebook's Regulatory Board</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-audio-matters-ensuring-excellent-sound-in-your-youtube-shots/"><u>[New] 2024 Approved Audio Matters Ensuring Excellent Sound in Your YouTube Shots</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-devising-a-personalized-tiktok-alphanumeric-marker/"><u>[New] In 2024, Devising a Personalized TikTok Alphanumeric Marker</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-how-to-download-vimeo-video-to-mp4/"><u>[Updated] 2024 Approved How To Download Vimeo Video to MP4</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-get-started-with-vn-video-editor-on-mac-or-find-alternative-solutions/"><u>New In 2024, Get Started with VN Video Editor on Mac or Find Alternative Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-details-corporate-gains-the-trade-off/"><u>Personal Details, Corporate Gains: The Trade-Off</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ups-and-downs-of-facebooks-user-growth/"><u>The Ups and Downs of Facebook's User Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/timing-your-social-media-posts-effectively/"><u>Timing Your Social Media Posts Effectively</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-xiaomi-civi-3-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Xiaomi Civi 3 Location | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-8-methods-for-bypassing-copy-protection-on-dvds-discover-free-alternatives/"><u>Top 8 Methods for Bypassing Copy Protection on DVDs: Discover Free Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-delays-implementation-of-updated-privacy-agreement/"><u>WhatsApp Delays Implementation of Updated Privacy Agreement</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-youll-love-social-sites-more-after-these-9-insights/"><u>Why You'll Love Social Sites More After These 9 Insights</u></a></li>
 </ul></div>
 

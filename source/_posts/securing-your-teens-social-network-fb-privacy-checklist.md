@@ -1,7 +1,7 @@
 ---
 title: "Securing Your Teen's Social Network: FB Privacy Checklist"
-date: 2024-09-01T03:50:02.509Z
-updated: 2024-09-02T03:50:02.509Z
+date: 2024-11-10T17:27:14.718Z
+updated: 2024-11-17T17:45:21.092Z
 tags:
   - facebook
 categories:
@@ -27,6 +27,13 @@ thumbnail: https://thmb.techidaily.com/227bd0353ed763348ef514468bae7b22e2b22e010
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
@@ -40,8 +47,12 @@ Close
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Privacy Setting Basics
 
  There are some[privacy settings on Facebook that you should change](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) as soon as you get a moment. With so many[Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) out there, you should address the issue of privacy for your teen's account before they fall victim to one of them.
@@ -69,20 +80,18 @@ Close
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Check Ad Settings
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 Close
 
  Facebook's news feeds show more than just the activity of friends and people your teen follows. They also show numerous advertisements. After you've checked the age of your teen to make sure they are not being shown inappropriate ads, you can also go to ad settings to optimize the kind of ads they see.
@@ -92,22 +101,23 @@ Close
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Why Online Safety Is More Important Than Ever
 
  Both posts and advertisements that your teen sees are unpredictable, and there is no such thing as being one hundred percent safe online. If you've never thought about checking their privacy settings on Facebook, it may be time to do so.
 
  By doing this, you will be able to make sure that when your teen posts something, it is only being seen by their close circle. You will also make sure that spammers have a limited chance of reaching them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -116,4 +126,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-complete-scrutiny-of-cutmatic-editor-for-2024/"><u>[New] Complete Scrutiny of CutMatic Editor for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-free-online-video-editors-for-youtube/"><u>[New] Free Online Video Editors for YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-screenplay-blueprint-unveiled/"><u>[New] Screenplay Blueprint Unveiled</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-stability-secrets-for-dynamic-photo-shoots/"><u>[Updated] 2024 Approved Stability Secrets for Dynamic Photo Shoots</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-sociostreamer-convert-to-webmmp4/"><u>[Updated] In 2024, SocioStreamer Convert to WebM/MP4</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-photos-that-speak-volumes-starting-with-lunapics-tutorial/"><u>[Updated] Photos That Speak Volumes Starting with LunaPic's Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-deep-dive-into-the-undercurrents-why-users-are-leaving-fb/"><u>A Deep Dive Into the Undercurrents: Why Users Are Leaving FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-establishing-industry-ties-via-facebook/"><u>A Step-by-Step Guide to Establishing Industry Ties via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieving-robust-account-protection-through-2fa-on-gmail-and-outlook-systems/"><u>Achieving Robust Account Protection Through 2FA on Gmail & Outlook Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-revised-page-tagging-system/"><u>Breaking Down Facebook's Revised Page Tagging System</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-chronicles-seeking-pages-groups-in-fb-realm/"><u>Connectivity Chronicles: Seeking Pages, Groups in FB Realm</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-three-dimensional-photos-for-social-media/"><u>Crafting Three-Dimensional Photos for Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-community-conduct-tapping-into-the-latest-tools-for-group-oversight-on-facebook/"><u>Cultivating Community Conduct: Tapping Into the Latest Tools for Group Oversight on Facebook</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209863368-9780648391210-oak-trees-gift/"><u>Oak Tree's Gift | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719143617196-overlooked-technology-moments-heres-what-you-missed-out/"><u>Overlooked Technology Moments, Here's What You Missed Out</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/transform-your-avchd-videos-for-youtube-essential-tips-and-tricks-for-successful-uploads/"><u>Transform Your AVCHD Videos for YouTube: Essential Tips and Tricks for Successful Uploads</u></a></li>
+<li><a href="https://win11.techidaily.com/winirq-fixing-killer-soundsystem-problems/"><u>WinIRQ: Fixing Killer Soundsystem Problems</u></a></li>
+</ul></div>
 

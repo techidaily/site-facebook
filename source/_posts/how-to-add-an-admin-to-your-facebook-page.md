@@ -1,7 +1,7 @@
 ---
 title: How to Add an Admin to Your Facebook Page
-date: 2024-09-01T03:49:34.107Z
-updated: 2024-09-02T03:49:34.107Z
+date: 2024-11-10T17:18:03.606Z
+updated: 2024-11-17T17:30:23.798Z
 tags:
   - facebook
 categories:
@@ -43,6 +43,13 @@ You actually have five roles to choose from on a Facebook page:
 
  If you are using Facebook in your desktop browser, follow these steps to make someone an admin on your page...
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Go to Your Facebook Page
 
  Sign in to Facebook and open the page that needs a new admin. On the**Manage Page** menu, you’ll see lots of options, a first indication of how much power and freedom you have as the page’s manager.
@@ -51,9 +58,6 @@ You actually have five roles to choose from on a Facebook page:
 
 ![Manage Page Tools on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/manage-page-tools-on-facebook.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Click on Settings
 
  Once in the**Settings** tab, you’ll find loads of other ways to change how the page performs, from letting visitors share and comment on your posts to censoring profanity and connecting Instagram and WhatsApp.
@@ -63,21 +67,18 @@ You actually have five roles to choose from on a Facebook page:
 ![Page Settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/page-settings-on-facebook.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### 3\. Click on Page Roles
 
  The**Page roles** tab is all about assembling your team. If you want to know exactly what each role can access, read[Facebook’s](https://www.facebook.com/help/289207354498410) [guide](http://www.facebook.com/help/289207354498410) carefully before making any decisive moves.
 
  When you’re sure you want a new admin for your Facebook page and you have someone ready for the role, go to the**Assign a new Page role** section.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### 4\. Assign a New Page Administrator
 
  Firstly, you need the person’s Facebook name or email address. Put either one in the available field and choose a role for them from the toggle bar—in this case**Admin** .
@@ -88,12 +89,6 @@ You actually have five roles to choose from on a Facebook page:
 
 ![Setting Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/setting-page-roles-on-facebook.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Edit an Admin’s Page Role to Remove Them
 
  If you want to replace or remove your extra administrator, find them in the**Existing Page roles** and click the**Edit** button beside their name.
@@ -115,9 +110,20 @@ Android and iOS platforms differ slightly as well.
 ![Facebook Add Person to Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-add-person-to-page.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![Facebook Choose Role for Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-choose-role-for-person.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -127,20 +133,24 @@ The app usually asks for your password to reach the final steps.
 
  Also, there’s a glitch to keep in mind: you can change yourself from admin into another role, but you can’t switch it back.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Learn How to Manage Your Facebook Communities and Boost Interaction
 
  Adding an admin to your Facebook page or group is not only the only way to improve, especially when it comes to creating great communities and running them to perfection.
 
  There are several measures you can take to keep members happy, safe, and active, like enabling anonymous posting, setting firm rules, and monitoring the situation with your team’s help. All-in-all, good cooperation and communication are key.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,4 +159,21 @@ The app usually asks for your password to reach the final steps.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-harnessing-famebits-secrets-to-thrive-with-key-channel-sponsors/"><u>[Updated] Harnessing FameBit's Secrets to Thrive with Key Channel Sponsors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-starting-a-youtube-channel-the-ultimate-blueprint/"><u>[Updated] Starting a YouTube Channel The Ultimate Blueprint</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unveiling-8-best-tools-for-youtube-to-avi-conversion-for-2024/"><u>[Updated] Unveiling 8 Best Tools for YouTube to AVI Conversion for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-chapter-for-trump-on-meta-platforms/"><u>A New Chapter for Trump on Meta Platforms</u></a></li>
+<li><a href="https://common-error.techidaily.com/acquiring-trust-navigating-trustedinstaller-for-file-alterations/"><u>Acquiring Trust: Navigating TrustedInstaller for File Alterations</u></a></li>
+<li><a href="https://facebook.techidaily.com/advocates-push-for-better-scam-ad-detection-systems-in-social-networks/"><u>Advocates Push for Better Scam Ad Detection Systems in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-facebook-post-schedule-ideas/"><u>Best Facebook Post Schedule Ideas</u></a></li>
+<li><a href="https://facebook.techidaily.com/block-group-wide-emoticon-tags-everyone/"><u>Block Group-Wide Emoticon Tags (@Everyone)</u></a></li>
+<li><a href="https://facebook.techidaily.com/control-and-customize-facebook-feed-reimagined/"><u>Control & Customize – Facebook FEED Reimagined</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-engaging-fb-posts-with-alt-descriptions/"><u>Crafting Engaging FB Posts with Alt Descriptions</u></a></li>
+<li><a href="https://fox-search.techidaily.com/download-music-from-tunein-directly-easy-mp3-and-wav-extraction-with-tunein-downloader/"><u>Download Music From TuneIn Directly - Easy MP3 and WAV Extraction with TuneIn Downloader</u></a></li>
+<li><a href="https://techtrends.techidaily.com/handbrake-compatibilite-avec-lencodage-av1-peut-on-utiliser-handbrake-pour-encode-en-av1/"><u>HandBrake : Compatibilité Avec L'encodage AV1 - Peut-On Utiliser Handbrake Pour Encode en AV1 ?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/honor-play-7t-support-forgotten-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Honor Play 7T support - Forgotten screen lock.</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-masterclass-selecting-christian-streaming-platforms/"><u>In 2024, Masterclass Selecting Christian Streaming Platforms</u></a></li>
+</ul></div>
 

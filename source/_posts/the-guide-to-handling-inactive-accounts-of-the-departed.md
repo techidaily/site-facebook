@@ -1,7 +1,7 @@
 ---
 title: The Guide to Handling Inactive Accounts of the Departed
-date: 2024-11-02T02:51:45.865Z
-updated: 2024-11-06T22:19:12.023Z
+date: 2024-11-12T17:02:08.704Z
+updated: 2024-11-17T17:46:40.141Z
 tags:
   - facebook
 categories:
@@ -46,15 +46,28 @@ To get a Facebook account memorialized, follow these steps:
  If your case is genuine, Facebook allows you to hold a fundraiser and let people worldwide help you manage money for the deceased person. Use[valuable tips to make your fundraising campaign a success](https://www.makeuseof.com/tag/crowdfunding-campaign-tips/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Get a Facebook Account Removed After the Person Dies
 
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
 
@@ -69,10 +82,10 @@ To get a Facebook account memorialized, follow these steps:
 2. In the**Full Name** section, enter your official credentials.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3. Add your email address currently in use under the**Your** **Contact Email** section. Facebook might contact you and acquire more details if needed.
@@ -82,13 +95,6 @@ To get a Facebook account memorialized, follow these steps:
 1. Enter the email address that was used to create that account in the**Account's Email Address** section.  
 ![Give deceased persons accounts email address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Give-complete-details-in-the-form.jpg)
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
 4. Choose an image or PDF depending on the document you were issued. Make sure they are authentic and come with a state seal for assurance.
@@ -100,10 +106,10 @@ To get a Facebook account memorialized, follow these steps:
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
@@ -129,18 +135,18 @@ To get a Facebook account memorialized, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-top-rated-apps-for-taking-screenshots-in-windows-8/"><u>[Updated] 2024 Approved Top-Rated Apps for Taking Screenshots in Windows 8</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-safaris-picture-in-picture-settings-simplified/"><u>2024 Approved Safari’s Picture In Picture Settings Simplified</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/customizing-your-pixels-melodic-identity/"><u>Customizing Your Pixel's Melodic Identity</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-fb-content-scheduling-top-5-low-cost-techniques/"><u>Effective FB Content Scheduling: Top 5 Low-Cost Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-digital-presence-sharing-hd-media-mobilely/"><u>Elevate Your Digital Presence: Sharing HD Media Mobilely</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-from-apple-iphone-12-mini-to-iphone-81111-pro-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer from Apple iPhone 12 mini to iPhone 8/11/11 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-sony-xperia-1-v-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Sony Xperia 1 V</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/interactive-evolution-facebooks-transformation-into-meta/"><u>Interactive Evolution: Facebook's Transformation Into Meta</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/power-draw-breakdown-for-windows-computing-systems/"><u>Power Draw Breakdown for Windows Computing Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/reels-and-royalties-the-role-of-meta-in-content-creator-earnings/"><u>Reels & Royalties: The Role of Meta in Content Creator Earnings</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-debate-over-digital-dissatisfaction-tools/"><u>The Debate Over Digital Dissatisfaction Tools</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/top-4-free-myspace-video-downloader-apps-with-mp4-and-mp3-support/"><u>Top 4 Free MySpace Video Downloader Apps with MP4 and MP3 Support</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-profit-potential-unlocked-how-to-enroll-in-youtubes-membership/"><u>[Updated] In 2024, Profit Potential Unlocked How to Enroll in YouTube's Membership</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-quintessential-scene-composers-haven/"><u>[Updated] In 2024, Quintessential Scene Composer's Haven</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-mystery-of-private-videos-on-facebook/"><u>Decoding the Mystery of Private Videos on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dependency-assessing-the-harmful-effects-on-individuals/"><u>Digital Dependency: Assessing the Harmful Effects on Individuals</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-philanthropy-facebooks-contribution-in-virus-combat/"><u>Digital Philanthropy: Facebook's Contribution in Virus Combat</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-approval-filters/"><u>Dissecting Facebook's Approval Filters</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-clubs-sever-social-media-links/"><u>Diving Clubs Sever Social Media Links</u></a></li>
+<li><a href="https://win11.techidaily.com/efficiency-seekers-guide-to-lightweight-browsers-for-windowsmacoschromeos/"><u>Efficiency Seekers' Guide to Lightweight Browsers for Windows/macOS/ChromeOS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-impact-of-a-narrower-scope-in-marvels-spiderman-miles-morales/"><u>Evaluating the Impact of a Narrower Scope in Marvel's Spiderman: Miles Morales</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-fix-audio-problems-with-your-chromecast-streamer/"><u>How to Fix Audio Problems with Your Chromecast Streamer</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-audio-compilations-for-video-production/"><u>In 2024, Ultimate Audio Compilations for Video Production</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-guide-to-dynamic-youtube-openers-in-imovie-for-2024/"><u>The Ultimate Guide to Dynamic YouTube Openers in iMovie for 2024</u></a></li>
+<li><a href="https://win-news.techidaily.com/windows-10-troubleshooting-unresponsive-buttons-and-icons-with-proven-fixes/"><u>Windows 10: Troubleshooting Unresponsive Buttons & Icons with Proven Fixes</u></a></li>
 </ul></div>
 

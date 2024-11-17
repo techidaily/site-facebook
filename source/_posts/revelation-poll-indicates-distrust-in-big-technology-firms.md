@@ -1,7 +1,7 @@
 ---
 title: "Revelation: Poll Indicates Distrust in Big Technology Firms"
-date: 2024-11-02T20:18:37.064Z
-updated: 2024-11-07T07:09:22.438Z
+date: 2024-11-14T17:16:20.799Z
+updated: 2024-11-17T17:03:35.574Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is the Least Trusted
@@ -54,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Facebook So Distrusted?
@@ -65,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
@@ -86,10 +86,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -117,18 +117,20 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-from-space-to-nature-yts-guide-for-dynamic-green-screen-filmmaking/"><u>[New] 2024 Approved From Space to Nature YT's Guide for Dynamic Green Screen Filmmaking</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-navigating-employment-and-video-content-creation/"><u>[New] 2024 Approved Navigating Employment and Video Content Creation</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-top-8-android-multi-user-video-chat-tools/"><u>[New] 2024 Approved Top 8 Android Multi-User Video Chat Tools</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-revolutionizing-video-views-conquering-youtube-millions/"><u>[New] Revolutionizing Video Views, Conquering YouTube Millions</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-skys-eye-insights-overview/"><u>[New] Sky's Eye Insights Overview</u></a></li>
-<li><a href="https://facebook.techidaily.com/clarifying-the-us-and-them-in-social-networking-namespaces/"><u>Clarifying the Us and Them in Social Networking Namespaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-founder-names-goat-as-crypto-pet/"><u>Facebook Founder Names Goat as 'Crypto' Pet!</u></a></li>
-<li><a href="https://facebook.techidaily.com/implementing-key-privacy-measures-in-adolescent-social-media-use/"><u>Implementing Key Privacy Measures in Adolescent Social Media Use</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-harmonizing-photo-and-video-in-one-iphone-session/"><u>In 2024, Harmonizing Photo & Video in One iPhone Session</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/johannes-honterus-a-great-personality-who-inspires-and-motivates-us/"><u>Johannes Honterus: A Great Personality Who Inspires And Motivates Us</u></a></li>
-<li><a href="https://facebook.techidaily.com/modify-contact-settings-in-facebook-account/"><u>Modify Contact Settings in Facebook Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-sea-of-stability-in-crypto-coins/"><u>Navigating the Sea of Stability in Crypto Coins</u></a></li>
-<li><a href="https://facebook.techidaily.com/sayonara-facebook-8-critical-checks-for-a-smooth-unfollow/"><u>Sayonara, Facebook! 8 Critical Checks for a Smooth Unfollow</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-affluent-animator-architects-for-2024/"><u>[New] Affluent Animator Architects for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-for-classic-film-aesthetics/"><u>[Updated] Step-by-Step for Classic Film Aesthetics</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-transforming-images-with-the-best-color-adjustment-guides/"><u>2024 Approved Transforming Images with the Best Color Adjustment Guides</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/a-deep-dive-into-fraps-recording-capabilities/"><u>A Deep Dive Into Fraps Recording Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149358872-a-step-forward-in-securing-online-communications-newly-launched-end-to-end-encrypted-features-on-facebook-platforms/"><u>A Step Forward in Securing Online Communications: Newly Launched End-to-End Encrypted Features on Facebook Platforms.</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-apocalypse-facebook-whatsapp-offline/"><u>App Apocalypse: Facebook, WhatsApp Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-barriers-to-private-conversations-facebooks-revolutionary-end-to-end-encrypted-services-rollout-for-messenger-and-instagram/"><u>Breaking Down Barriers to Private Conversations: Facebook's Revolutionary End-to-End Encrypted Services Rollout for Messenger and Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/calm-down-people-reality-check-on-fb-user-trends/"><u>Calm Down, People! Reality Check on FB User Trends</u></a></li>
+<li><a href="https://win-info.techidaily.com/comment-resoudre-le-probleme-du-bouton-dignore-sur-lappareil-de-recuperation-acer/"><u>Comment Résoudre Le Problème Du Bouton D'Ignoré Sur L'Appareil De Récupération Acér</u></a></li>
+<li><a href="https://facebook.techidaily.com/communication-controverny-whatsapp-legal-battle-with-indian-authorities/"><u>Communication Controverny: WhatsApp Legal Battle with Indian Authorities</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-personalized-facebook-profile-photo/"><u>Crafting a Personalized Facebook Profile Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149610552-ending-facial-id-at-meta-but-why-uncover-the-story/"><u>Ending Facial ID at Meta, But Why? Uncover The Story</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/perfecting-your-photos-utilizing-psxs-erase-feature/"><u>Perfecting Your Photos Utilizing PSX's Erase Feature</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-and-simple-guide-to-downloading-wireless-network-card-software/"><u>Quick & Simple Guide to Downloading Wireless Network Card Software</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/tecno-xs-geekom-mega-mini-g1-a-unique-aquarium-style-pc-powered-by-intel-i9-and-nvidia-rtx-graphics/"><u>Tecno X's GeekOm Mega Mini G1: A Unique Aquarium Style PC Powered by Intel I9 and Nvidia RTX Graphics</u></a></li>
 </ul></div>
 

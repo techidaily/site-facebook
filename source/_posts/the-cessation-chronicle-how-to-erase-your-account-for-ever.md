@@ -1,7 +1,7 @@
 ---
 title: "The Cessation Chronicle: How to Erase Your Account for Ever"
-date: 2024-11-14T16:14:16.108Z
-updated: 2024-11-17T16:15:47.986Z
+date: 2024-11-23T03:39:59.366Z
+updated: 2024-11-27T01:03:47.298Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 
 ![Facebook email announcing account deletion](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-email-announcing-account-deletion.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you delete your Facebook account, all of your information will be gone for good. There is no way to retrieve the data, and there is no way to reactivate your account at a later date. If you decide you want to rejoin the social network, you'll need to make a new account.
 
  Facebook will wipe almost all your data from its servers. Once again, messages you've sent to other people will live on in their inboxes, and data such as log records will stay in Facebook's database. However, all personal identifiers will be removed.
@@ -39,19 +43,6 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
  When you delete your account, Facebook gives you a cooling-off period. You can log in to your account within 30 days to retrieve your account data or reactivate it. It means if you're determined to permanently delete Facebook, you'll need to stay off it for a month.
 
  Once the cooling-off period passes, Facebook promises to remove all traces of your profile from its servers within 90 days. But don't worry; during the 90 days, your data is unavailable to other Facebook users.
-
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Before You Delete Your Facebook Account
 
@@ -81,22 +72,13 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 
 ![Apps and website section of Facebook settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/apps-and-website-section-of-facebook-settings.jpeg)
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  You can see which apps have access to your Facebook account by clicking your profile picture and going to **Settings & privacy > Settings > Apps and Websites** .
 
  You may need to approach the third-party app developer directly; you cannot make the necessary changes through Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Tell People You're Leaving Facebook
 
@@ -105,13 +87,6 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
  Clearly, you can't post the same "I'm leaving" message day after day, so why not[change your Facebook profile picture](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to an image of your username on Instagram, Snapchat, or any other network you plan to keep using?
 
  By doing so, you won't be pestering people with spam, but they'll learn that you're planning to delete your Facebook account every time you pop up on their news feed. You can even crop your friends list back before posting your new details to prevent them from spreading too widely.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Delete a Facebook Account
 
@@ -124,20 +99,21 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 ![Personal details section of the Accounts Center in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/personal-details-section-of-the-accounts-center-in-facebook.jpeg)
 5. On the next screen, select**Deactivation or deletion** and choose the profile you want to delete.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 6. Confirm you want to delete your account by choosing the**Delete account** toggle on the next screen.
 
 ![Deactivating or deleting your Facebook account prompt on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/deactivating-or-deleting-your-facebook-account-prompt-on-facebook-web.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You will be asked to enter your password and confirm your decision. Once you do that, your account will be deleted.
 
  But if you want a less permanent solution, you can choose to deactivate your account instead.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deactivate a Facebook Account
 
@@ -165,6 +141,10 @@ Here's how to deactivate your Facebook account:
 
  Your account will also be reactivated if you use your Facebook credentials to log into a third-party app or service.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Should You Delete Facebook?
 
  Deleting your Facebook account is a big decision. It's not something you should do lightly. Make sure you really want to delete your account before committing. Remember, the process is irreversible after a month. Make absolutely sure it's a decision you won't regret first.
@@ -184,22 +164,22 @@ Here's how to deactivate your Facebook account:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-maximizing-outreach-facebook-videos-transmitted-to-whatsapp/"><u>[New] 2024 Approved Maximizing Outreach Facebook Videos Transmitted to WhatsApp</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unleash-the-mixer-in-you-20-free-custom-luts-for-dji-minis-and-airs/"><u>[New] Unleash the Mixer in You 20 Free, Custom LUTs for DJI Minis & Airs</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-audio-amplification-adding-tracks-to-premiere-projects-with-ease/"><u>[Updated] 2024 Approved Audio Amplification Adding Tracks to Premiere Projects with Ease</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-ultimate-mix-of-youtube-and-instagram-feeds/"><u>[Updated] In 2024, The Ultimate Mix of YouTube & Instagram Feeds</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-secrets-to-smoothly-resolving-youtube-short-issues/"><u>[Updated] Secrets to Smoothly Resolving YouTube Short Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-roadmap-to-safer-facebook-practices-for-your-teens/"><u>A Roadmap to Safer Facebook Practices for Your Teens</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-facebook-quizzes-a-cybersecurity-risk/"><u>Are Facebook Quizzes a Cybersecurity Risk?</u></a></li>
-<li><a href="https://facebook.techidaily.com/blending-personal-and-professional-networks-on-whatsapp/"><u>Blending Personal and Professional Networks on WhatsApp</u></a></li>
-<li><a href="https://facebook.techidaily.com/care-for-confidentiality-sidestep-these-3-apps/"><u>Care for Confidentiality: Sidestep These 3 Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/charting-a-course-the-rise-of-metamates-at-facebook/"><u>Charting a Course: The Rise of 'Metamates' At Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/cyber-safety-guide-for-social-networks/"><u>Cyber Safety Guide for Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-diligence-defense-sidestep-these-snooping-apps/"><u>Data Diligence Defense: Sidestep These Snooping Apps</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1722903036548-navigating-your-way-through-buying-a-dash-cam-consider-these-9-key-points-first/"><u>Navigating Your Way Through Buying a Dash Cam? Consider These 9 Key Points First!</u></a></li>
-<li><a href="https://windows11.techidaily.com/pro-tips-for-capturing-uac-alerts-in-windows/"><u>Pro Tips for Capturing UAC Alerts in Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719146908119-unveil-social-connectivity-transfer-facebook-storages-to-leading-services/"><u>Unveil Social Connectivity: Transfer Facebook Storages to Leading Services.</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-make-an-impact-with-these-top-10-intro-makers-for-pc-for-2024/"><u>Updated Make an Impact with These Top 10 Intro Makers for PC for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/zero-cost-instant-message-services-available-for-apple-products-download-now/"><u>Zero Cost Instant Message Services Available for Apple Products – Download Now</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-amplify-your-audience-engagement-with-strategic-instagram-videos/"><u>[New] In 2024, Amplify Your Audience Engagement with Strategic Instagram Videos</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-revolutionary-recording-aids-for-a-healthy-earth/"><u>[Updated] 2024 Approved Revolutionary Recording Aids for a Healthy Earth</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-a-quick-guide-to-moving-videos-from-youtube-to-dailymotion/"><u>[Updated] A Quick Guide to Moving Videos From YouTube to Dailymotion</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-secure-your-travel-documents-grab-10-free-passport-photos-onlinedesktop/"><u>[Updated] In 2024, Secure Your Travel Documents Grab 10 FREE Passport Photos Online/Desktop</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-vlog-gear-list-17-edition/"><u>[Updated] The Ultimate Vlog Gear List (#17 Edition)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unveiling-hand-trackings-evolution-and-practice/"><u>2024 Approved Unveiling Hand Tracking's Evolution and Practice</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Detailed guide of ispoofer for pogo installation On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-enters-sunglasses-space-with-ray-ban-stories-launch/"><u>Facebook Enters Sunglasses Space with Ray-Ban Stories Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-quizzes-potential-security-threat/"><u>Facebook Quizzes: Potential Security Threat?</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-group-dynamics-with-innovative-channels-technology/"><u>Redefining Group Dynamics with Innovative Channels Technology</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/revive-your-photos-top-tools-for-recovering-broken-jpeg-file-formats-effortlessly/"><u>Revive Your Photos: Top Tools for Recovering Broken JPEG File Formats Effortlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/scaling-success-top-5-monetization-tactics-for-instagram-and-facebook/"><u>Scaling Success: Top 5 Monetization Tactics for Instagram and Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-savvy-boosting-income-through-fbig-tactics/"><u>Social Savvy: Boosting Income Through FB/IG Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-process-of-disbanding-an-online-group/"><u>The Complete Process of Disbanding an Online Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-adaptive-url-management-in-fb/"><u>The Ultimate Guide to Adaptive URL Management in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-virtual-city-plan-facebooks-latest-feature-unveiled/"><u>The Virtual City Plan: Facebook’s Latest Feature Unveiled</u></a></li>
+<li><a href="https://apple-account.techidaily.com/unlock-apple-id-without-phone-number-from-iphone-6-plus-by-drfone-ios/"><u>Unlock Apple ID without Phone Number From iPhone 6 Plus</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook's New Feature for Enhanced Informed Sharing
-date: 2024-11-12T17:47:43.038Z
-updated: 2024-11-17T17:02:40.473Z
+date: 2024-11-26T14:12:23.637Z
+updated: 2024-11-26T16:45:30.990Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Prods Users to Read Before Sharing
 
  Facebook wants you to look past the headline, and actually read the news article you're about to share with your friends.
@@ -33,10 +37,7 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
  Facebook then gives you two ways to reply to this prompt: **Open Article** and **Continue Sharing** . In other words, you can choose to read the article you're about to post, or continue to share it without reading.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Twitter Already Unveiled a Similar Prompt
@@ -48,10 +49,7 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
  While[Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Will Facebook Ever Be Free of Misinformation?
@@ -75,22 +73,20 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-optimizing-your-social-media-wirecast-on-facebook-streaming/"><u>[New] In 2024, Optimizing Your Social Media Wirecast on Facebook Streaming</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-instagram-story-upgrade-how-to-add-music-effectively/"><u>[New] Instagram Story Upgrade How to Add Music Effectively</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-screen-snag-reviewed-in-depth-analysis/"><u>[Updated] 2024 Approved Screen Snag Reviewed In-Depth Analysis</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-understanding-vivas-video-experience/"><u>[Updated] Understanding Viva's Video Experience</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-5-ways-to-record-webinar-for-free/"><u>2024 Approved 5 Ways to Record Webinar for Free</u></a></li>
-<li><a href="https://facebook.techidaily.com/embracing-spotify-within-the-facebook-app-ecosystem/"><u>Embracing Spotify Within the Facebook App Ecosystem</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/every-angle-in-a-single-shot-versus-depth-driven-photography/"><u>Every Angle in a Single Shot versus Depth-Driven Photography</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-list-facebook-blockers-effectively/"><u>How to List Facebook Blockers Effectively</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-oppo-a38-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Oppo A38?</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/in-depth-asus-rog-rapture-gt-ax110n-wifi-router-evaluation-topnotch-performance-for-gamers/"><u>In-Depth Asus ROG Rapture GT-AX110n WiFi Router Evaluation: Topnotch Performance for Gamers</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-your-social-preferences-private-fb-like-camouflage/"><u>Keep Your Social Preferences Private: FB Like Camouflage</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-privacy-settings-for-an-invisible-fb-presence/"><u>Mastering Privacy Settings for an Invisible Fb Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/recovering-your-facebook-account-post-code-loss/"><u>Recovering Your Facebook Account Post Code Loss</u></a></li>
-<li><a href="https://facebook.techidaily.com/sailing-smoothly-the-role-of-stability-coins-in-crypto/"><u>Sailing Smoothly: The Role of Stability Coins in Crypto</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/transform-raw-images-to-bmp-format-instantly-free-with-movavis-tool/"><u>Transform RAW Images to BMP Format Instantly, Free with Movavi's Tool</u></a></li>
-<li><a href="https://facebook.techidaily.com/unfettered-access-to-whatsapp-features-ignoring-new-policies/"><u>Unfettered Access to WhatsApp Features: Ignoring New Policies</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-selection-process-for-my-fb-ads/"><u>Unveiling the Selection Process for My FB Ads</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-gopro-vs-sjcam-capturing-the-thrill/"><u>[New] In 2024, GoPro vs SJCAM Capturing the Thrill</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-sensational-screens-the-top-10-tech-for-live-recordings/"><u>[New] Sensational Screens The Top 10 Tech for Live Recordings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-real-time-transmission-of-recorded-content-on-social-media-via-facebook/"><u>[Updated] Real-Time Transmission of Recorded Content on Social Media via Facebook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unparalleled-quality-discover-the-best-8-streamer-cameras/"><u>[Updated] Unparalleled Quality Discover the Best 8 Streamer Cameras</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-streamlined-process-step-by-step-telegram-web-guide/"><u>2024 Approved Streamlined Process Step-by-Step Telegram Web Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/beginners-guide-to-iphone-video-capture-for-2024/"><u>Beginner's Guide to Iphone Video Capture for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722974272191-bruno-mars-with-hits-like-uptown-funk-and-24k-magic-bruno-mars-music-is-always-filled-with-energy/"><u>Bruno Mars – With Hits Like Uptown Funk and 24K Magic, Bruno Mars' Music Is Always Filled with Energy.</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-texting-tech-boost-for-instagram-and-messenger-a-new-era-begins/"><u>Facebook's Texting Tech Boost for Instagram and Messenger: A New Era Begins</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-tecno-spark-10-pro-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Tecno Spark 10 Pro Phone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-engagement-top-5-costless-fb-update-planning-tips/"><u>Maximize Engagement: Top 5 Costless FB Update Planning Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-the-art-of-followingunfollowing-on-facebook/"><u>Navigating Social Media: The Art of Following/Unfollowing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/peak-times-for-online-presence-growth/"><u>Peak Times for Online Presence Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-control-tackling-fb-upsets/"><u>Regaining Control: Tackling FB Upsets</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviving-a-virtual-gem-could-llife-shine-in-the-metaverse-era/"><u>Reviving a Virtual Gem: Could LLife Shine in the Metaverse Era?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-vigilance-justified-trump-suspension-not-permanent/"><u>Social Media Vigilance: Justified Trump Suspension, Not Permanent</u></a></li>
 </ul></div>
 

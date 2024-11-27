@@ -1,7 +1,7 @@
 ---
 title: Is Participating in FB Quizzes Risky for Privacy?
-date: 2024-11-16T16:25:06.681Z
-updated: 2024-11-17T16:26:50.546Z
+date: 2024-11-22T05:45:08.397Z
+updated: 2024-11-27T14:12:48.731Z
 tags:
   - facebook
 categories:
@@ -30,16 +30,13 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
 [The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Cybersecurity Risks of Facebook Quizzes
 
 ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
 
@@ -48,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
  If you answer one of these quizzes as a Facebook post or comment, you give anyone on the internet access to your security question answers alongside your name. Hackers and scammers can use that information to break into your online, bank, and credit card accounts. This data could even be used to open accounts in your name and commit fraud or identity theft.
 
  These quizzes are[a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What to Do if You’ve Taken Facebook Quizzes
 
@@ -61,21 +62,16 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Take Screenshots and Notes
 
 ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
@@ -92,13 +88,6 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
  Finally,[submit a report](https://www.identitytheft.gov/#/) to the Federal Trade Commission to alert them to a potential identity theft risk. This will help protect you and others from identity theft if the quiz gave away sensitive information to a fraudster or scammer. If you have an identity protection service or insurance plan, contact those representatives, as well.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Change Your Security Question Answers
 
  It might be a hassle, but it’s a good idea to go through all of your important accounts and change your security question answers. Use the list or screenshot of your answers from the quiz to guide your changes. Don’t reuse any answers you gave away on the quiz.
@@ -108,10 +97,7 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
  Some websites or services may allow you to secure your account without using security questions. If this is an option, it is worth using. For example, you might be able to use one-time codes sent to your phone or email instead of answering security questions to reset your password, i.e.[two-factor authentication (2FA)](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Staying Safe on Facebook
@@ -133,15 +119,20 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-highest-paid-youtuber-in-the-world/"><u>[New] 2024 Approved Highest Paid YouTuber in the World</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-how-to-share-screen-on-google-meet/"><u>[New] 2024 Approved How to Share Screen on Google Meet</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-strengthening-your-brand-with-high-quality-fb-covers/"><u>[Updated] In 2024, Strengthening Your Brand with High-Quality FB Covers</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-keys-to-protecting-personal-data-on-facebooks-network/"><u>5 Keys to Protecting Personal Data on Facebook's Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/break-up-with-spotify-remove-it-from-facebook/"><u>Break Up with Spotify: Remove It From Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-regretful-tweets-be-undone/"><u>Can Regretful Tweets Be Undone?</u></a></li>
-<li><a href="https://facebook.techidaily.com/career-development-tips-integrating-facebook-into-your-plan/"><u>Career Development Tips: Integrating Facebook Into Your Plan</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-stopping-auto-capture-in-apples-recorder/"><u>In 2024, Stopping Auto-Capture in Apple's Recorder</u></a></li>
-<li><a href="https://driver-install.techidaily.com/logitech-hd-webcam-c270-driver-download-for-windows-1011/"><u>Logitech HD Webcam C270 Driver Download for Windows 10/11</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/resolving-the-issue-sony-dvd-player-refuses-to-read-discs-a-step-by-step-guide/"><u>Resolving the Issue: Sony DVD Player Refuses to Read Discs – A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-dive-into-digital-green-magic-top-4-youtube-sources-for-no-cost-background-workshops/"><u>[New] 2024 Approved Dive Into Digital Green Magic Top 4 YouTube Sources for No-Cost Background Workshops</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-transform-your-streams-best-4k-video-downloaders-summarized/"><u>[New] Transform Your Streams Best 4K Video Downloaders Summarized</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-dive-into-digital-green-magic-top-4-youtube-sources-for-no-cost-background-workshops/"><u>[Updated] In 2024, Dive Into Digital Green Magic Top 4 YouTube Sources for No-Cost Background Workshops</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-laptoppc-video-editing-tools-apart-from-inshot-for-2024/"><u>[Updated] Laptop/PC Video Editing Tools Apart From Inshot for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-next-gen-recording-techniques-fusing-webcam-and-slideshows-for-2024/"><u>[Updated] Next-Gen Recording Techniques Fusing Webcam and Slideshows for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/elevate-ai-responses-to-peak-performance-with-these-5-proven-techniques/"><u>Elevate AI Responses to Peak Performance with These 5 Proven Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-brands-profile-top-8-reasons-why-a-company-page-triumphs/"><u>Elevating Your Brand's Profile: Top 8 Reasons Why a Company Page Triumphs</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-realme-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on Realme</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-unsubscribe-from-all-fb-newsworthy-items/"><u>How To Unsubscribe From All FB Newsworthy Items</u></a></li>
+<li><a href="https://facebook.techidaily.com/less-screen-more-self-my-exploration-post-social-networks/"><u>Less Screen, More Self: My Exploration Post-Social Networks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/navigating-the-best-hdr-cameras/"><u>Navigating the Best HDR Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-path-implementing-2fa-on-facebook-platform/"><u>Navigating the Path: Implementing 2FA on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-graph-of-change-facebook-to-meta-story/"><u>The Graph of Change: Facebook to Meta Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-significance-of-fbcta-in-digital-world/"><u>The Significance of FBCTA in Digital World</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-mystery-fbs-insider-speaking-out/"><u>Unveiling The Mystery: FB's Insider Speaking Out</u></a></li>
 </ul></div>
 

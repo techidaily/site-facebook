@@ -1,7 +1,7 @@
 ---
 title: What Is a Facebook Cloning Scam?
-date: 2024-11-16T16:22:03.960Z
-updated: 2024-11-17T17:42:07.695Z
+date: 2024-11-21T17:49:27.823Z
+updated: 2024-11-27T14:29:03.484Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is a Facebook Account Cloning Scam?
 
  This type of scam involves using a cloned account to send phishing links, or trick your friends into giving information, or, worse, sending money. They may also use this cloned account for[other scams on the social network](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) by exploiting your identity and your contacts.
@@ -33,16 +37,7 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  The more they trick into adding them, the more legit their accounts will look like.
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Do Scammers Clone Accounts?
@@ -60,6 +55,10 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  Other scammers could pretend to be you, reach out to your friends and ask for money.
 
  They’d say something about being in an accident, a particularly sticky situation, or an emergency. Then they’ll ask your friends to send money right away. Because your friends and family care about you and want to get you out of the situation fast, there’s a chance they’ll send the scammers money without thinking.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Cloning vs. Facebook Hacking
 
@@ -84,10 +83,7 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  There’s also a chance the scammers have already blocked you and you won’t find it when you search so ask your friends to find it for you.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Protect Yourself From Facebook Account Cloning
@@ -101,10 +97,7 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  Also, set your friends list to private so scammers can’t target them.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Check If Your Facebook Account Is Public
@@ -116,13 +109,6 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  You cannot edit your profile while you’re on "View As". But you can take note of all the content and the dates of your public posts so you can find them later and change their audience settings.
 
  To exit "View As" mode, click**Exit View As** on the top right corner of the screen.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What to Do If You Find a Cloned Facebook Account
 
@@ -151,22 +137,20 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-detailed-insight-the-functionality-of-google-podcast-app/"><u>[Updated] In 2024, Detailed Insight The Functionality of Google Podcast App</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unlocking-imovies-potential-youtube-video-edition-excellence/"><u>[Updated] In 2024, Unlocking iMovie's Potential YouTube Video Edition Excellence</u></a></li>
-<li><a href="https://facebook.techidaily.com/hints-and-echoes-deciphering-the-art-of-vague-blogging/"><u>Hints & Echoes: Deciphering the Art of Vague Blogging</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-samsung-galaxy-s23-ultra-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Samsung Galaxy S23 Ultra Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-12-pro-to-the-previous-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 12 Pro to the Previous iOS System Version? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/intuitive-design-mastering-your-newsfeeds-appearance/"><u>Intuitive Design - Mastering Your Newsfeed's Appearance</u></a></li>
-<li><a href="https://facebook.techidaily.com/joe-just-waits-bringing-fb-snap-and-tweet-to-the-vax-scene/"><u>JOE JUST WAITS: Bringing FB, Snap, and Tweet to the Vax Scene</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-printer-settings-and-outputs-in-adobe-photoshop/"><u>Mastering Printer Settings and Outputs in Adobe Photoshop</u></a></li>
-<li><a href="https://program-issues.techidaily.com/mastering-the-fixes-for-warzones-flickering-challenges-expert-tips-inside/"><u>Mastering the Fixes for Warzone's Flickering Challenges – Expert Tips Inside</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/maximizing-productivity-6-chatgpt-strategies-for-remote-professionals/"><u>Maximizing Productivity: 6 ChatGPT Strategies for Remote Professionals</u></a></li>
-<li><a href="https://facebook.techidaily.com/opting-out-of-iphones-personal-data-harvesting/"><u>Opting Out of iPhones' Personal Data Harvesting</u></a></li>
-<li><a href="https://facebook.techidaily.com/patterns-in-digital-identity-theft/"><u>Patterns in Digital Identity Theft</u></a></li>
-<li><a href="https://fox-that.techidaily.com/resolving-not-delivered-errors-in-ios-messaging-a-guide/"><u>Resolving 'Not Delivered' Errors in iOS Messaging - A Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/second-lifes-potential-renaissance-as-we-navigate-the-metaverse/"><u>Second Life's Potential Renaissance as We Navigate The Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/unwritten-protocols-and-social-norms-on-facebook/"><u>Unwritten Protocols and Social Norms on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-is-the-facebook-whistleblower-and-what-did-they-say-on-60-minutes/"><u>Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?</u></a></li>
-<li><a href="https://howto.techidaily.com/why-is-my-nokia-c12-pro-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Nokia C12 Pro Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-top-strategies-for-chronicling-lol-showdowns/"><u>[New] Top Strategies for Chronicling LOL Showdowns</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-exclusive-choice-of-cost-free-chat-apps-plus-desktop-viewing/"><u>[Updated] 2024 Approved Exclusive Choice of Cost-Free Chat Apps + Desktop Viewing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-insiders-handbook-to-whatsapp-hidden-features/"><u>[Updated] 2024 Approved The Insider's Handbook to WhatsApp Hidden Features</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-3-unconventional-tactics-for-subscriber-growth-for-2024/"><u>[Updated] 3 Unconventional Tactics for Subscriber Growth for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-wants-10000-workers-to-build-the-metaverse-could-you-be-one-of-them/"><u>Facebook Wants 10,000 Workers to Build the Metaverse: Could You Be One of Them?</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-memory-purgatory-how-to-uninvite-acquaintances/"><u>FB's Memory Purgatory: How to Uninvite Acquaintances</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-y78plus-t1-edition-by-fonelab-android-recover-photos/"><u>How to get back lost photos from Y78+ (T1) Edition.</u></a></li>
+<li><a href="https://techidaily.com/how-to-install-the-latest-iosipados-beta-version-on-apple-iphone-12-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS/iPadOS Beta Version on Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-fix-the-apple-iphone-se-2020-gps-not-working-issue-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix the Apple iPhone SE (2020) GPS not Working Issue | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-your-way-back-into-a-locked-out-facebook/"><u>Navigating Your Way Back Into a Locked-Out Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sharing-made-simple-integrating-fb-content-across-3-services/"><u>Social Sharing Made Simple: Integrating FB Content Across 3 Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-use-of-facebooks-daily-alert-for-rest-breaks/"><u>Strategic Use of Facebook's Daily Alert for Rest Breaks</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/the-ultimate-guide-to-gopro-quik-and-its-pc-counterparts-for-2024/"><u>The Ultimate Guide to GoPro Quik and Its PC Counterparts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-pattern-4-signs-that-point-to-lesser-usage-on-fb/"><u>Understanding the Pattern: 4 Signs That Point to Lesser Usage on FB</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlocking-extra-convenience-with-your-electric-vehicle-hov-lane-use-and-preferred-parking-options/"><u>Unlocking Extra Convenience with Your Electric Vehicle: HOV Lane Use and Preferred Parking Options</u></a></li>
 </ul></div>
 

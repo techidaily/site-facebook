@@ -1,7 +1,7 @@
 ---
 title: Facebook Adopts a Prompt for Informed, Thoughtful Sharing
-date: 2024-11-16T17:51:34.414Z
-updated: 2024-11-17T16:36:15.727Z
+date: 2024-11-20T03:24:36.820Z
+updated: 2024-11-26T19:20:19.775Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Prods Users to Read Before Sharing
 
  Facebook wants you to look past the headline, and actually read the news article you're about to share with your friends.
@@ -33,10 +37,7 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
  Facebook then gives you two ways to reply to this prompt: **Open Article** and **Continue Sharing** . In other words, you can choose to read the article you're about to post, or continue to share it without reading.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Twitter Already Unveiled a Similar Prompt
@@ -48,10 +49,7 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
  While[Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Will Facebook Ever Be Free of Misinformation?
@@ -75,22 +73,22 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-going-beyond-why-you-might-want-an-alternate-to-vidmas-reader/"><u>[New] 2024 Approved Going Beyond Why You Might Want an Alternate to Vidma's Reader</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-5-premier-racer-simulators-that-captivate-you/"><u>[New] In 2024, 5 Premier Racer Simulators That Captivate You</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-fast-fixes-effortless-screenshots-and-captures-with-dell-for-2024/"><u>[Updated] Fast Fixes Effortless Screenshots & Captures with Dell for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-ultimate-choice-the-10-free-cross-platform-video-calling-tools/"><u>2024 Approved Ultimate Choice The 10 Free, Cross-Platform Video Calling Tools</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/best-of-the-bots-which-ai-delivers-on-a-unique-challenge/"><u>Best of the Bots: Which AI Delivers on a Unique Challenge?</u></a></li>
-<li><a href="https://facebook.techidaily.com/fbs-eco-journey-entirely-powered-by-sustainable-energy/"><u>FB's Eco-Journey: Entirely Powered by Sustainable Energy</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-infinix-smart-8-phone-by-drfone-android/"><u>How to Unlock a Network Locked Infinix Smart 8 Phone?</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-info-the-one-whistleblowing-to-fbs-secret-life/"><u>Inside Info: The One Whistleblowing to FB's Secret Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-shadowbanning-how-to-stay-undetected/"><u>Inside Shadowbanning: How to Stay Undetected</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-creating-memorable-online-gatherings-on-facebook/"><u>Mastering the Art of Creating Memorable Online Gatherings on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/revelations-of-a-digital-watchmaker-facebooks-undisclosed-device/"><u>Revelations of a Digital Watchmaker: Facebook's Undisclosed Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-space-what-not-to-post-in-the-online-world/"><u>Secure Your Space: What Not to Post in the Online World</u></a></li>
-<li><a href="https://facebook.techidaily.com/simplifying-your-social-space-with-fb-restrictions/"><u>Simplifying Your Social Space with Fb Restrictions</u></a></li>
-<li><a href="https://win11.techidaily.com/stress-free-script-repair-quick-fixes-for-windows-issues/"><u>Stress-Free Script Repair: Quick Fixes for Windows Issues</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-ultimate-guide-to-the-iphone-15-for-professionals-insights-reviews-and-why-it-stands-out/"><u>The Ultimate Guide to the iPhone 15 for Professionals: Insights, Reviews, & Why It Stands Out</u></a></li>
-<li><a href="https://facebook.techidaily.com/thriving-in-digital-conversations-a-guide-to-a-prolific-facebook-clan/"><u>Thriving in Digital Conversations: A Guide to a Prolific Facebook Clan</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/2233012-9780316393294-witches/"><u>Witches | Free Book</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-8-tips-on-how-to-vlog-confidently-like-popular-youtubers-for-2024/"><u>[New] 8 Tips on How to Vlog Confidently Like Popular YouTubers for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-essential-guide-to-aiseesofts-screencasting-features-for-2024/"><u>[Updated] Essential Guide to Aiseesoft's Screencasting Features for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-leveraging-hashtags-in-twitter-advertising/"><u>[Updated] In 2024, Leveraging Hashtags in Twitter Advertising</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-methods-to-resuscitate-windows-photo-viewer-on-latest-os/"><u>2024 Approved Methods to Resuscitate Windows Photo Viewer on Latest OS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-philips-hf3520-alarm-clock-evaluation-an-economical-yet-reliable-choice/"><u>Affordable Philips HF3520 Alarm Clock Evaluation: An Economical Yet Reliable Choice</u></a></li>
+<li><a href="https://win-special.techidaily.com/buy-microsoft-office-2019-at-a-bargain-secure-license-for-pc-or-mac-under-25-now-insights-from-zdnet/"><u>Buy Microsoft Office 2019 at a Bargain! Secure License for PC or Mac Under $25 Now | Insights From ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-security-with-a-new-user-code-for-fb/"><u>Elevating Security with a New User Code for FB</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exploring-the-world-of-bing-how-it-compares-to-google/"><u>Exploring the World of Bing - How It Compares to Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-fb-away-tips-for-timely-restoration-monitoring/"><u>Is FB Away? Tips for Timely Restoration Monitoring</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-and-efficient-management-of-social-links-in-fb/"><u>Secure & Efficient Management of Social Links in FB</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-pursuit-of-ultra-clarity-the-4k-z32x-reviewed-for-2024/"><u>The Pursuit of Ultra Clarity The 4K Z32X Reviewed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-metamorphosis-from-facebook-to-meta/"><u>The Social Media Metamorphosis: From Facebook to Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/triumphing-at-friend-identification-3-powerful-tagging-on-fb/"><u>Triumphing at Friend Identification: 3 Powerful Tagging on Fb</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-your-honors-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Honors Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-undercover-messages-a-guide-to-fb-texts/"><u>Unlocking Undercover Messages: A Guide to FB Texts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-big-techs-future-with-americas-strengthened-antitrust-approach/"><u>Unpacking Big Tech's Future with America's Strengthened Antitrust Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-power-of-artificial-intelligence-in-facebook-posts/"><u>Unveiling the Power of Artificial Intelligence in Facebook Posts</u></a></li>
 </ul></div>
 

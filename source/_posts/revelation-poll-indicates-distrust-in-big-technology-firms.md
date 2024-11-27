@@ -1,7 +1,7 @@
 ---
 title: "Revelation: Poll Indicates Distrust in Big Technology Firms"
-date: 2024-11-14T17:16:20.799Z
-updated: 2024-11-17T17:03:35.574Z
+date: 2024-11-25T18:09:11.254Z
+updated: 2024-11-27T14:25:19.776Z
 tags:
   - facebook
 categories:
@@ -24,9 +24,17 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Does the Poll Say?
 
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
 
@@ -39,10 +47,7 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is the Least Trusted
@@ -54,22 +59,12 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Is Facebook So Distrusted?
 
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
 
@@ -86,10 +81,7 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -117,20 +109,20 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-affluent-animator-architects-for-2024/"><u>[New] Affluent Animator Architects for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-for-classic-film-aesthetics/"><u>[Updated] Step-by-Step for Classic Film Aesthetics</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-transforming-images-with-the-best-color-adjustment-guides/"><u>2024 Approved Transforming Images with the Best Color Adjustment Guides</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/a-deep-dive-into-fraps-recording-capabilities/"><u>A Deep Dive Into Fraps Recording Capabilities</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149358872-a-step-forward-in-securing-online-communications-newly-launched-end-to-end-encrypted-features-on-facebook-platforms/"><u>A Step Forward in Securing Online Communications: Newly Launched End-to-End Encrypted Features on Facebook Platforms.</u></a></li>
-<li><a href="https://facebook.techidaily.com/app-apocalypse-facebook-whatsapp-offline/"><u>App Apocalypse: Facebook, WhatsApp Offline</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-barriers-to-private-conversations-facebooks-revolutionary-end-to-end-encrypted-services-rollout-for-messenger-and-instagram/"><u>Breaking Down Barriers to Private Conversations: Facebook's Revolutionary End-to-End Encrypted Services Rollout for Messenger and Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/calm-down-people-reality-check-on-fb-user-trends/"><u>Calm Down, People! Reality Check on FB User Trends</u></a></li>
-<li><a href="https://win-info.techidaily.com/comment-resoudre-le-probleme-du-bouton-dignore-sur-lappareil-de-recuperation-acer/"><u>Comment Résoudre Le Problème Du Bouton D'Ignoré Sur L'Appareil De Récupération Acér</u></a></li>
-<li><a href="https://facebook.techidaily.com/communication-controverny-whatsapp-legal-battle-with-indian-authorities/"><u>Communication Controverny: WhatsApp Legal Battle with Indian Authorities</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-personalized-facebook-profile-photo/"><u>Crafting a Personalized Facebook Profile Photo</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149610552-ending-facial-id-at-meta-but-why-uncover-the-story/"><u>Ending Facial ID at Meta, But Why? Uncover The Story</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/perfecting-your-photos-utilizing-psxs-erase-feature/"><u>Perfecting Your Photos Utilizing PSX's Erase Feature</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/quick-and-simple-guide-to-downloading-wireless-network-card-software/"><u>Quick & Simple Guide to Downloading Wireless Network Card Software</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/tecno-xs-geekom-mega-mini-g1-a-unique-aquarium-style-pc-powered-by-intel-i9-and-nvidia-rtx-graphics/"><u>Tecno X's GeekOm Mega Mini G1: A Unique Aquarium Style PC Powered by Intel I9 and Nvidia RTX Graphics</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-lightweight-obs-adjustments-for-thriftier-systems/"><u>[New] 2024 Approved Lightweight OBS Adjustments for Thriftier Systems</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-sync-your-creativity-across-chrome-android-and-ios-for-tiktok/"><u>[New] Sync Your Creativity Across Chrome, Android & iOS for TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-top-sportsmen-reject-cyber-abuse-on-digital-networks/"><u>England's Top Sportsmen Reject Cyber Abuse on Digital Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-facebooks-new-gesture-based-interface/"><u>Examining Facebook's New Gesture-Based Interface</u></a></li>
+<li><a href="https://program-issues.techidaily.com/forza-horizon-4-pc-crash-issues-resolved-troubleshooting-guide/"><u>Forza Horizon 4 PC Crash Issues Resolved: Troubleshooting Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-touch-screen-on-vivo-y27-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-track-imei-number-of-motorola-moto-g34-5g-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Motorola Moto G34 5G Through Google Earth?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-hands-on-strategies-to-keep-vimeo-videos/"><u>In 2024, Hands-On Strategies to Keep Vimeo Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/insiders-guide-facebook-privacy-lines/"><u>Insider's Guide: Facebook Privacy Lines</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-triad-the-social-titans-among-us/"><u>Meta’s Triad: The Social Titans Among Us</u></a></li>
+<li><a href="https://win-blog.techidaily.com/movavi-scambiare-file-m4r-con-formato-ogg-gratuitamente-on-line/"><u>Movavi: Scambiare File M4R Con Formato OGG Gratuitamente On-Line</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-the-way-you-connect-and-navigate-on-facebook/"><u>Revolutionizing The Way You Connect & Navigate on Facebook</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/the-ultimate-insight-into-toms-digital-tools-and-components/"><u>The Ultimate Insight Into Tom's Digital Tools & Components</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-virtual-audience-numbers/"><u>Unveiling Virtual Audience Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-social-networking-goes-south-the-top-5-times-facebook-failed-its-audience/"><u>When Social Networking Goes South: The Top 5 Times Facebook Failed Its Audience</u></a></li>
 </ul></div>
 

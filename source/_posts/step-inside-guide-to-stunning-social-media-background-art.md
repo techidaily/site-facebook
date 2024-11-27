@@ -1,7 +1,7 @@
 ---
 title: Step-Inside Guide to Stunning Social Media Background Art
-date: 2024-11-11T16:01:30.866Z
-updated: 2024-11-17T18:09:04.149Z
+date: 2024-11-22T04:31:44.506Z
+updated: 2024-11-27T10:50:31.090Z
 tags:
   - facebook
 categories:
@@ -38,10 +38,7 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
  When you choose a photo, note that a small section in the bottom left corner will be covered by your profile photo. The profile photo measures 170 x 170 pixels on desktop or 128 x 128 pixels on mobile, including the border.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Create the Perfect Facebook Cover Photo
@@ -57,14 +54,11 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
 ![Facebook Cover Photo Outdoor Movies BC](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Cover-Photo-Outdoor-Movies-BC.jpg)
 * Add your tagline and/or logo, like[Destination Reroute](https://www.facebook.com/destinationreroute/) :  
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook Cover Photo Destination Reroute](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Cover-Photo-Destination-Reroute.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Creating images like the ones above isn't hard. You can use a[free image editor](https://www.makeuseof.com/free-photo-editing-software/) such as[Paint.NET](https://www.getpaint.net/) or[IrfanView](https://www.irfanview.com/) . Keep in mind the measurements we shared above, so that any text or logo you add remains in-frame. You can also try to playfully integrate your profile photo, by working its minimal overlay into your cover image. Remember that the white frame is added by Facebook.
 
@@ -72,22 +66,12 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
 
  If that sounds too complicated, try one of the many Facebook cover photo tools. They can help you crop your favorite photo to the perfect size, add filters, combine several pictures into a collage, or add your pictures to a fun template. With those helpers, it becomes easy to create a custom and amazing Facebook cover photo.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1. Canva
 
 ![Canva Free Online Facebook Cover Maker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Canva-Free-Online-Facebook-Cover-Maker.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Canva offers a free online Facebook cover maker. It's packed with free templates and everything else you could need to produce the perfect cover image. Each template lets you edit every single element, including visuals, text, fonts, borders, and more.
@@ -98,19 +82,6 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
 
  You'll inevitably come across a pro template or watermarked images you'd like to use. If you haven't done so before, you can try Canva Pro for free for 30 days. Anything you download is yours to keep when the trial ends.
 
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. Fotor
 
 ![Fotor Facebook Cover Photo Maker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Fotor-Facebook-Cover-Photo-Maker.jpg)
@@ -118,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
  Fotor's Facebook cover photo maker bears a stunning resemblance to Canva, but it's not identical. For one, Fotor uses Facebook's recommended 851 x 315 pixels for the cover image, rather than a much larger size, like Canva does. You'll also find different templates, stock photos, and elements. While Fotor's basic functionality is quite similar to Canva, it does use layers, much like Photoshop.
 
  Like Canva, Fotor offers a free trial, but it's only three days, and you have to provide payment details in advance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Add a Cover Photo to Facebook
 
@@ -132,6 +107,10 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
 
 ![Facebook Page With Edit Cover Photo Menu Expanded](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Page-With-Edit-Cover-Photo-Menu-Expanded.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you don't have a cover photo yet, click**Add a Cover** in the bottom right and from the menu, pick either**Select Photo** or**Upload photo** .
 
 ![Facebook Page With Empty Cover Photo Section](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Page-With-Empty-Cover-Photo-Section.jpg)
@@ -139,6 +118,10 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
  When you choose**Select Photo** , you'll be able to browse through all your**Recent photos** or**Photo Albums** saved on Facebook.
 
 ![Facebook Cover Select Photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Cover-Select-Photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Once you have uploaded or selected a photo, you'll see a**Drag to Reposition** tooltip in the center of your cover photo. Facebook will automatically adjust the photo to the maximum width. If it's taller than the available space, you can drag it into place until you are happy with the result.
 
@@ -151,13 +134,6 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
 ![Facebook Hide Post From Profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Hide-Post-From-Profile.jpg)
 
  Screenshot by Tina Sieber, no attribution required.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Make Your Facebook Cover Shine
 
@@ -178,18 +154,16 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-uncover-the-10-best-makeup-experts-on-youtube-you-cant-ignore/"><u>[New] 2024 Approved Uncover the 10 Best Makeup Experts on YouTube You Can't Ignore</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-travel-film-kit-the-necessary-arsenal/"><u>[Updated] In 2024, Travel Film Kit The Necessary Arsenal</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-avoiding-manual-transcription-by-leveraging-voice-recognition-in-ppt/"><u>2024 Approved Avoiding Manual Transcription by Leveraging Voice Recognition in PPT</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-discover-the-leading-livestream-service-sites/"><u>2024 Approved Discover the Leading Livestream Service Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/harnessing-powerful-features-the-case-for-facebook-events/"><u>Harnessing Powerful Features: The Case for Facebook Events</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-leave-a-life360-group-on-xiaomi-redmi-note-12-proplus-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Xiaomi Redmi Note 12 Pro+ 5G Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-14-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>How To Unlock Apple iPhone 14 Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/instant-results-selective-lite-android-options/"><u>Instant Results: Selective Lite Android Options</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/mastering-motherboards-and-more-inside-toms-digital-workshop/"><u>Mastering Motherboards and More: Inside Tom's Digital Workshop</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-away-from-sophisticated-social-trickery/"><u>Navigating Away From Sophisticated Social Trickery</u></a></li>
-<li><a href="https://facebook.techidaily.com/silent-evolution-the-mysterious-journey-to-a-facebook-watch/"><u>Silent Evolution: The Mysterious Journey to a Facebook Watch</u></a></li>
-<li><a href="https://driver-install.techidaily.com/streamline-h420-driver-with-windows-update/"><u>Streamline H420 Driver with Windows Update</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-friendship-blending-facebook-pics-into-whatsapp-chats/"><u>The Art of Friendship: Blending Facebook Pics Into WhatsApp Chats</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-the-complete-guide-to-scheduling-and-recording-online-meetings-with-slack-and-filmora/"><u>[New] 2024 Approved The Complete Guide to Scheduling & Recording Online Meetings with Slack & Filmora</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mastering-screencast-with-ezvide-maker-tool/"><u>[New] Mastering Screencast with EZvide Maker Tool</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-frosty-frontiers-winter-games-apex-moments/"><u>[Updated] Frosty Frontiers Winter Games Apex Moments</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/cookiebot-enabled-enhance-your-website-traffic-with-our-advanced-analytics-tools/"><u>Cookiebot-Enabled: Enhance Your Website Traffic with Our Advanced Analytics Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-expat-community-on-fb-pros-cons-included/"><u>Exploring the Expat Community on FB – Pros, Cons Included</u></a></li>
+<li><a href="https://facebook.techidaily.com/facial-ids-downfall-meta-writes-the-new-chapter-for-fb/"><u>Facial ID's Downfall? Meta’ Writes the New Chapter for FB</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-google-pixel-fold-with-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Google Pixel Fold with Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-f14-5g-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Samsung Galaxy F14 5G Phone Without Password?</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-the-nft-space-meta-drops-limited-trial-era/"><u>Pioneering the NFT Space: Meta Drop's Limited Trial Era</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-timing-for-facebook-picture-upgrade/"><u>Strategic Timing for Facebook Picture Upgrade</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-era-of-project-management-unlocking-facebooks-8-capabilities/"><u>The New Era of Project Management: Unlocking Facebook's 8 Capabilities</u></a></li>
 </ul></div>
 

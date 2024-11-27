@@ -1,7 +1,7 @@
 ---
 title: Navigating Life Beyond the Social Media Realm
-date: 2024-09-01T03:41:27.763Z
-updated: 2024-09-02T03:41:27.763Z
+date: 2024-11-26T01:33:42.666Z
+updated: 2024-11-27T02:40:10.790Z
 tags:
   - facebook
 categories:
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/687f213b654e163de402b0cf9fa734fffc6a53510
  But where does Facebook land? While it was once the platform with the most active daily users, it's no longer so. Many prefer other social media to get their online fix. But does the platform deserve its seeming fall from grace?
 
  Yes, and here are some reasons you shouldn't use Facebook anymore.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Facebook Tracks You Around the Web
 
@@ -46,15 +50,17 @@ thumbnail: https://thmb.techidaily.com/687f213b654e163de402b0cf9fa734fffc6a53510
 Bottom line: Facebook sees you as a lab rat.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Fake News
 
 ![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  The catchphrase ‘‘fake news’’ may have only cemented itself as part of the daily vocabulary fairly recently, but the concept of deliberately feeding people misinformation is as old as human civilization itself.
 
  We're not here to discuss the philosophical standpoints around fake news. You can decide where you stand in the freedom-of-speech debate.
@@ -66,8 +72,9 @@ Bottom line: Facebook sees you as a lab rat.
  If Facebook is your primary source of news, it's time to move on.[You should look elsewhere for trustworthy news delivery](https://www.makeuseof.com/tag/trust-news-sites/) .
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Questionable Privacy Practices
 
  Facebook has obfuscated and complicated its privacy settings for as long as anyone can remember.
@@ -80,30 +87,24 @@ Bottom line: Facebook sees you as a lab rat.
 
  Facebook wants you to overlook settings, so it can use your data. If you want[a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Facebook Has Forgotten Its Roots
 
 ![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  When Facebook first burst onto the scene, it was revolutionary. Sure, sites like MySpace had enjoyed some previous success, but Facebook was the first network that was truly fit for widespread use.
 
  And we loved it. Our newsfeeds were full of photos and updates from close friends.
 
  But as time has passed, the newsfeed became more and more diluted.[Excessively large friend networks](https://www.makeuseof.com/tag/5-reasons-start-deleting-facebook-friends/) and a deluge of posts from advertisers, pages you Liked years ago, and "news" organizations meant the network lost its original charm.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. What Even Is Facebook Anymore?
 
 ![people looking at laptop confused](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/people-looking-at-laptop-confused.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
  It's almost a given that social media platforms nowadays copy each other's features, so it's pretty much expected to see some overlap. But each still managed to have one thing it's known for above all others. So, for Instagram, it's image uploads, Twitter is a status-sharing platform, TikTok is for video uploads, and so on. But what about Facebook?
 
  Compared to all the other social media spaces, Facebook seems like the biggest mess. It allows you to go live, share videos, pictures, and statuses—all things you can do on other platforms and, dare we say, better. So what's the point of Facebook?
@@ -118,14 +119,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Facebook actively threatens your data. There have been so many data leaks and privacy breaches over the years—would you even find it surprising if another one follows? That shouldn't be the case. Spare yourself the headaches of holding onto Facebook, and move on.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,4 +132,21 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/rom-novice-to-expert-setting-up-a-sports-channel-on-mac-for-2024/"><u>[New] From Novice to Expert Setting up a Sports Channel on Mac for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-your-easy-route-to-tiktok-bliss-on-a-macbook/"><u>[New] In 2024, Your Easy Route to TikTok Bliss on a MacBook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-guiding-users-on-completely-audible-fb-videos/"><u>[Updated] 2024 Approved Guiding Users on Completely Audible FB Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-who-skipped-my-story-unfollowers-scan/"><u>[Updated] Who Skipped My Story? Unfollowers Scan</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-pcs-ultimate-guide-to-ps1-game-emulation-software/"><u>2024 Approved PC's Ultimate Guide to PS1 Game Emulation Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-non-disable-feature-of-fb-suggestions/"><u>Exploring the Non-Disable Feature of FB Suggestions</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-nokia-c32-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Nokia C32 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-samsung-galaxy-m34-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Samsung Galaxy M34 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/monetize-mastery-unveiling-instagrams-fresh-earnings-opportunities/"><u>Monetize Mastery: Unveiling Instagram's Fresh Earnings Opportunities</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-top-online-tools-to-generate-artificial-faces-for-free/"><u>New 2024 Approved Top Online Tools to Generate Artificial Faces for Free</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-communication-grows-facebook-rolls-out-encrypted-chat-for-messenger-and-dms/"><u>Secure Communication Grows: Facebook Rolls Out Encrypted Chat for Messenger and DMs.</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-pulse-drive-interest-in-your-fb-congregation/"><u>Social Pulse: Drive Interest in Your Fb Congregation</u></a></li>
+<li><a href="https://facebook.techidaily.com/thread-closure-coming-this-december-on-instagram/"><u>Thread Closure Coming This December on Instagram</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-lava-blaze-pro-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Lava Blaze Pro 5G FRP Bypass</u></a></li>
+</ul></div>
 

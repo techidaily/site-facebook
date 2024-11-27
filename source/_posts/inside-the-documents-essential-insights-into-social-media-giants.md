@@ -1,7 +1,7 @@
 ---
 title: "Inside the Documents: Essential Insights Into Social Media Giants"
-date: 2024-11-11T16:01:32.926Z
-updated: 2024-11-17T16:13:00.234Z
+date: 2024-11-22T03:48:41.479Z
+updated: 2024-11-27T05:16:48.639Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Facebook Papers?
 
  We've already covered[what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
@@ -33,10 +37,7 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
  On Monday, October 25, 2021, at 7am, the news outlets began publishing the information found in the leaked data, delivering unparalleled insight into the inner workings of Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7 Key Revelations From the Facebook Papers
@@ -70,22 +71,24 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-theme-crafting-for-gaming-channels-a-visual-journey/"><u>[New] 2024 Approved Theme Crafting for Gaming Channels A Visual Journey</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-achieving-a-natural-sound-curve-dimming-audio-smoothly/"><u>[Updated] Achieving a Natural Sound Curve Dimming Audio Smoothly</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-video-making-opt-for-studio-versus-beta-version-for-2024/"><u>[Updated] Expert Video Making Opt for Studio Versus Beta Version for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-must-have-tools-for-effective-social-media-scheduling/"><u>5 Must-Have Tools for Effective Social Media Scheduling</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-deep-dive-into-the-most-influential-podcasts-this-year/"><u>A Deep Dive Into the Most Influential Podcasts This Year</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-the-authenticity-of-security-email-at-facebookmailcom-for-fb-safety/"><u>Analyzing the Authenticity of Security Email at facebookmail.com for FB Safety</u></a></li>
-<li><a href="https://extra-information.techidaily.com/big-sur-essentials-system-and-hardware-upgrade-for-2024/"><u>Big Sur Essentials System and Hardware Upgrade for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/changing-the-birth-monthyear-in-facebook-account/"><u>Changing the Birth Month/Year in Facebook Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/chirp-cheer-and-celebrate-mastering-messengers-auditory-emojis/"><u>Chirp, Cheer, and Celebrate: Mastering Messenger’s Auditory Emojis</u></a></li>
-<li><a href="https://facebook.techidaily.com/circumventing-two-factor-authentication-on-fb-wo-device/"><u>Circumventing Two-Factor Authentication on Fb W/O Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/claims-facebook-clears-advertising-standards/"><u>Claims: Facebook Clears Advertising Standards</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-new-social-persona-changing-name-on-facebook-platform/"><u>Crafting a New Social Persona: Changing Name on Facebook Platform</u></a></li>
-<li><a href="https://games-able.techidaily.com/crafting-the-ultimate-game-machine-must-have-parts/"><u>Crafting the Ultimate Game Machine - Must-Have Parts</u></a></li>
-<li><a href="https://network-issues.techidaily.com/disconnected-from-wi-fi-reconnect-with-win10-steps/"><u>Disconnected From Wi-Fi? Reconnect with Win10 Steps</u></a></li>
-<li><a href="https://techidaily.com/how-to-repair-apple-iphone-15-system-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone 15 System? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-vivo-v30-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Vivo V30 to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/spotlight-on-snapchat-a-step-by-step-guide/"><u>Spotlight on Snapchat A Step-by-Step Guide</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-unleashing-artful-expression-the-most-exceptional-9-sites-for-3d-graffiti-typefaces/"><u>[New] 2024 Approved Unleashing Artful Expression The Most Exceptional 9 Sites for 3D Graffiti Typefaces</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-iphones-and-gifs-perfecting-your-visual-playlist/"><u>[New] IPhones & GIFs Perfecting Your Visual Playlist</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-viral-vibes-the-best-bgm-to-complement-your-yt-short-creations/"><u>[New] Viral Vibes The Best BGM to Complement Your YT Short Creations</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-propel-participation-through-unique-custom-story-queries/"><u>[Updated] 2024 Approved Propel Participation Through Unique, Custom Story Queries</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Samsung Galaxy F34 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-facebook-fans-gain-more-with-streamed-content-sharing/"><u>2024 Approved Facebook Fans Gain More with Streamed Content Sharing</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/eliminar-archivos-de-respaldo-completos-del-disco-duro-en-windows-10-guia-detallada/"><u>Eliminar Archivos De Respaldo Completos Del Disco Duro en Windows 10 - Guía Detallada</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-from-apple-iphone-15-pro-max-by-drfone-ios/"><u>How to Fix Locked Apple ID from Apple iPhone 15 Pro Max</u></a></li>
+<li><a href="https://facebook.techidaily.com/joining-forces-8-digital-avenues-of-human-connection/"><u>Joining Forces: 8 Digital Avenues of Human Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/low-cost-strategies-5-tips-for-efficient-fb-update-planning/"><u>Low-Cost Strategies: 5 Tips for Efficient FB Update Planning</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-discretion-concealing-likes-on-fb/"><u>Mastering Discretion: Concealing Likes on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-safety-on-fb-marketplace-essential-nine-steps/"><u>Mastering Safety on FB Marketplace: Essential Nine Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-the-digital-market-how-facebook-outpaces-apple-with-link-services/"><u>Redefining the Digital Market: How Facebook Outpaces Apple with Link Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-group-engagement-through-channels/"><u>Streamlining Group Engagement Through Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-titans-clash-why-meta-is-building-an-unrivaled-ai-leviathan/"><u>Tech Titans Clash: Why Meta Is Building an Unrivaled AI Leviathan</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-facebook-interaction-maximizing-impact-responsibly/"><u>The Art of Facebook Interaction: Maximizing Impact Responsibly</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-science-behind-time-warp-visuals/"><u>The Science Behind Time Warp Visuals</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-15-activities-perfect-for-podcast-lovers-for-2024/"><u>Top 15 Activities Perfect for Podcast Lovers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-foregoing-link-logging-on-facebook-saves-your-privacy/"><u>Why Foregoing Link Logging on Facebook Saves Your Privacy</u></a></li>
 </ul></div>
 

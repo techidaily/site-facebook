@@ -1,7 +1,7 @@
 ---
 title: "Unplug and Recharge: Why Quitting Facebook Is Wise"
-date: 2024-09-01T03:45:49.413Z
-updated: 2024-09-02T03:45:49.413Z
+date: 2024-11-20T16:48:07.455Z
+updated: 2024-11-26T19:37:52.660Z
 tags:
   - facebook
 categories:
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/6190a0016cd0db6cebefe5acaadd207d01333c258
 
 ![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way[Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
 
  Let's try and be fair for a moment. Facebook provides its services for free, and in return, we accept we're handing over data to one of the largest advertising firms in the world.
@@ -46,8 +50,9 @@ thumbnail: https://thmb.techidaily.com/6190a0016cd0db6cebefe5acaadd207d01333c258
 Bottom line: Facebook sees you as a lab rat.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Fake News
 
 ![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
@@ -63,8 +68,9 @@ Bottom line: Facebook sees you as a lab rat.
  If Facebook is your primary source of news, it's time to move on.[You should look elsewhere for trustworthy news delivery](https://www.makeuseof.com/tag/trust-news-sites/) .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Questionable Privacy Practices
 
  Facebook has obfuscated and complicated its privacy settings for as long as anyone can remember.
@@ -81,34 +87,20 @@ Bottom line: Facebook sees you as a lab rat.
 
 ![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  When Facebook first burst onto the scene, it was revolutionary. Sure, sites like MySpace had enjoyed some previous success, but Facebook was the first network that was truly fit for widespread use.
 
  And we loved it. Our newsfeeds were full of photos and updates from close friends.
 
  But as time has passed, the newsfeed became more and more diluted.[Excessively large friend networks](https://www.makeuseof.com/tag/5-reasons-start-deleting-facebook-friends/) and a deluge of posts from advertisers, pages you Liked years ago, and "news" organizations meant the network lost its original charm.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. What Even Is Facebook Anymore?
 
 ![people looking at laptop confused](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/people-looking-at-laptop-confused.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  It's almost a given that social media platforms nowadays copy each other's features, so it's pretty much expected to see some overlap. But each still managed to have one thing it's known for above all others. So, for Instagram, it's image uploads, Twitter is a status-sharing platform, TikTok is for video uploads, and so on. But what about Facebook?
 
  Compared to all the other social media spaces, Facebook seems like the biggest mess. It allows you to go live, share videos, pictures, and statuses—all things you can do on other platforms and, dare we say, better. So what's the point of Facebook?
@@ -118,22 +110,20 @@ Bottom line: Facebook sees you as a lab rat.
  It's also a place to overshare personal news. Sometimes they're nice ones like engagements and weddings, but other times they're related to drama that should have been handled face to face. So why spend time on a platform that's a ticking time bomb bound to result in a facepalm?
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## It's Time to Stop Using Facebook
 
  What Facebook once was is no more. It may have started as a social media platform pioneer, leading at the front, but it now seems to lag behind. Worse yet, the problem isn't only that it's become a less enjoyable version of itself for users.
 
  Facebook actively threatens your data. There have been so many data leaks and privacy breaches over the years—would you even find it surprising if another one follows? That shouldn't be the case. Spare yourself the headaches of holding onto Facebook, and move on.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,4 +132,23 @@ Bottom line: Facebook sees you as a lab rat.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-which-live-stream-software-wins-exploring-obs-vs-streamlabs/"><u>[New] In 2024, Which Live Stream Software Wins? Exploring OBS Vs. Streamlabs</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/bypassreset-galaxy-s21-fe-5g-2023-phone-screen-passcodepatternpin-by-drfone-android-unlock-android-unlock/"><u>Bypass/Reset Galaxy S21 FE 5G (2023) Phone Screen Passcode/Pattern/Pin</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/conversor-libre-en-linea-webm-a-wav-con-movavi-herramienta-sin-coste/"><u>Conversor Libre en Línea: WEBM a WAV Con Movavi - Herramienta Sin Coste</u></a></li>
+<li><a href="https://facebook.techidaily.com/evade-facebook-trackers-with-our-secrets/"><u>Evade Facebook Trackers with Our Secrets</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chats-vanish-mode-explained/"><u>Facebook Chat's Vanish Mode Explained</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-google-pixel-8-pro-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Google Pixel 8 Pro Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-properly-download-and-set-up-samsungs-960-evo-m2-ssd-drivers-in-windows/"><u>How to Properly Download and Set Up Samsung's 960 EVO M.2 SSD Drivers in Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-the-subtle-messages-carried-by-fbs-symbolic-imagery/"><u>Interpreting the Subtle Messages Carried by FB's Symbolic Imagery</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/lock-your-vivo-y78t-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Vivo Y78t Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/mending-bonds-after-a-social-media-blackout/"><u>Mending Bonds After a Social Media Blackout</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-disconnect-between-instagram-and-facebook/"><u>Navigating the Disconnect Between Instagram and Facebook</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-blur-faces-objects-or-text-in-videos-for-free-a-simple-guide-for-2024/"><u>New Blur Faces, Objects, or Text in Videos for Free A Simple Guide for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>Planning to Use a Pokemon Go Joystick on Apple iPhone 14 Plus? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharing-stories-that-resonate-with-crowds/"><u>Sharing Stories that Resonate with Crowds</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-itel-p55-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Itel P55</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-facebook-id-a-comprehensive-guide/"><u>Unlocking Your Facebook ID: A Comprehensive Guide</u></a></li>
+</ul></div>
 

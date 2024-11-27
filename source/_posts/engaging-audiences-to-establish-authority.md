@@ -1,7 +1,7 @@
 ---
 title: Engaging Audiences to Establish Authority
-date: 2024-09-01T03:41:41.406Z
-updated: 2024-09-02T03:41:41.406Z
+date: 2024-11-25T13:25:48.566Z
+updated: 2024-11-27T08:30:16.678Z
 tags:
   - facebook
 categories:
@@ -43,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/be81dbeaaee0382765b77cee6cb291299a5244c86
 
  Instead of trying to post content on every social media platform, choose one or two and build your following from there. It'll be easier to keep up with your audience when you only have to pay attention to one or two apps rather than four or five.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Quality Over Quantity, But Be Consistent
 
  There are thousands of influencers in every popular niche, each competing for users' attention span. Your content needs to be unique, thoughtfully constructed—and most of all, consistent.
@@ -58,13 +62,18 @@ thumbnail: https://thmb.techidaily.com/be81dbeaaee0382765b77cee6cb291299a5244c86
 ![large networking crowd of people](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/large-networking-crowd-of-people.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Being an influencer is a social game, and you absolutely cannot win it alone. Don't think of social media as only a place for you to talk about your niche to your followers. Think of it also as a place where you learn more about your own subject of interest from other influencers.
 
  Every savvy influencer understands the importance of networking, so don't hesitate to reach out to others. Comment on and like their posts, subscribe to their pages, and even share their work where possible.
 
  Showing support and interest in your fellow influencers adds a positive vibe to your channel and helps you make friends in the industry who can help your channel grow with future collaborations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Engage With Your Following
 
@@ -76,13 +85,18 @@ thumbnail: https://thmb.techidaily.com/be81dbeaaee0382765b77cee6cb291299a5244c86
 
  Treat your followers with respect, but be careful of crossing the threshold into developing[parasocial relationships](https://www.makeuseof.com/how-to-communicate-online-healthily/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Advertise Your Channel
 
 ![Woman recording herself on a mounted smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/woman-recording-herself-on-a-mounted-smartphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Even the best social media channels are in a constant battle to put their channel in front of prospective followers. Some of the simplest ways you can advertise your channel include:
 
 * Requesting a shout-out from other popular influencers in your niche.
@@ -90,9 +104,6 @@ thumbnail: https://thmb.techidaily.com/be81dbeaaee0382765b77cee6cb291299a5244c86
 * Posting snippets from your main channel on other platforms and social media sites.
 * Adding hashtags to all your content for easy searchability.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ## 7\. Keep the Momentum Going With Fresh Ideas
 
 ![Vintage camera and binoculars](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/vintage-camera-and-binoculars.jpg)
@@ -108,9 +119,6 @@ thumbnail: https://thmb.techidaily.com/be81dbeaaee0382765b77cee6cb291299a5244c86
 * Brainstorm ideas for new activities related to your niche that you can participate in and talk about on your channel. For instance, many popular YouTubers have started doing reaction videos, and rack up tens of thousands of views simply filming their reaction to other videos.
 * Ask your followers for ideas on new additions to your channel. Find out what parts of your channel appeal to them the most, and expand on those themes.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. Reach Out to Potential Sponsors
 
  When your profile is worth some serious ad revenue, it's time to talk to the sponsors who would actually want to use your account to promote their products. Don't wait around for the advertisers to come to you.
@@ -121,12 +129,13 @@ thumbnail: https://thmb.techidaily.com/be81dbeaaee0382765b77cee6cb291299a5244c86
 
  If you're able to carefully manage your relationship with your followers as well as the companies whose products you sponsor, you will be able to maintain a steady stream of income every month by selling ad space on your channel or by personally endorsing products. Remember, building up that kind of trust takes time.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 9\. Create Trackable Goals
 
 ![a person writing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/journalling.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  As with anything you want in life, creating goals is a fantastic way to help you reach them faster. If you simply start posting to Instagram or creating videos for YouTube without an end goal in mind, your account may not do too well.
 
@@ -134,23 +143,17 @@ thumbnail: https://thmb.techidaily.com/be81dbeaaee0382765b77cee6cb291299a5244c86
 
  Then consider how you'll go about reaching and tracking that goal. For example, to gain followers and views, I will brainstorm ideas at the beginning of each month and post something new on Mondays and Fridays every week. Record the number of followers and views you have every week to help you assess how close you are to reaching your goal.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ## Should You Become a Social Media Influencer?
 
  Becoming a social media influencer can often start off as a side gig and ultimately become a full-time job. If you're passionate about your niche, creating content should come easy to you. It's okay to want to share information about your niche and also make some money while doing it, but the latter shouldn't be your main goal.
 
  If you embark on the journey of becoming a social media influencer, it won't happen quickly. You'll need to commit yourself to your channel for the long haul and work at your account for months before seeing progress.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,4 +162,18 @@ thumbnail: https://thmb.techidaily.com/be81dbeaaee0382765b77cee6cb291299a5244c86
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/updated-best-gopro-editing-apps-for-iphone-and-android-phone/"><u>[Updated] Best GoPro Editing Apps for iPhone and Android Phone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-blueprint-to-perpetual-snapstreaks/"><u>[Updated] The Blueprint to Perpetual Snapstreaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-dialogue-implementing-facebook-stories-surveys/"><u>Fostering Dialogue: Implementing Facebook Stories Surveys</u></a></li>
+<li><a href="https://facebook.techidaily.com/highlighting-googles-influential-2022-news/"><u>Highlighting Google's Influential 2022 News</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-epson-driver-update-procedures-tips-and-tricks-for-windows-10-users/"><u>Latest Epson Driver Update Procedures: Tips & Tricks for Windows 10 Users</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/msi-unveils-high-performance-titan/"><u>MSI Unveils High-Performance Titan</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-giants-gridlock-lasting-six-hours/"><u>Online Giants' Gridlock Lasting Six Hours</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/scriptwriting-secrets-for-a-captivating-and-authentic-storyline/"><u>Scriptwriting Secrets for a Captivating and Authentic Storyline</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/secure-mental-consultations-chatgpt-wisdom/"><u>Secure Mental Consultations: ChatGPT Wisdom</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-solutions-to-privacy-concerns/"><u>Seeking Solutions to Privacy Concerns</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-daily-life-replay-facebook-guide/"><u>Unlocking Daily Life Replay: Facebook Guide</u></a></li>
+</ul></div>
 

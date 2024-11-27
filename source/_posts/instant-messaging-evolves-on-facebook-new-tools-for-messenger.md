@@ -1,7 +1,7 @@
 ---
 title: "Instant Messaging Evolves on Facebook: New Tools for Messenger"
-date: 2024-11-15T17:07:08.746Z
-updated: 2024-11-17T17:35:39.483Z
+date: 2024-11-26T02:10:23.509Z
+updated: 2024-11-27T03:46:05.538Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Two New Themes Added to Messenger and Instagram
 
  In a press release on the[Facebook Newsroom](https://about.fb.com/news/2021/05/better-ways-to-express-yourself-new-messenger-features/) , the company announced the release of two new chat themes. The new themes are based on Star Wars and Netflix's Selena: The Series.
@@ -33,10 +37,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -52,10 +53,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -85,19 +83,21 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-a-beginners-pathway-building-a-simple-youtube-signup/"><u>[New] A Beginner’s Pathway Building a Simple YouTube Signup</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-windows-studio-options-beyond-moviemaker-for-2024/"><u>[Updated] Windows Studio Options Beyond MovieMaker for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-generative-ai-become-a-powerful-new-player-in-the-realm-of-fake-news-and-deception/"><u>Can Generative AI Become a Powerful New Player in the Realm of Fake News and Deception?</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-empowers-content-creators-with-audio-tools/"><u>Facebook Empowers Content Creators with Audio Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/forging-friendships-after-being-unfriended/"><u>Forging Friendships After Being Unfriended</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/how-my-tesla-reacted-to-being-charged-using-the-anker-powerhouse-767-a-zdnet-report/"><u>How My Tesla Reacted to Being Charged Using the Anker PowerHouse 767 - A ZDNET Report</u></a></li>
-<li><a href="https://facebook.techidaily.com/image-rights-user-generated-imagery-claims/"><u>Image Rights: User-Generated Imagery Claims</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-comprehensive-overview-mastering-the-art-of-screen-capturing-with-aiseesoft/"><u>In 2024, Comprehensive Overview Mastering the Art of Screen Capturing with Aiseesoft</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-premium-gif-software-for-iphone-users/"><u>In 2024, Exploring Premium GIF Software for iPhone Users</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Motorola Moto G73 5G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Lava Blaze 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mirror-image-mystery-unveiling-impostors-online/"><u>Mirror Image Mystery: Unveiling Impostors Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-vagueness-in-digital-dialogues-and-expression/"><u>Unraveling Vagueness in Digital Dialogues & Expression</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-crop-like-a-pro-a-step-by-step-fcpx-guide/"><u>Updated 2024 Approved Crop Like a Pro A Step-by-Step FCPX Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-what-does-a-blue-icon-signify-on-fb-messenger/"><u>[New] What Does a Blue Icon Signify on FB Messenger?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-getting-started-guide-to-instagrams-live-feature-for-2024/"><u>[Updated] Getting Started Guide to Instagram's Live Feature for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-screen-recorder-pro-for-windows-11-for-2024/"><u>[Updated] Screen Recorder Pro for Windows 11 for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-ocam-screen-recorder-download/"><u>2024 Approved OCam Screen Recorder Download</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-lava-blaze-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-lava-blaze-pro-5g-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Lava Blaze Pro 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-post-to-multiple-facebook-groups/"><u>How to Post to Multiple Facebook Groups</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-f14-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy F14 5G to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-search-of-real-connections-heres-why-you-should-stop-using-facebook/"><u>In Search of Real Connections? Here's Why You Should Stop Using Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-look-at-amazons-legal-battles-with-facebook-groups-admins/"><u>In-Depth Look at Amazon’s Legal Battles With Facebook Groups Admins</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/recent-changes-in-googles-news-coverage-of-chatgpt-scandals-achieve-ultimate-mobile-connectivity-for-your-next-getaway/"><u>Recent Changes in Google's News Coverage of ChatGPT Scandals: Achieve Ultimate Mobile Connectivity for Your Next Getaway</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-vs-forum-the-rising-tide-of-engagement-platforms/"><u>Social vs Forum: The Rising Tide of Engagement Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/swipe-through-facebook-downtime-real-time-monitoring-tips/"><u>Swipe Through Facebook Downtime: Real-Time Monitoring Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-digital-renaissance-embracing-the-metamate-spirit-at-facebook/"><u>The Digital Renaissance: Embracing the Metamate Spirit at Facebook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/visualizing-conversations-facebook-avatars-in-whatsapp-use-ceiling-150-characters/"><u>Visualizing Conversations: Facebook Avatars in WhatsApp Use Ceiling: 150 Characters</u></a></li>
 </ul></div>
 

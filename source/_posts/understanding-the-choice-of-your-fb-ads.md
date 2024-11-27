@@ -1,7 +1,7 @@
 ---
 title: Understanding the Choice of Your FB Ads
-date: 2024-09-01T03:45:33.662Z
-updated: 2024-09-02T03:45:33.662Z
+date: 2024-11-23T05:03:24.339Z
+updated: 2024-11-27T12:49:55.888Z
 tags:
   - facebook
 categories:
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/f386bcd1cdef2e7eae82e10cf44eeb6665615e5a1
  It can be rather eerie seeing an ad that is oddly specific to you, or what you have been searching for. Thus, many users wonder why they are seeing certain ads.
 
  Facebook’s**Why am I seeing this ad** option can be useful, but if you really want to learn more about ads on Facebook and how to adjust them to your interests, continue reading.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Does Facebook Know What Ads to Show You?
 
@@ -41,16 +45,14 @@ thumbnail: https://thmb.techidaily.com/f386bcd1cdef2e7eae82e10cf44eeb6665615e5a1
 
  This subcategory will reach people based on their purchase intents or behaviors, device usage, and so on. Facebook usually acquires this data from third-party data collection companies.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Demographics
 
  This subcategory will reach people by carefully considering certain details, such as their employment, finance, income, household, education, language, and lifestyle.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Learn More About the Ads You See
 
  The easiest way to learn why you are seeing a certain post or ad on Facebook is to use its feature “Why am I seeing this ad?”. This will provide you with specific insight as to why that certain ad or post appeared on your feed.
@@ -58,8 +60,9 @@ thumbnail: https://thmb.techidaily.com/f386bcd1cdef2e7eae82e10cf44eeb6665615e5a1
 ![Facebook why am I seeing this ad](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Why-Am-I-Seeing-This-Ad-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  If you are seeing something that you are not interested in, you are able to block those types of ads, as well as report any data misuse.
 
  In order to reach out to you through advertisements, advertisers need to clarify that they have obtained your information legally. In addition, other than learning the reason why you are seeing something on your Facebook page, this tool will also give you a couple of options that will help you have better control of your News Feed inputs.
@@ -78,13 +81,18 @@ thumbnail: https://thmb.techidaily.com/f386bcd1cdef2e7eae82e10cf44eeb6665615e5a1
 
 ![Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You will then have the**Ads** button on the left side of the screen. This allows you to see the advertisers that you have been getting ads from and you can choose to see fewer ads about some topics.
 
 ![Facebook Ad Options In Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Click-On-Ads.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  The**Advertisers** section shows you the advertisers you’ve recently been getting ads from.
 
  The**Ad Topics** section will give you a list of topics you can choose to see less of, such as parenting, pets, social issues, elections, alcohol, etc.
@@ -93,28 +101,19 @@ thumbnail: https://thmb.techidaily.com/f386bcd1cdef2e7eae82e10cf44eeb6665615e5a1
 
 ![Facebook Ad Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Ad-Settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
  Do keep in mind that while these options will influence your ad preferences, it will not affect the total number of ads you see.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Let Facebook Know Your Ad Preferences
 
  In order to specifically target users, Facebook uses a lot of complex math and algorithms. It all boils down to the information that you decided to make public. To make your Facebook experience more pleasant, Facebook has provided its users with ways to adjust their ad preferences.
 
  That way, you improve your Facebook experience by seeing fewer ads that you're not interested in.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,4 +122,22 @@ thumbnail: https://thmb.techidaily.com/f386bcd1cdef2e7eae82e10cf44eeb6665615e5a1
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-investigating-new-horizons-past-manycams-realm/"><u>[New] 2024 Approved Investigating New Horizons Past ManyCam's Realm</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-effortless-engagement-how-to-craft-a-direct-subscribe-link/"><u>[Updated] In 2024, Effortless Engagement How to Craft a Direct Subscribe Link</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-inverse-viewing-in-youtube-original-ideas-for-rewinders/"><u>[Updated] Inverse Viewing in YouTube Original Ideas for Rewinders</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-the-art-of-shorts-imagery-quick-smart-updates/"><u>2024 Approved Mastering the Art of Shorts Imagery Quick, Smart Updates</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cost-analysis-and-performance-review-nikon-sb-700/"><u>Cost Analysis and Performance Review: Nikon SB-700</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-motorola-moto-g34-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-2022s-top-technology-gaffes/"><u>Identifying 2022'S Top Technology Gaffes</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-self-safety-measures-on-facebook-platform/"><u>Implementing Self-Safety Measures on Facebook Platform</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-free-dailymotion-converter-download-and-convert-videos-in-seconds/"><u>In 2024, Free Dailymotion Converter Download and Convert Videos in Seconds</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-online-population-puzzles-facebook-edition/"><u>Rethinking Online Population Puzzles - Facebook Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-social-feeds-facebooks-push-for-b2c-business-insights/"><u>Revolutionizing Social Feeds: Facebook's Push for B2C Business Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-social-presence-silent-likes-on-networks/"><u>Secure Your Social Presence: Silent Likes on Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/simple-pathway-to-activate-facebooks-dark-view/"><u>Simple Pathway to Activate Facebook's Dark View</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-stuck-facebook-video-top-10-solutions/"><u>Troubleshooting: Stuck Facebook Video – Top 10 Solutions</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-best-features-of-the-samsung-galaxy-tab-s7-a-detailed-perspective-for-android-lovers/"><u>Unveiling the Best Features of the Samsung Galaxy Tab S7 – A Detailed Perspective for Android Lovers</u></a></li>
+</ul></div>
 

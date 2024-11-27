@@ -1,7 +1,7 @@
 ---
 title: "From Chat Rooms to TikToks: The Evolutionary Journey"
-date: 2024-11-10T16:06:05.013Z
-updated: 2024-11-17T16:20:34.815Z
+date: 2024-11-24T14:26:30.997Z
+updated: 2024-11-27T08:47:07.327Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,7 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
  While you may be happy with the familiarity that comes from forums, a lot of people expect much more innovation than these platforms typically get. Even if social media platforms are sometimes slow to implement changes that their user base wants, you're probably less likely to stick around for changes to happen on a forum that already falls short of many features that social media offers.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Social Media Is Designed to be Attention-Grabbing
@@ -44,13 +41,6 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
  Social media, by design, knows how to grab your attention and then hold it. You likely find yourself scrolling for a while on Twitter, Facebook, or some other social media before realizing you've lost track of time. While you could have the same experience on a forum, social media platforms are more adept at maintaining users' attention. This is because they run on an[attention economy model](https://www.makeuseof.com/tag/what-is-attention-economy/) , as your sustained usage makes these platforms money.
 
  The fast-moving nature, mixed media types (text, image, and video), and design principle of scrolling through a "timeline" encourage you to "catch up" are all examples of social media trying to keep you on the platform for longer. On a forum, you have many subsections—each with their own threads. They tend to be a bit more narrow in focus and long-form and predominately text-based, which is easier to pull yourself out of because it takes more sustained focus to navigate.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Forums Seem Outdated
 
@@ -65,19 +55,24 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
  Forums commonly have a subsection where you can talk about everyday life stuff, films, TV shows, games, anything that isn't related to the primary subject it was created for. However, because of this dedication to a single subject, it can lead to you thinking that they're very niche. This may not be favorable compared to Twitter, Facebook, or Instagram, all of which cover pretty much anything—and connect you to people based on a comprehensive algorithm or your manual searches.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Apps Are More User-Friendly
 
 ![Cluster of icons for popular social media apps.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/social-apps-icons.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You likely have dozens of apps on your phone. It's possible you even regularly use most of them, even if it's pretty common for most apps on a users' phone to go ignored for months at a time. In any case, you probably agree that apps are more user-friendly than simply using a browser. Even though[social media can negatively affect you](https://www.makeuseof.com/tag/negative-effects-social-media/) , you're more likely to prioritize the convenience that apps and social media provide rather than the negative impacts that usage can cause.
 
  This is a big reason social media killed online forums because they typically can be used on a mobile app as well as a browser, whereas forums can only be used on browsers. While you can access most forums via your mobile browser, it'll be clunky and less responsive than an app—and almost definitely less friendly to navigate. The accessibility that apps provide makes people more likely to stick to them rather than go out of their way to use a forum on a browser to connect with people.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. The Rise of Facebook Groups
 
@@ -86,10 +81,7 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
  While you may find that it's still harder to find older conversations on Facebook Groups than on a forum, the accessibility that they offer is undeniable. No other social media really has a competing feature, with LinkedIn Groups often littered with self-promotion, non-moderated conversations, and a lack of presence compared to Facebook Groups. This, combined with the popularity of Facebook's platform on the whole, means that their Groups feature is extremely popular—and these were also big reasons that online forums fell by the wayside over the past decade.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Social Media Is the Current-Day Online Forum
@@ -113,18 +105,18 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-precision-playbacks-mastering-4-methods-of-recording-on-xbox/"><u>[New] Precision Playbacks Mastering 4 Methods of Recording on Xbox</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-expert-advice-fixing-iphone-lens-blur-effectively/"><u>2024 Approved Expert Advice Fixing iPhone Lens Blur Effectively</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-from-snapshots-to-cinematic-masterpiece-a-video-creation-guide/"><u>2024 Approved From Snapshots to Cinematic Masterpiece A Video Creation Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-walls-of-time-for-nba-watchers/"><u>Breaking Down Walls of Time for NBA Watchers</u></a></li>
-<li><a href="https://facebook.techidaily.com/bypass-lost-phones-security-fastest-way-to-fb-without-phone/"><u>Bypass Lost Phones' Security: Fastest Way to FB without Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/comparative-study-oculus-account-security-features/"><u>Comparative Study: Oculus Account Security Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/could-fun-on-fb-be-covering-up-hidden-dangers/"><u>Could Fun on FB Be Covering Up Hidden Dangers?</u></a></li>
-<li><a href="https://facebook.techidaily.com/crossing-paths-increased-bond-between-facebook-and-instagram/"><u>Crossing Paths: Increased Bond Between Facebook & Instagram</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-xiaomi-13t-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Xiaomi 13T to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/registrazione-gratuitamente-trasforma-i-tuoi-file-mp3-in-audiolibri-m4b-con-movavi/"><u>Registrazione Gratuitamente: Trasforma I Tuoi File MP3 in Audiolibri M4B Con Movavi</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/tips-for-adding-music-to-photo-online-for-2024/"><u>Tips for Adding Music to Photo Online for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/unraveling-connectivity-issues-with-spotify-and-windows-11/"><u>Unraveling Connectivity Issues with Spotify & Windows 11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-advanced-techniques-for-title-artistry-in-adobe-ae-for-2024/"><u>[Updated] Advanced Techniques for Title Artistry in Adobe AE for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-eluding-youtube-ban-protective-measures-for-2024/"><u>[Updated] Eluding YouTube Ban Protective Measures for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-nighttime-iphone-photography-secrets-revealed-for-2024/"><u>[Updated] Nighttime iPhone Photography Secrets Revealed for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-reviewing-magix-music-production-for-budding-musicians-for-2024/"><u>[Updated] Reviewing Magix Music Production for Budding Musicians for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/complete-review-of-razer-video-streaming-device/"><u>Complete Review of Razer Video Streaming Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-interoperability-integrating-fb-content-to-leading-apps/"><u>Enhanced Interoperability: Integrating Fb Content to Leading Apps!</u></a></li>
+<li><a href="https://facebook.techidaily.com/fake-profile-alert-could-it-be-a-duplicate-identity/"><u>Fake Profile Alert: Could It Be a Duplicate Identity?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reset-and-rejoin-your-facebook-after-code-loss/"><u>How To Reset & Rejoin Your Facebook After Code Loss</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-oppo-reno-10-5g-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Oppo Reno 10 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-step-by-step-guide-to-360-videos-with-ios/"><u>In 2024, Step-by-Step Guide to 360 Videos with iOS</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/navigating-language-varieties-with-ease-via-chatgpt/"><u>Navigating Language Varieties with Ease via ChatGPT</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-a-curated-selection-of-premium-websites-offering-bgm-compilation/"><u>New In 2024, A Curated Selection of Premium Websites Offering BGM Compilation</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-political-patchwork/"><u>Unraveling The Political Patchwork</u></a></li>
 </ul></div>
 

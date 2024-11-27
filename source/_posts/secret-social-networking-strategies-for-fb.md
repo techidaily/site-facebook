@@ -1,7 +1,7 @@
 ---
 title: Secret Social Networking Strategies for Fb
-date: 2024-11-13T16:05:10.300Z
-updated: 2024-11-17T16:51:07.697Z
+date: 2024-11-23T00:29:53.690Z
+updated: 2024-11-27T15:15:32.020Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/39b1aa90cbe15af25eeef086af2b40b5abbe4ea0e
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is a Private Facebook Profile?
 
 ![facebook-stories-captioning-featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-stories-captioning-featured.jpg)
@@ -42,29 +46,19 @@ thumbnail: https://thmb.techidaily.com/39b1aa90cbe15af25eeef086af2b40b5abbe4ea0e
 
  In that, the largest vulnerability to Facebook privacy is the human connection: social engineering, weak passwords, and poor personal security.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Users See Someone's Locked Profile on Facebook
 
  Even if you set your Facebook profile to private, it doesn't stop people from attempting to view it. Worse, setting your Facebook profile to private doesn't close the loopholes people can use to skirt the privacy settings. They are, after all, loopholes. The clue is in the name.
 
  There are a few methods people will use to get into a locked Facebook profile. Here's what you need to watch out for because even if you know the techniques below, someone else may try to use them against you.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Fake Facebook Friends
 
 ![facebook logo with dislike thumbs surrounding](https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d6070583d2a1a451841876e1401.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: TY Lim/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-10-2018-facebook-1065601421)
 
@@ -93,15 +87,16 @@ thumbnail: https://thmb.techidaily.com/39b1aa90cbe15af25eeef086af2b40b5abbe4ea0e
  Check out our[complete malware removal guide](https://www.makeuseof.com/tag/download-operation-cleanup-complete-malware-removal-guide/) or the[steps you should take when you discover malware](https://www.makeuseof.com/tag/10-steps-to-take-when-you-discover-malware-on-your-computer/) . They will help you discover if your device is hiding any spyware or malware and explain how to remove it.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Password Theft
 
 ![password entry image with padlock facebook color background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/password-entry-image-with-padlock-facebook-color-background.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The third method for accessing a private Facebook profile is straight-up password theft. Facebook password creation rules are decent enough. You need a minimum of eight characters, including upper and lowercase letters, numbers, and symbols.
 
@@ -113,18 +108,15 @@ thumbnail: https://thmb.techidaily.com/39b1aa90cbe15af25eeef086af2b40b5abbe4ea0e
 
  Otherwise, start using stronger passwords, possibly using one of these[online password generators](https://www.makeuseof.com/tag/5-websites-to-generate-a-safe-and-strong-password/) to get you started. Another thing you can do is take proactive steps before a breach happens. There are several ways you can[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , making it easier to get it back if it's breached.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Phishing and Social Engineering
 
  Another last resort someone might use to access your private Facebook account is to socially engineer one of your friends into giving up their account. Sure, it sounds far-fetched, and like it would be a tremendous amount of effort just to view a private Facebook account. But if you're a high-worth individual or someone really wants to see what your cat looks like, they might go all the way and attempt to scam one of your friends to see your locked account.
 
  If you have friends that constantly seem to have their Facebook accounts breached, you might consider[adding them to a Facebook restriction list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) or[even blocking them entirely](https://www.makeuseof.com/how-to-block-facebook/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Is a Facebook Locked Profile Viewer?
 
@@ -155,20 +147,15 @@ thumbnail: https://thmb.techidaily.com/39b1aa90cbe15af25eeef086af2b40b5abbe4ea0e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-exclusive-access-sharing-restricted-youtube-content-with-emailid/"><u>[New] In 2024, Exclusive Access Sharing Restricted YouTube Content with EmailID</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-professional-techniques-to-streamline-video-capture-on-computers-and-phones/"><u>[New] In 2024, Professional Techniques to Streamline Video Capture on Computers & Phones</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-bloodthirsty-horror-your-ultimate-8-zombie-game-compilation/"><u>[Updated] In 2024, Bloodthirsty Horror Your Ultimate 8 Zombie Game Compilation</u></a></li>
-<li><a href="https://facebook.techidaily.com/deactivating-in-app-web-engagement-on-fb/"><u>Deactivating In-App Web Engagement on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-data-downloading-all-of-your-facebook-activity/"><u>Deciphering Data: Downloading All of Your Facebook Activity</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-change-from-a-narrative-perspective/"><u>Decoding Facebook's Change From a Narrative Perspective</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-disappointments-examining-site-shutdowns/"><u>Digital Disappointments: Examining Site Shutdowns</u></a></li>
-<li><a href="https://facebook.techidaily.com/disabling-global-mention-feature-in-fb/"><u>Disabling Global Mention Feature in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/discreet-digital-denizens-on-fb/"><u>Discreet Digital Denizens on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-engagement-upgrade-your-earnings-with-these-strategies/"><u>Elevate Your Engagement, Upgrade Your Earnings with These Strategies</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-dominate-any-space-the-ultimate-metaverse-device-guide/"><u>In 2024, Dominate Any Space The Ultimate Metaverse Device Guide</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Realme C67 4G? | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/new-drivers-u-are-u-fingerprint-scanner-v450x/"><u>New Drivers - U-Are-U Fingerprint Scanner V4.50x</u></a></li>
-<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-honor-magic-vs-2-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Honor Magic Vs 2 | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/wmaaac/"><u>WMAからAACへのフリーオンラインコンバーター - ムヴァヴィ</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/adopting-hdri-for-superior-visual-storytelling-in-video-arts-for-2024/"><u>Adopting HDRI for Superior Visual Storytelling in Video Arts for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-toms-tech-comprehensive-insights-on-latest-computer-hardware/"><u>Exploring Tom's Tech: Comprehensive Insights on Latest Computer Hardware</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reset-your-social-media-browsing-history/"><u>How to Reset Your Social Media Browsing History</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-vivo-y100a-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Vivo Y100A without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-honor-90-pro-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Honor 90 Pro Fingerprint Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintain-anonymity-no-more-public-likes-on-social-sites/"><u>Maintain Anonymity: No More Public Likes on Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-up-portals-for-seamless-video-chats/"><u>Setting Up Portals for Seamless Video Chats</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/the-comprehensive-guide-installing-new-drivers-on-your-logitech-m310-mouse/"><u>The Comprehensive Guide: Installing New Drivers on Your Logitech M310 Mouse</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-effects-of-filtering-on-consumers/"><u>Unveiling the Effects of Filtering on Consumers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-motorola-moto-g14-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Motorola Moto G14 Phones</u></a></li>
 </ul></div>
 

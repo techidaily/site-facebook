@@ -1,7 +1,7 @@
 ---
 title: "The Unplugged Triumvirate: FB, WhatsApp, Insta Down"
-date: 2024-09-01T03:45:31.179Z
-updated: 2024-09-02T03:45:31.179Z
+date: 2024-11-21T02:23:23.531Z
+updated: 2024-11-26T16:22:13.143Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/6b564cfcc68d7fa9fa2ebcc8ac34b00c6e2d610d2
 
  Facebook has since provided an explanation and apology for this outage. Keep reading to find out why you couldn't use any of Facebook's apps for so long.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Facebook Went Offline for Six Hours
 
  On October 4, 2021, users around the world noticed they were[having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
@@ -32,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/6b564cfcc68d7fa9fa2ebcc8ac34b00c6e2d610d2
  Read more:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
  So, why were Facebook's apps down? And what caused this epic outage?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
 
@@ -50,22 +58,20 @@ thumbnail: https://thmb.techidaily.com/6b564cfcc68d7fa9fa2ebcc8ac34b00c6e2d610d2
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Your Facebook Data Safe After the Outage?
 
  The first concern for many users is whether their data is still safe, considering how large of a corporation Facebook is. However, the company has sought to assure all users that they have no reason to be concerned, stating that there is "no evidence that user data was compromised as a result of this downtime."
 
  We have no other option than to trust Facebook on this, but given the company's history and reputation, that's a big ask.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -74,4 +80,18 @@ thumbnail: https://thmb.techidaily.com/6b564cfcc68d7fa9fa2ebcc8ac34b00c6e2d610d2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-navigating-social-traction-afb-insiders-guide/"><u>[New] In 2024, Navigating Social Traction AFB Insider's Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-top-10-no-cost-image-servers-always-preserve-your-pics-for-2024/"><u>[New] Top 10 No-Cost Image Servers, Always Preserve Your Pics for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-audiorecorder-examination/"><u>[Updated] Audiorecorder Examination</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-google-pixel-8-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Google Pixel 8 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/backtrack-with-your-iphone-films/"><u>Backtrack with Your iPhone Films</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-flagging-minors-facebook-page/"><u>Guidelines for Flagging Minor's Facebook Page</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-ipiccy-photo-editor-features-tutorial-and-review/"><u>In 2024, IPiccy Photo Editor Features, Tutorial and Review</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-photo-perfection-how-to-automatically-save-snaps-from-snapchat/"><u>In 2024, Photo Perfection How to Automatically Save Snaps From Snapchat</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-threat-to-facebooks-data-gathering/"><u>IOS 14.5: Threat to Facebook's Data Gathering?</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-login-a-users-guide-for-password-recovery/"><u>Regaining Login: A User's Guide for Password Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-in-the-facebook-files-that-shocks-us/"><u>What’s in the Facebook Files That Shocks Us?</u></a></li>
+</ul></div>
 

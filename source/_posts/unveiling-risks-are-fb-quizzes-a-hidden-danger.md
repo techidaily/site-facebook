@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Risks: Are FB Quizzes a Hidden Danger?"
-date: 2024-11-10T16:06:26.747Z
-updated: 2024-11-17T16:20:56.540Z
+date: 2024-11-20T06:58:12.461Z
+updated: 2024-11-26T22:36:38.099Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are Facebook Quizzes?
 
  We’ve all been there: you’re scrolling through Facebook and run into a quiz promising to match you with a fictional character. It might ask you to fill out a long list of favorites to share with friends or advertise “accurate results” for your Hogwarts house, for instance.
@@ -31,15 +35,16 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 [The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Cybersecurity Risks of Facebook Quizzes
 
 ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
 
@@ -53,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
  It’s natural to be concerned if you realize you may have taken a malicious Facebook quiz. If this happens, don’t panic. You can take action to protect yourself and make sure others don’t fall for the same trap.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Analyze the Quiz
 
  First, find the quiz or challenge you responded to. What format was the quiz in—a link or a post? Did you fill out multiple choice questions on another website or type in custom answers on a post?
@@ -61,23 +70,9 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Take Screenshots and Notes
 
 ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 
@@ -94,10 +89,7 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
  Finally,[submit a report](https://www.identitytheft.gov/#/) to the Federal Trade Commission to alert them to a potential identity theft risk. This will help protect you and others from identity theft if the quiz gave away sensitive information to a fraudster or scammer. If you have an identity protection service or insurance plan, contact those representatives, as well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Change Your Security Question Answers
@@ -127,22 +119,24 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-unlock-image-potential-with-editors-essentials/"><u>[New] 2024 Approved Unlock Image Potential with Editor's Essentials</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-your-guide-to-cost-free-android-screenshots/"><u>[New] 2024 Approved Your Guide to Cost-Free Android Screenshots</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-convert-facebook-posts-to-mp3-files-for-2024/"><u>[Updated] Convert Facebook Posts to MP3 Files for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/essentials-of-facebook-job-advertising-guide/"><u>Essentials of Facebook Job Advertising Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/fixing-your-frozen-facebook-page/"><u>Fixing Your Frozen Facebook Page</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-avoid-pitfalls-in-facebooks-marketplace-space/"><u>How to Avoid Pitfalls in Facebook's Marketplace Space</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-streamsurf-skimming-above-dacast/"><u>In 2024, StreamSurf Skimming Above DaCast</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-s-best-time-lapse-video-editing-tools-a-comprehensive-review/"><u>New In 2024, S Best Time-Lapse Video Editing Tools A Comprehensive Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimal-online-venues-for-elders-connections/"><u>Optimal Online Venues for Elders Connections</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/professional-posting-hacks-for-instagram-tv-for-2024/"><u>Professional Posting Hacks for Instagram TV for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/shifting-social-landscape-four-reasons-users-leave-fb/"><u>Shifting Social Landscape: Four Reasons Users Leave FB</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/swift-solutions-to-resolve-6-typical-chatgpt-errors/"><u>Swift Solutions to Resolve 6 Typical ChatGPT Errors</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-moral-dilemrances-of-disapproving-platforms/"><u>The Moral Dilemrances of Disapproving Platforms</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-perfect-way-to-watch-all-conjuring-movies-in-their-correct-order/"><u>The Perfect Way to Watch All 'Conjuring' Movies in Their Correct Order</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/tiny-tycoons-car-contests/"><u>Tiny Tycoons' Car Contests</u></a></li>
-<li><a href="https://facebook.techidaily.com/trust-in-facebooks-secret-talks/"><u>Trust in Facebooks Secret Talks</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-meta-scares-us-threefold-in-society/"><u>Why Meta Scares Us Threefold in Society</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-mastering-youtube-video-edits-with-finalcut-pro/"><u>[New] Mastering YouTube Video Edits with FinalCut Pro</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-secure-and-simple-photovideo-sharing-with-ios/"><u>[New] Secure and Simple Photo/Video Sharing with IOS</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-shutterbug-simplified-iphone-tools-for-effective-cropping/"><u>[Updated] Shutterbug Simplified IPhone Tools for Effective Cropping</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-unveiling-the-secrets-of-simultaneous-iphone-shots-and-videos/"><u>[Updated] Unveiling the Secrets of Simultaneous iPhone Shots & Videos</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/350314-9781846427671-ageing-disability-and-spirituality/"><u>Ageing, Disability and Spirituality | Free Book</u></a></li>
+<li><a href="https://program-issues.techidaily.com/best-fixes-for-persistent-f1-2020-stability-issues-on-windows-and-macos/"><u>Best Fixes for Persistent F1 2020 Stability Issues on Windows and MacOS</u></a></li>
+<li><a href="https://driver-install.techidaily.com/effortless-conversion-usb-ethernet-pairing-steps/"><u>Effortless Conversion: USB-Ethernet Pairing Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-spots-off-limits-no-facebook-access-here/"><u>Global Spots Off-Limits: No Facebook Access Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-broadcast-your-location-in-a-chat-room/"><u>How to Broadcast Your Location in a Chat Room</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-clients-on-facebook-for-work/"><u>How to Get Clients on Facebook for Work</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-vivo-y17s-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Vivo Y17s Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-shifts-in-meaning-for-facebook-page-names/"><u>Interpreting Shifts in Meaning for Facebook Page Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-content-timing-on-the-web/"><u>Mastering Content Timing on the Web</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-departure-4-compelling-reasons-for-less-visitors-on-fb/"><u>The Silent Departure: 4 Compelling Reasons for Less Visitors on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-whistleblower-shining-a-light-on-fb-privacy/"><u>The Whistleblower Shining a Light on FB Privacy</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-guide-top-pick-screen-capture-software-for-windows-users-pc-laptop-and-more/"><u>Ultimate Guide: Top Pick Screen Capture Software for Windows Users (PC, Laptop & More)</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-the-new-us-antitrust-laws-and-how-will-they-takedown-big-tech/"><u>What Are the New US Antitrust Laws and How Will They Takedown Big Tech?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-the-filter-bubble-transparency-act-and-how-will-it-affect-you/"><u>What Is the Filter Bubble Transparency Act and How Will It Affect You?</u></a></li>
+<li><a href="https://network-issues.techidaily.com/windows-11-display-dimensions-adjustment/"><u>Window's 11 Display Dimensions Adjustment</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Elevating Community Governance: Facebook Unveils New Admin Features"
-date: 2024-11-10T16:43:23.406Z
-updated: 2024-11-17T16:36:56.494Z
+date: 2024-11-22T00:12:02.836Z
+updated: 2024-11-27T05:58:16.665Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Launches New Admin Tools to Moderate Groups
 
  In a[blog post](https://www.facebook.com/community/whats-new/new-tools-features-nurture-community/) , Facebook announced that it's launching some new admin tools to make group moderation easier for admins. These new tools include a new home for admin tools and settings, an AI-powered comment moderator, and more.
@@ -33,10 +37,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -48,10 +49,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -61,10 +59,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -88,24 +83,20 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-puns-and-plots-developing-7-funny-video-storylines/"><u>[New] In 2024, Puns & Plots Developing 7 Funny Video Storylines</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-discover-the-best-no-cost-iphone-selfie-applications/"><u>[Updated] Discover the Best No-Cost iPhone Selfie Applications</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-to-untag-yourself-on-facebook/"><u>A Step-by-Step Approach to Untag Yourself on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/an-overview-of-resources-offered-by-fb-help-center/"><u>An Overview of Resources Offered by FB Help Center</u></a></li>
-<li><a href="https://facebook.techidaily.com/beginners-blueprint-for-mastering-message-hubs/"><u>Beginner's Blueprint for Mastering Message Hubs</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-practices-for-bilingualmultilingual-content-on-fb/"><u>Best Practices for Bilingual/Multilingual Content on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/boost-your-brands-presence-8-superior-reasons-to-opt-for-a-business-page/"><u>Boost Your Brand's Presence: 8 Superior Reasons to Opt for a Business Page</u></a></li>
-<li><a href="https://facebook.techidaily.com/clubhouse-facebook-showdown-new-sound-platforms-unveiled/"><u>Clubhouse-Facebook Showdown: New Sound Platforms Unveiled</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-tecno-spark-20-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Tecno Spark 20 Pro Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-the-ties-sever-your-social-media-snooping-record/"><u>Cut the Ties: Sever Your Social Media Snooping Record</u></a></li>
-<li><a href="https://facebook.techidaily.com/dark-clouds-loom-over-facebook-headlines/"><u>Dark Clouds Loom Over Facebook Headlines</u></a></li>
-<li><a href="https://win-able.techidaily.com/expert-fixes-for-stuttering-and-crashing-in-rockstar-games-latest-hit/"><u>Expert Fixes for Stuttering and Crashing in Rockstar Games' Latest Hit</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-itel-a70-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Itel A70 Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-xiaomi-redmi-k70-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Xiaomi Redmi K70 to iPhone | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Realme Narzo 60 5G? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Motorola Moto G24 | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/revive-missing-iphone-apps-easy-to-follow-tips-for-finding-and-restoring-deleted-programs/"><u>Revive Missing iPhone Apps: Easy-to-Follow Tips for Finding and Restoring Deleted Programs</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-high-msmpengexe-cpu-usage-on-windows-10/"><u>Solving High MsMpEng.exe CPU Usage on Windows 10</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719145303400-stream-spotify-via-miniplayer-within-facebook/"><u>Stream Spotify via Miniplayer Within Facebook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/mplify-your-videos-impact-increasing-view-count-on-youtube-shorts/"><u>[New] Amplify Your Video's Impact Increasing View Count on YouTube Shorts</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-exclusive-list-of-premium-sound-recording-mics/"><u>[Updated] 2024 Approved Exclusive List of Premium Sound Recording Mics</u></a></li>
+<li><a href="https://blog-min.techidaily.com/video-downloadhelper/"><u>制限なしロゴ無し:Video Downloadhelperライセンスを完全に活用する手順</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-greatest-chef-programs-on-netflix-our-top-picks/"><u>Discover the Greatest Chef Programs on Netflix: Our Top Picks!</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-fb-tracking-with-off-facebook-activity-controls/"><u>Eliminate FB Tracking with Off-Facebook Activity Controls</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/ensuring-precision-the-art-of-skype-call-documentation-for-2024/"><u>Ensuring Precision The Art of Skype Call Documentation for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-secure-and-intuitive-arlo-smart-home-surveillance/"><u>Experience the Secure and Intuitive Arlo Smart Home Surveillance</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-password-cracking-tools-for-meizu-21-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Meizu 21</u></a></li>
+<li><a href="https://facebook.techidaily.com/large-digital-entities-face-distrust-but-facebook-leads/"><u>Large Digital Entities Face Distrust, But Facebook Leads</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-2023-release-news-for-upcoming-oculus-quest-model/"><u>No 2023 Release News for Upcoming Oculus Quest Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/regulating-visibility-of-facebook-interactions/"><u>Regulating Visibility of Facebook Interactions</u></a></li>
+<li><a href="https://driver-download.techidaily.com/resolving-bluetray-errors-in-windows-10-a-comprehensive-guide/"><u>Resolving BlueTray Errors in Windows 10: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-tech-rise-probing-facebooks-clandestine-wrist-device/"><u>Silent Tech Rise: Probing Facebook's Clandestine Wrist Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-scope-expansion-locating-page-and-profile-links-on-fb/"><u>Social Scope Expansion: Locating Page and Profile Links on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-reaccess-facebook-without-original-codes/"><u>Strategies to Reaccess Facebook Without Original Codes</u></a></li>
 </ul></div>
 

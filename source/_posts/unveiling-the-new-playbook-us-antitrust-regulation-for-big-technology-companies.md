@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the New Playbook: U.S. Antitrust Regulation for Big Technology Companies"
-date: 2024-11-13T17:23:17.893Z
-updated: 2024-11-17T16:36:09.770Z
+date: 2024-11-22T04:40:31.081Z
+updated: 2024-11-27T09:29:44.152Z
 tags:
   - facebook
 categories:
@@ -26,19 +26,24 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Five Antitrust Bills?
@@ -46,15 +51,16 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -67,13 +73,6 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
  In short, this antitrust bill will ban companies from preferring their own products or services unfairly on their marketplace platforms. "Choosing" winners or losers will become a thing of the past.
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
@@ -111,13 +110,6 @@ In essence: leave the selling to the sellers.
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Finally, we come to the economic backing to make it all happen.
 
  Comically prefaced with twenty-five lines of numerical amendment, this last bill explains how the government intends to finance this initiative without relying on taxpayers. It also specifies that the filing fees for larger transactions conducted under these laws will be higher than those imposed on smaller transactions.
@@ -151,22 +143,19 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-ideal-methods-for-streaming-and-archiving-sports-events/"><u>[New] 2024 Approved Ideal Methods for Streaming and Archiving Sports Events</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-effortless-installation-apple-podcasts-made-simple-for-2024/"><u>[New] Effortless Installation Apple Podcasts Made Simple for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-snapstream-app-rating-analysis/"><u>[Updated] SnapStream App Rating Analysis</u></a></li>
-<li><a href="https://fox-links.techidaily.com/charismatic-captions-instagrams-animated-text-guide-for-2024/"><u>Charismatic Captions Instagram's Animated Text Guide for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/easy-instructions-accessing-live-fm-broadcasts-from-your-iphone-or-android/"><u>Easy Instructions: Accessing Live FM Broadcasts From Your iPhone or Android</u></a></li>
-<li><a href="https://facebook.techidaily.com/englands-premier-footballers-pledge-no-more-online-presence-for-safety/"><u>England's Premier Footballers Pledge No More Online Presence for Safety</u></a></li>
-<li><a href="https://facebook.techidaily.com/face-off-re-securing-your-account-post-hack/"><u>Face Off: Re-Securing Your Account Post-Hack</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-farewell-deleting-your-fb-company-page/"><u>Guide to Farewell: Deleting Your FB Company Page</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-vivo-v27-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Vivo V27 to iPhone | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-flip-how-to-optimize-your-social-media-friendships/"><u>Mastering the Flip: How to Optimize Your Social Media Friendships</u></a></li>
-<li><a href="https://techtrends.techidaily.com/optimizing-your-instagram-outreach-through-innovative-meta-artificial-intelligence-solutions/"><u>Optimizing Your Instagram Outreach Through Innovative Meta Artificial Intelligence Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/reestablishing-friendship-post-facebook-ban/"><u>Reestablishing Friendship Post-Facebook Ban</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-to-publish-multi-language-facebook-updates/"><u>Strategies to Publish Multi-Language Facebook Updates</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-xiaomi-13-ultra-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Xiaomi 13 Ultra Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-framework-of-facebooks-functionality/"><u>Unraveling the Framework of Facebook's Functionality</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-venues-and-veritable-voices-mastery-of-facebooks-new-group-management-strategies/"><u>Virtual Venues and Veritable Voices: Mastery of Facebook's New Group Management Strategies</u></a></li>
-<li><a href="https://win-web3.techidaily.com/werkvrije-herstel-van-iphone-informatie-zonder-de-noodzaak-van-een-computersysteem/"><u>Werkvrije Herstel Van iPhone-Informatie Zonder De Noodzaak Van Een Computersysteem</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-elite-list-8-amazing-3d-websites-and-glittering-text/"><u>[New] Elite List 8 Amazing 3D Websites & Glittering Text</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-perfecting-your-shots-action-cameras-for-skisnowboarding-for-2024/"><u>[Updated] Perfecting Your Shots Action Cameras for Ski/Snowboarding for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1725284016663-dvd/"><u>「どんなDVDも簡単にダビング！特集：家庭で使える最新の手順解説」</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-bridging-the-gap-between-spoken-words-and-text-on-slides-powerpoint-guide/"><u>2024 Approved Bridging the Gap Between Spoken Words and Text on Slides PowerPoint Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/amplify-visual-content-embedding-audio-on-instagram-reels/"><u>Amplify Visual Content Embedding Audio on Instagram Reels</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/audio-waveform-to-ringtone-best-places-to-pick-from-youtubemusic/"><u>Audio Waveform to Ringtone Best Places To Pick From YoutubeMusic</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-outlines-whats-funny-and-not/"><u>Facebook Outlines What's Funny and Not</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-verizon-apple-iphone-12-by-drfone-ios/"><u>How to Unlock Verizon Apple iPhone 12</u></a></li>
+<li><a href="https://facebook.techidaily.com/perfecting-social-media-queries-facebook-poll-setups/"><u>Perfecting Social Media Queries: Facebook Poll Setups</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-online-communities-for-older-demographics/"><u>Prime Online Communities For Older Demographics</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-detox-stopping-automated-content/"><u>Social Media Detox: Stopping Automated Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-synergy-sending-instagram-reels-via-facebook/"><u>Social Media Synergy: Sending Instagram Reels via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-currency-of-connection-online-revenue-rules/"><u>The Currency of Connection: Online Revenue Rules</u></a></li>
+<li><a href="https://common-error.techidaily.com/urgent-fixes-for-not-detected-directx-compiler-file-error/"><u>Urgent Fixes for 'Not Detected' DirectX Compiler File Error</u></a></li>
 </ul></div>
 

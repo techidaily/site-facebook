@@ -1,7 +1,7 @@
 ---
 title: Unlocking a Safer Social Media Experience with Facebook’s Streamlined Privacy Control
-date: 2024-11-16T16:46:19.489Z
-updated: 2024-11-17T17:11:39.291Z
+date: 2024-11-20T09:15:05.889Z
+updated: 2024-11-27T12:08:17.629Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/c7c73b7c4a7efc6c835802b5aee6775aac1b5aafc
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Access the New Facebook Privacy Center
 
  The new Privacy Center was announced in a[Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
@@ -34,6 +38,10 @@ Here's how:
 
 ![Click on Security and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Open Facebook on your computer and click on the**Account** dropdown button in the top-right corner.  
 ![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
 2. Click on**Settings and privacy** then click on**Privacy Center** .  
@@ -43,10 +51,7 @@ Here's how:
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's Privacy Center at a Glance
@@ -68,10 +73,7 @@ Here's how:
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
@@ -81,10 +83,7 @@ Here's how:
 ![Facebook Privacy Center Sharing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center-Sharing-settings.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This will take you away from the Privacy Center to a dedicated**Privacy checkup** page.
@@ -94,13 +93,6 @@ Here's how:
  To return to the main menu and explore other privacy settings, simply click on**Privacy Center home** , go to your preferred category and click**Read more** .
 
  Related:[Why Meta Is Killing Facebook's Facial Recognition System](https://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Why You Should Use Facebook's Privacy Center
 
@@ -135,17 +127,19 @@ Here's how:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-5-superior-recording-gear-options-for-ipad-and-mac-owners/"><u>[New] 2024 Approved 5 Superior Recording Gear Options for iPad & Mac Owners</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-the-ultimate-youtube-financial-framework-for-content-creators/"><u>[New] In 2024, The Ultimate YouTube Financial Framework for Content Creators</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-elite-mac-graphic-preserver-for-2024/"><u>[Updated] Elite Mac Graphic Preserver for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-obs-studio-vs-fraps-best-screen-recording-tools-battle/"><u>[Updated] In 2024, OBS Studio vs Fraps Best Screen Recording Tools Battle</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/comment-decoder-un-ficherait-pdf-invalide-une-methode-simple-et-efficace/"><u>Comment Décoder Un FICHERAIT PDF Invalide: Une Méthode Simple Et Efficace</u></a></li>
-<li><a href="https://facebook.techidaily.com/end-social-media-spying-strategies-to-block-facebook/"><u>End Social Media Spying: Strategies to Block Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-reworked-evolving-from-a-social-network-to-meta/"><u>Facebook Reworked: Evolving From a Social Network to Meta</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-remove-oneplus-ace-2v-pin-by-drfone-android-unlock-android-unlock/"><u>How to remove OnePlus Ace 2V PIN</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-securing-fb-profile-against-unseen-eyes/"><u>Master Securing FB Profile Against Unseen Eyes</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unheard-side-of-stories-rethinking-the-true-impact-of-the-fb-papers/"><u>The Unheard Side of Stories: Rethinking the True Impact of The FB Papers</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-the-common-warzone-in-game-memory-issue-on-xbox-and-pc-error-0-1766/"><u>Troubleshooting the Common Warzone In-Game Memory Issue on Xbox & PC (Error 0-1766)</u></a></li>
-<li><a href="https://facebook.techidaily.com/unknown-ventures-facebooks-secret-wrist-tech-project/"><u>Unknown Ventures: Facebook's Secret Wrist Tech Project</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-exploring-8-truly-effective-video-marketing-strategies/"><u>[Updated] 2024 Approved Exploring 8 Truly Effective Video Marketing Strategies</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-ultimate-4-facebook-film-compiler/"><u>[Updated] 2024 Approved Ultimate 4 Facebook Film Compiler</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-elevate-your-channels-templates-at-no-charge/"><u>[Updated] Elevate Your Channels - Templates at No Charge!</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-concept-to-reel-an-extensive-guide-to-video-editing-with-vivacut-2024/"><u>[Updated] From Concept to Reel An Extensive Guide to Video Editing with VivaCut 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-nokia-c22-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/easy-steps-for-installing-and-operating-symantec-endpoint-backup-and-recovery-suite/"><u>Easy Steps for Installing & Operating Symantec Endpoint Backup & Recovery Suite</u></a></li>
+<li><a href="https://facebook.techidaily.com/ending-fb-surveillance-using-off-facebook-workflow/"><u>Ending FB Surveillance - Using Off-Facebook Workflow</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-innovative-subscription-concept-outshines-tech-industry-standards/"><u>Facebook’s Innovative Subscription Concept Outshines Tech Industry Standards</u></a></li>
+<li><a href="https://facebook.techidaily.com/future-of-music-and-networks-facebooks-boombox-project-with-spotify/"><u>Future of Music & Networks: Facebook's Boombox Project with Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-sudden-disconnection-from-facespace/"><u>Overcoming Sudden Disconnection From Facespace</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-the-hp-omen-obelisk-superior-gaming-experience-at-unbeatable-prices/"><u>Review of the HP OMEN Obelisk: Superior Gaming Experience at Unbeatable Prices</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-visual-impact-crafting-fb-backgrounds/"><u>Social Media Visual Impact: Crafting Fb Backgrounds</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-art-of-describing-your-podcast-with-flair-for-2024/"><u>The Art of Describing Your Podcast with Flair for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/top-screencast-software-on-the-market-bandicam-vs-camtasia/"><u>Top Screencast Software on the Market Bandicam Vs. Camtasia</u></a></li>
 </ul></div>
 

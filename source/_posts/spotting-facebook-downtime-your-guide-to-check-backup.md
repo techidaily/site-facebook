@@ -1,7 +1,7 @@
 ---
 title: Spotting Facebook Downtime - Your Guide to Check Backup
-date: 2024-09-01T03:44:11.702Z
-updated: 2024-09-02T03:44:11.702Z
+date: 2024-11-22T07:59:16.727Z
+updated: 2024-11-26T18:28:05.964Z
 tags:
   - facebook
 categories:
@@ -37,9 +37,6 @@ thumbnail: https://thmb.techidaily.com/0d31f5646fe3a9a749251ddb64d10288427198f92
 
  In case you can't open any websites on your network, see[how to troubleshoot your home internet connection](https://www.makeuseof.com/tag/7-simple-steps-diagnose-network-problem/) for help.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Check an Outage Detector Website
 
  Once you've confirmed that your network connection is working properly, you should next check to see if other people have reported a problem accessing Facebook. There are plenty of websites to do this, such as[Downdetector](https://downdetector.com/) .
@@ -49,14 +46,18 @@ thumbnail: https://thmb.techidaily.com/0d31f5646fe3a9a749251ddb64d10288427198f92
 ![Facebook Downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Downdetector.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  If you see a spike in issues recently, chances are good that Facebook is down for everyone. Further down the page, you'll find a map of where people reported Facebook issues from, comments, and whether the issues are with the website, app, or server connections.
 
  For a second opinion, you can also check[Down for Everyone or Just Me](https://downforeveryoneorjustme.com/) , which is accessible via the shorter URL**downfor.io** . Here, enter a URL and the site will check if it's down globally. This makes it easy to see if Facebook is down everywhere or there's just a problem in your area (or on your network).
 
 ![Down For Everyone Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Down-For-Everyone-Facebook.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. See What People Say on Twitter
 
@@ -67,13 +68,18 @@ thumbnail: https://thmb.techidaily.com/0d31f5646fe3a9a749251ddb64d10288427198f92
 ![Twitter Facebook Down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Twitter-Facebook-Down.png)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  If you've seen strong evidence that Facebook is down from both outage detectors and Twitter, chances are that Facebook is indeed down for everyone and not just you.
 
 ## How to Find Out When Facebook Comes Back Online
 
  Now that you know Facebook isn't working, there's unfortunately nothing you can do to fix it. You'll need to wait until Facebook fixes the issue, but there are a few ways to stay updated on Facebook's status.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Refresh Facebook a Few Times
 
@@ -81,9 +87,6 @@ thumbnail: https://thmb.techidaily.com/0d31f5646fe3a9a749251ddb64d10288427198f92
 
  If Facebook's outage only lasts a few minutes, you should be able to access it before long. But if it's not back after 15 minutes or so, it's probably going to be unavailable for longer, so you shouldn't waste your time refreshing manually.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Keep an Eye on Twitter
 
  Earlier, you looked at Twitter to figure out if Facebook was having problems. But that's not the extent of Twitter's usefulness; you can also use it to keep up on the status of longer Facebook outages.
@@ -104,28 +107,23 @@ thumbnail: https://thmb.techidaily.com/0d31f5646fe3a9a749251ddb64d10288427198f92
 
 ![DownNotifier Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/DownNotifier-Facebook.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
  You'll get an email when Facebook goes down, clueing you into the issue before you even check the site yourself.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## When Facebook Is Down, This Is What You Do
 
  As we've looked at, it's easy to know whether Facebook is truly down and know when it comes back online. Most Facebook outages don't last long, but in some cases they can last for hours.
 
  In this case, don't despair; there's plenty you can do online to kill time, even without Facebook. It could even be an excuse to go outside and get away from your devices for a while.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,4 +132,26 @@ thumbnail: https://thmb.techidaily.com/0d31f5646fe3a9a749251ddb64d10288427198f92
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-business-communication-essentials-free-slide-show-tools/"><u>[New] 2024 Approved Business Communication Essentials – Free Slide Show Tools</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-efficient-tagging-techniques-to-boost-your-youtube-traffic/"><u>[Updated] 2024 Approved Efficient Tagging Techniques to Boost Your Youtube Traffic</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-deciphering-filmora-a-quest-for-visual-storytelling-clarity/"><u>[Updated] In 2024, Deciphering Filmora A Quest for Visual Storytelling Clarity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-deep-dive-into-the-bookish-bliss-of-using-the-2019-kindle-oasis-a-true-replica-of-reading-on-paper/"><u>A Deep Dive Into the Bookish Bliss of Using the 2019 Kindle Oasis - A True Replica of Reading on Paper?</u></a></li>
+<li><a href="https://win-blog.techidaily.com/best-tips-to-resolve-rockstar-games-launcher-problems-as-of-2024/"><u>Best Tips to Resolve Rockstar Games Launcher Problems as of 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722898502038-boost-efficiency-with-dual-task-management-learn-how-to-split-screens-on-your-macbook-air-today/"><u>Boost Efficiency with Dual Task Management - Learn How to Split Screens on Your MacBook Air Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-experience-privacy-controls/"><u>Enhancing Your Facebook Experience: Privacy Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/fine-tuning-visibility-a-facebook-photos-primer/"><u>Fine-Tuning Visibility: A Facebook Photos Primer</u></a></li>
+<li><a href="https://facebook.techidaily.com/gadget-whispers-what-we-know-of-facebooks-stealth-watch/"><u>Gadget Whispers: What We Know of Facebook’s Stealth Watch</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/gopro-hero-vs-yi-4k-which-takes-the-prize-in-latest-tech-in-2024/"><u>GoPro Hero Vs. Yi 4K Which Takes the Prize in Latest Tech, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-facebook-hit-its-share-of-market-saturation/"><u>Has Facebook Hit Its Share of Market Saturation?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-increase-engagement-on-your-facebook-posts-12-tips-and-tricks/"><u>How to Increase Engagement on Your Facebook Posts: 12 Tips and Tricks</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-unrestricted-data-saver-solutions/"><u>In 2024, Top Unrestricted Data Saver Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-choices-meta-ai-and-social-networking-appeal/"><u>Navigating the Choices: Meta AI & Social Networking Appeal?</u></a></li>
+<li><a href="https://facebook.techidaily.com/nft-revolution-meta-drops-on-popular-networks-tested/"><u>NFT Revolution: Meta Drops on Popular Networks Tested</u></a></li>
+<li><a href="https://facebook.techidaily.com/second-life-revival-prospects-within-the-metaverse-era/"><u>Second Life Revival Prospects Within the Metaverse Era</u></a></li>
+<li><a href="https://solve-info.techidaily.com/simple-methods-for-streaming-avi-files-on-your-iphone/"><u>Simple Methods for Streaming AVI Files on Your iPhone</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-resilience-in-the-wake-of-facebook-down-time/"><u>Telegram's Resilience in the Wake of Facebook Down Time</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/theta-s-revealed-an-extensive-product-evaluation/"><u>Theta S Revealed An Extensive Product Evaluation</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Master the Hide-N-Seek of FB: Securing Personal Information"
-date: 2024-11-15T18:05:25.979Z
-updated: 2024-11-17T16:10:05.893Z
+date: 2024-11-26T13:43:28.541Z
+updated: 2024-11-27T00:46:55.205Z
 tags:
   - facebook
 categories:
@@ -36,18 +36,15 @@ thumbnail: https://thmb.techidaily.com/58d6990fb1aba3befeda20029d053fd2dc8e67729
 
  Related:[How to Hide Your Social Media Profiles From Bullies](https://www.makeuseof.com/tag/how-to-hide-your-social-media-profiles/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Hide Facebook Posts With the Archive Feature
 
  Depending on the number of posts you'd like to hide, you can choose between archiving individual posts or bulk-archiving them.
 
 This guide will show you how to do both.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Archive a Single Facebook Post
 
@@ -72,24 +69,22 @@ Here's how you can archive multiple posts at once:
 
 ![screen showing facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screen showing navigation to activity log on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-navigation-to-activity-log-on-Facebook.jpg)
 
-![screen-showing-facbook-activity-log-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facbook-activity-log-1.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![screen-showing-facbook-activity-log-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facbook-activity-log-1.jpg)
 
 ![screen showing how to bulk-archive facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-how-to-bulk-archive-facebook-post.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -108,16 +103,13 @@ Here's how to restore archived posts on Facebook:
 
 ![screen showing facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![screen showing navigation to archive page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-navigation-to-archive-page-on-Facebook.jpg)
 
 ![screen showing how to restore archived post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-how-to-restore-archived-post-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -128,13 +120,6 @@ Close
 5. Confirm you want to restore by tapping**Restore** .
 
  The process is very similar on the web version of Facebook—just look out for the ellipsis and corresponding action.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Keep Your Memories Away From Prying Eyes
 
@@ -157,14 +142,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/updated-how-to-safely-access-publicly-recorded-c-span-content/"><u>[Updated] How to Safely Access Publicly Recorded C-Span Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/comprehensive-analysis-of-the-cost-effective-tp-skylink-archer-a6-with-ac1200-connectivity/"><u>Comprehensive Analysis of the Cost-Effective TP-Skylink Archer A6 with AC1200 Connectivity</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elevate-your-driving-pleasure-with-essential-sj4000-gear/"><u>Elevate Your Driving Pleasure with Essential SJ4000 Gear</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-unveils-meta-a-revolution-in-social-media-branding/"><u>Facebook Unveils Meta: A Revolution in Social Media Branding</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/how-to-pause-your-icloud-backup-and-sync-processes-for-macos-users-addressing-three-frequent-situations/"><u>How to Pause Your iCloud Backup and Sync Processes for macOS Users: Addressing Three Frequent Situations</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-quick-tips-speeding-up-video-playback-on-snapchat-for-novices/"><u>In 2024, Quick Tips Speeding Up Video Playback on Snapchat for Novices</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-techniques-and-tools-for-effective-hand-tracking/"><u>In 2024, Techniques & Tools for Effective Hand Tracking</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-new-workforce-understanding-facebooks-metamates/"><u>The New Workforce: Understanding Facebook’s ‘Metamates’</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-voice-matters-how-will-facebook-revamp-its-news-experience/"><u>Your Voice Matters: How Will Facebook Revamp Its News Experience?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-greatest-competitors-to-vimeos-cameo-editor-platform-for-2024/"><u>[Updated] Greatest Competitors to Vimeo's Cameo Editor Platform for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-depth-exploration-of-ps-3d-luts-for-exceptional-image-grading/"><u>[Updated] In-Depth Exploration of PS 3D LUTs for Exceptional Image Grading</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-11-pro-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 11 Pro without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-samsung-galaxy-a14-5g-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Samsung Galaxy A14 5G without App | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-leverage-both-platforms-youtube-and-facebook-integration/"><u>In 2024, Leverage Both Platforms YouTube and Facebook Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/methods-to-unblock-stuck-fb-notification-bits/"><u>Methods to Unblock Stuck FB Notification Bits</u></a></li>
+<li><a href="https://facebook.techidaily.com/metrics-making-moolah-how-meta-supports-artists-in-their-monetary-endeavors/"><u>Metrics Making Moolah: How Meta Supports Artists in Their Monetary Endeavors</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-rules-discover-facebooks-transparent-approach/"><u>Navigating the Rules: Discover Facebook’s Transparent Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-social-media-cryptocurrency-promos/"><u>The Future of Social Media: Cryptocurrency Promos</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-resolving-persistent-losing-of-ark-in-your-adventure-game/"><u>Troubleshooting Guide: Resolving Persistent Losing of Ark in Your Adventure Game</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-makes-mastodon-different/"><u>What Makes Mastodon Different?</u></a></li>
 </ul></div>
 

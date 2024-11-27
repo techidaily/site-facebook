@@ -1,7 +1,7 @@
 ---
 title: Reviving Frozen Facebook Alerts Display
-date: 2024-11-15T17:08:42.459Z
-updated: 2024-11-17T17:24:32.765Z
+date: 2024-11-24T03:07:00.050Z
+updated: 2024-11-26T17:50:00.959Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/f5fbbf41453d9824bf6879798120e6de2082db27f
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Check Your Internet Connection
 
@@ -62,16 +66,13 @@ Close
 
 ![Flight mode turned off](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/flight-mode-turned-off.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Do Not Disturb and Focus mode turned off](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/do-not-disturb-and-focus-mode-turned-off.jpg)
 
 Close
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Check Notification Permissions for Facebook
 
@@ -87,6 +88,10 @@ Close
 
 ![Allow notifications for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Allow-notifications-for-Facebook.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  You can also turn on[Time Sensitive Notifications on your iPhone](https://www.makeuseof.com/ios-15-time-sensitive-notifications-explained/) for urgent content.
@@ -99,25 +104,23 @@ For an Android device, follow these steps:
 
 ![Android Software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/android-software-update.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook Storage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/facebook-storage.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Turn on Show notifications option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/turn-on-show-notifications-option.jpg)
 
-Close
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Close
 
 ## 4\. Check Notifications Settings on Facebook
 
@@ -138,6 +141,10 @@ On your iOS device, follow these steps:
 
 ![Mute push notifications option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Mute-push-notifications-option.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
 On Android, follow these steps to enable Facebook notifications:
@@ -152,22 +159,23 @@ On Android, follow these steps to enable Facebook notifications:
 
 ![Settings an privacy page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/02-facebook-settings-privacy-page-android.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Notification settings on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/03-facebook-notification-settings-android.jpg)
 
 ![Push notifications enabled on Facebook's Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/04-push-notifications-facebook-android.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  If you're not receiving Facebook notifications because you've disabled the app from sending them in your phone's Settings app, you'll see a**Turn On Push Notifications** option instead when you tap**Push** . Tap**Turn On Push Notifications,** and on the next page, allow Facebook to send notifications.
 
  The Facebook app will load all the pending alerts as soon as you refresh.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Restart Your Phone
 
@@ -219,13 +227,6 @@ Close
 
 ![Open Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/open-facebook-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Open Facebook on Android device](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/open-facebook-on-android-device.jpg)
 
 Close
@@ -238,13 +239,6 @@ Close
 
 ![iPhone software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-software-update.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Update your iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Update-your-iPhone.JPG)
 
 Close
@@ -253,27 +247,17 @@ Close
 
 ![Android Software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/android-software-update.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Tap Download and install](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/tap-download-and-install.jpg)
 
 ![Software is up to date](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/software-is-up-to-date.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
 
  The fixes in your phone's system can help fix Facebook notifications that aren’t loading.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 9\. Reinstall Facebook on Your Smartphone
 
@@ -302,19 +286,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-unleash-the-potential-elevating-your-tiktok-unboxing-contents-like-count/"><u>[New] In 2024, Unleash the Potential Elevating Your TikTok Unboxing Content's Like Count</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-instagram-reverse-video-tutorials/"><u>2024 Approved Mastering Instagram Reverse Video Tutorials</u></a></li>
-<li><a href="https://facebook.techidaily.com/4-useful-ways-to-discover-new-facebook-groups/"><u>4 Useful Ways to Discover New Facebook Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/adjusting-public-friend-access-to-profile/"><u>Adjusting Public Friend Access to Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-system-for-unsolicited-pcemail-activity/"><u>Alert System for Unsolicited PC/Email Activity</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-online-presence-with-privacy-a-pre-deletion-guide/"><u>Balancing Online Presence with Privacy: A Pre-Deletion Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/circumventing-the-masters-of-manipulative-media/"><u>Circumventing the Masters of Manipulative Media</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/effortlessly-terminate-in-app-purchases-a-step-by-step-guide-for-disabling-apple-store-subscriptions-via-iphone-with-ios-15-techtips/"><u>Effortlessly Terminate In-App Purchases: A Step-by-Step Guide for Disabling Apple Store Subscriptions via iPhone with iOS 15 - TechTips</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/fixing-the-absence-of-the-asus-factory-recovery-partition-step-by-step-guide/"><u>Fixing the Absence of the Asus Factory Recovery Partition: Step-by-Step Guide</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-newest-epson-wf-372n0-printer-driver-installation-files-here/"><u>Get the Newest Epson WF 372N0 Printer Driver Installation Files Here!</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-vivo-t2-5g-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Vivo T2 5G Is Unlocked</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/mastering-ai-communication-the-five-premier-ai-prompt-engineering-applications-for-all-platforms/"><u>Mastering AI Communication: The Five Premier AI Prompt Engineering Applications for All Platforms</u></a></li>
-<li><a href="https://program-issues.techidaily.com/optimize-your-play-effective-fixes-for-forza-horizon-5s-performance-crashes-on-windows-pcs/"><u>Optimize Your Play: Effective Fixes for Forza Horizon 5'S Performance Crashes on Windows PCs</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/step-by-step-guide-correcting-bad-pool-caller-errors-within-windows-10-systems/"><u>Step-by-Step Guide: Correcting 'Bad Pool Caller Errors' Within Windows 10 Systems</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-enter-the-next-gen-realm-pick-your-favorite-from-rift-vive-and-playstation-vr/"><u>[New] 2024 Approved Enter the Next-Gen Realm Pick Your Favorite From Rift, Vive, and PlayStation VR</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-blueprint-for-seamless-integration-of-instagram-and-tiktok/"><u>[New] In 2024, Blueprint for Seamless Integration of Instagram and TikTok</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-maximize-view-count-best-yt-thumbnail-sizes/"><u>[Updated] 2024 Approved Maximize View Count Best YT Thumbnail Sizes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-explore-like-a-pro-with-tomtoms-actioncam-2023/"><u>[Updated] Explore Like a Pro with TomTom's ActionCam 2023</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlock-creative-potential-top-methods-for-green-screen-filming/"><u>In 2024, Unlock Creative Potential Top Methods for Green Screen Filming</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-online-content-deletion-with-these-8-steps/"><u>Master Online Content Deletion with These 8 Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-no-security-code-issues-with-facebook-accounts/"><u>Navigating No-Security-Code Issues with Facebook Accounts</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-video-resume-builder-showdown-4-best-options-free-templates/"><u>New In 2024, Video Resume Builder Showdown 4 Best Options Free Templates</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/optimize-iphone-call-volume-uncover-the-best-fixes-and-hacks-today/"><u>Optimize iPhone Call Volume – Uncover the Best Fixes and Hacks Today!</u></a></li>
+<li><a href="https://facebook.techidaily.com/outwit-fb-monitoring-with-the-help-of-off-facebook-activity/"><u>Outwit FB Monitoring with the Help of Off-Facebook Activity</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-black-ops-cold-war-error-code-0xc0000005-a-step-by-step-solution/"><u>Overcoming Black Ops Cold War Error Code 0Xc0000005 - A Step-by-Step Solution</u></a></li>
+<li><a href="https://facebook.techidaily.com/premier-league-players-pledge-no-more-social-networking-for-harassment-purposes/"><u>Premier League Players Pledge No More Social Networking for Harassment Purposes</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevention-tips-spotting-suspicious-online-activities/"><u>Prevention Tips: Spotting Suspicious Online Activities</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/trouble-with-your-devices-main-audio-connection-heres-how-to-repair-it/"><u>Trouble with Your Device's Main Audio Connection? Here's How to Repair It!</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-silent-scream-from-fb/"><u>Understanding The Silent Scream From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/utilizing-channels-for-effective-group-links/"><u>Utilizing Channels for Effective Group Links</u></a></li>
 </ul></div>
 

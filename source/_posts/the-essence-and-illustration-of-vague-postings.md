@@ -1,7 +1,7 @@
 ---
 title: The Essence and Illustration of Vague Postings
-date: 2024-09-01T03:42:05.543Z
-updated: 2024-09-02T03:42:05.543Z
+date: 2024-11-21T16:38:23.703Z
+updated: 2024-11-26T18:01:41.838Z
 tags:
   - facebook
 categories:
@@ -31,13 +31,14 @@ But what is vaguebooking?
 
  And that's the point of vaguebooking. While the majority of us will only post on social media when we have something specific to say, vaguebookers take great delight in beating around the metaphorical bush. Seeking attention while giving away very little in terms of detail.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Examples of Vaguebooking
 
  The easiest way to answer the question, "what is vaguebooking?" is to give examples. So here are some examples of vaguebooking which will help you recognize it when you see it. And ultimately avoid doing it yourself.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ### 1\. Expressing an Emotion Without Providing Context
 
  This is an expression of emotion in its most basic form. On this occasion it's anger, but other emotions can replace anger quite easily. Instead of, "I'm so angry right now. Arrggh!," it could be, "I'm so confused right now. Waagh!" or "I'm so miserable right now. Boohoo!"
@@ -50,24 +51,22 @@ But what is vaguebooking?
 
  Sometimes you don't even need words. A trio of question marks is enough. This is bound to elicit some kind of response from someone, whether it be more question marks or a simple "What's up?" Which is all those who write this kind of status update are after.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ### 4\. How Is This Still a Thing?
 
  Social networks aren't always the nicest places to hang out. You can encounter idiots at every turn, and be exposed to every ism you care to mention. But if you're going to out people for their obnoxious views and/or behavior, provide examples rather than vaguebooking about it.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. When a GIF Is Meant to Sum Everything Up
 
  If you find the right one, a GIF can say everything you need to say. However, vaguebookers abuse the medium by posting GIFs without context. Imagine, for example, finding a GIF of a baby cheering on your timeline. Without context, that could mean a host of different things.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Who Is Responsible for Vaguebooking?
 
  So, who's doing all of this vaguebooking? Sadly, everyone seems prone to doing it from time to time. You'll find normally sane and sensible people vaguebooking in order to elicit sympathy or some kind of response from someone, somewhere. Anyone, anywhere. It doesn't really matter who responds, as long as someone notices their cries for attention.
@@ -79,8 +78,9 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Related:[Tips to Avoid (Spreading) Fake News During a Crisis](https://www.makeuseof.com/tag/quickly-avoid-fake-news-unfolding-crisis/)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Vaguebooking Harmless or Something More?
 
  Vaguebooking is definitely annoying. Of that there can be no argument. But is it merely annoying or a sign of something more worrying?
@@ -93,6 +93,10 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  Related:[The Best Therapy and Counseling Apps for Mental Health](https://www.makeuseof.com/tag/mental-health-apps-people-cant-see-therapist/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Avoid Vaguebooking
 
  It's actually very simple to avoid vaguebooking. Just don't post anything vague on social media. That's it. That's the golden rule.
@@ -103,21 +107,15 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  And if you're struggling mentally, maybe avoid social media altogether and talk to someone offline. Having a one-to-one conversation with someone who can actually offer practical help and/or advice is a much better idea than vaguebooking in the hopes someone will notice you.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Fight the Scourge of Vaguebooking
 
  Have you seen someone you know vaguebooking? Did you respond by asking for more detail? If so, please don't do that again. Discourage it by ignoring the vague status update. Or, even better, reply with a link to this article instead. Together we can stop this vaguebooking madness.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -126,4 +124,22 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-crafting-team-videos-to-foster-viewership-and-following/"><u>[New] In 2024, Crafting Team Videos to Foster Viewership and Following</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-ultimate-hd-experience-1-blu-ray-players-list/"><u>[Updated] 2024 Approved Ultimate HD Experience #1 Blu-Ray Players List</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-nine-powerful-windows-apps-for-seamless-animated-gif-recording/"><u>2024 Approved Nine Powerful Windows Apps For Seamless Animated GIF Recording</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-the-deals-get-a-giant-8tb-samsung-t5-nvme-ssd-for-36-less-on-amazon-post-prime-day-insights/"><u>Discover the Deals: Get a Giant 8TB Samsung T5 NVMe SSD for 36% Less on Amazon Post-Prime Day - Insights</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mp4-movies-with-samsung-galaxy-m54-5g-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Failed to play MP4 movies with Samsung Galaxy M54 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/intuitive-interface-for-the-modern-social-feed/"><u>Intuitive Interface for the Modern Social Feed</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2550494-9781780282503-numerology/"><u>Numerology | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-giant-invests-in-global-battle-against-covid-1e/"><u>Online Giant Invests in Global Battle Against COVID-1e</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-branding-via-curated-social-media-chronicles/"><u>Personal Branding via Curated Social Media Chronicles</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-evasion-fb-enables-vaccine-skepticism-circles/"><u>Platform Evasion: FB Enables Vaccine Skepticism Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-threats-in-the-land-of-facebook-quiz-games/"><u>Potential Threats in the Land of Facebook Quiz Games?</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-teens-social-network-fb-privacy-checklist/"><u>Securing Your Teen's Social Network: FB Privacy Checklist</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-intersection-of-friendship-and-commerce-facebooks-new-feature/"><u>The Intersection of Friendship and Commerce: Facebook’s New Feature</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-rated-macbook-peripherals-comprehensive-reviews-by-tech-experts-wired/"><u>Top-Rated MacBook Peripherals : Comprehensive Reviews by Tech Experts | Wired</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-free-wmv-video-merger-tools-top-picks/"><u>Updated 2024 Approved Free WMV Video Merger Tools Top Picks</u></a></li>
+</ul></div>
 

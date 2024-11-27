@@ -1,7 +1,7 @@
 ---
 title: Guiding You Through Unlinking Spotify and FB Accounts
-date: 2024-11-11T16:50:18.256Z
-updated: 2024-11-17T17:48:01.003Z
+date: 2024-11-25T14:13:30.176Z
+updated: 2024-11-27T02:45:39.726Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/270179364474a44da1eaeda7613c10f10260fff7a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What You Should Do Before Unlinking Your Spotify Account From Facebook
 
  You could decide to unlink Facebook from your Spotify account for any number of reasons. Perhaps you're not interested in Spotify's social features and don't wish to be found by others this way. Perhaps you no longer use Facebook and want to make sure you can still access your Spotify account without it. Perhaps you just prefer not to chain platforms together this way.
@@ -36,25 +40,11 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Spotify password reset web page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/spotify-password-reset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Disconnect Your Spotify Account From Facebook
 
  Now, if you go to Spotify across the mobile app, web app, and desktop app, you'll notice that it doesn't mention anywhere about unlinking Facebook from your account. You can affect Facebook's permissions in terms of the data it receives from your Spotify account, but nothing about unlinking.
 
  So instead, you have to unlink Spotify directly from Facebook, and you can do it on the web app and the Facebook app.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Disconnect Your Spotify Account From Facebook (Desktop)
 
@@ -68,10 +58,11 @@ Here's what you should do to unlink Facebook from Spotify.
 ![The Apps and websites page on the Facebook web app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-apps-websites.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Disconnect Your Spotify Account From Facebook (Mobile)
@@ -85,20 +76,21 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Settings and Privacy menu on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9601.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![The Permissions section of Settings on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9602.jpg)
 
 ![The Spotify connection tile on Facebook iOS app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9603.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  Whichever platform you do this on, you should have successfully unlinked Facebook from your Spotify account and can now log in without it.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Enjoy Spotify Without Facebook
 
@@ -121,16 +113,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-spectrum-savvy-the-filmmakers-guide-to-color/"><u>[New] Spectrum Savvy The Filmmaker's Guide to Color</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-holistic-motion-comprehensiveness-review/"><u>[Updated] 2024 Approved Holistic Motion Comprehensiveness Review</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-from-zero-to-hero-on-instagram-fame/"><u>[Updated] In 2024, From Zero to Hero on Instagram Fame</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/choosing-your-streaming-platform-hulu-or-hulu-plus-explored/"><u>Choosing Your Streaming Platform: Hulu or Hulu Plus Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-new-frontiers-in-social-commerce-on-facebook/"><u>Exploring New Frontiers in Social Commerce on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-unveils-new-audiovisual-platform-features/"><u>Facebook Unveils New Audiovisual Platform Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-stop-automatic-user-references-fb/"><u>How to Stop Automatic User References (FB)</u></a></li>
-<li><a href="https://facebook.techidaily.com/joe-biden-announces-vaccination-drive-via-social-networks/"><u>Joe Biden Announces Vaccination Drive via Social Networks</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/the-elite-5-facebooks-novel-innovations-spotlighted/"><u>The Elite 5 Facebook's Novel Innovations Spotlighted</u></a></li>
-<li><a href="https://win-latest.techidaily.com/unlock-advanced-touchpad-shortcuts-essential-tips-for-seasoned-professionals-revealed-by-zdnet/"><u>Unlock Advanced Touchpad Shortcuts: Essential Tips for Seasoned Professionals Revealed by ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/which-social-media-platform-is-safest/"><u>Which Social Media Platform Is Safest?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-a-toast-to-trending-celebrating-reddit-writings-top-10/"><u>[New] A Toast to Trending Celebrating Reddit’ Writings (Top 10)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-the-race-for-screen-capture-excellence-whos-leading-obs-or-fraps/"><u>[Updated] 2024 Approved The Race for Screen Capture Excellence Who's Leading? – OBS or Fraps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-understanding-youtubes-monthly-revenue-options/"><u>[Updated] Understanding YouTube's Monthly Revenue Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-cross-team-communication-top-8-facebook-innovations/"><u>Enhancing Cross-Team Communication: Top 8 Facebook Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-a-tale-of-modern-connectivity/"><u>Facebook: A Tale of Modern Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-present-power-brokers/"><u>Facebook’s Present Power Brokers</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-global-village-to-social-stress-with-facebook/"><u>From Global Village to Social Stress with Facebook</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-hp-deskjet-2755e-drivers-installed-for-windows-pcs-steps-and-links/"><u>Get Your HP DeskJet 2755E Drivers Installed for Windows PCs – Steps & Links!</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-eliminate-0x800700e9-on-xbox-game-pass-and-windows-11/"><u>How to Eliminate 0X800700E9 on Xbox Game Pass & Windows 11</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Samsung Galaxy S23? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-protect-yourself-from-potential-online-predators/"><u>How to Protect Yourself From Potential Online Predators</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-14-pro-to-factory-settings-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Reset iPhone 14 Pro to Factory Settings? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-motorola-razr-40-ultra-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Motorola Razr 40 Ultra</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-top-6-no-cost-web-based-sound-crafting-tools/"><u>New Top 6 No-Cost Web-Based Sound Crafting Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/restoring-facebook-user-login-after-code-deletion/"><u>Restoring Facebook User Login After Code Deletion</u></a></li>
 </ul></div>
 

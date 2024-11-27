@@ -1,7 +1,7 @@
 ---
 title: "Uncovering Your FB Block List: A Guide"
-date: 2024-11-13T17:14:11.565Z
-updated: 2024-11-17T16:59:21.436Z
+date: 2024-11-20T08:23:36.721Z
+updated: 2024-11-27T14:40:12.090Z
 tags:
   - facebook
 categories:
@@ -24,11 +24,23 @@ thumbnail: https://thmb.techidaily.com/8614a77f9e633f7b68cb429db560c3992306d2b5b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Your Facebook Blocked List on Mobile
 
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
 
@@ -45,22 +57,12 @@ Close
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to View Your Blocked List on the Web
 
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
 
@@ -72,10 +74,7 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can People Tell if You've Blocked Them on Facebook?
@@ -85,13 +84,6 @@ Close
  For example, if they try to search for your profile on Facebook and can't find it, that's a pretty good indication you've blocked them. Additionally, they will no longer be able to see any of your posts or profile information. They'll also not be able to tag you in posts or send you messages on Facebook.
 
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
 
@@ -112,20 +104,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-apex-chart-seeker-monitor-most-viewed-videos-for-2024/"><u>[New] Apex Chart Seeker Monitor Most Viewed Videos for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-adeptness-at-mobile-app-development-for-luts/"><u>[Updated] Adeptness at Mobile App Development for LUTs</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-common-issues-with-youtube-shorts-thumbnails/"><u>[Updated] Common Issues with YouTube Shorts Thumbnails</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-ultimate-selection-of-omnidirectional-recording-devices-for-2024/"><u>[Updated] Ultimate Selection of Omnidirectional Recording Devices for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Vivo S18 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Samsung Galaxy S23 FE? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-oneplus-11r-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass OnePlus 11R FRP Without Computer</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/infusing-your-charm-astrology-inspired-whatsapp-biographies/"><u>Infusing Your Charm – Astrology-Inspired WhatsApp Biographies</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-fb-shortcut-setup-guide/"><u>Mastering FB: Shortcut Setup Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-spontaneous-social-media-ousters/"><u>Navigating Spontaneous Social Media Ousters</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-2024-approved-best-tool-to-translate-youtube-video-to-arabic/"><u>New 2024 Approved Best Tool to Translate YouTube Video to Arabic</u></a></li>
-<li><a href="https://facebook.techidaily.com/saturation-point-is-facebook-there-now/"><u>Saturation Point – Is Facebook There Now?</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-stitching-piecing-together-profile-and-group-links/"><u>Social Stitching: Piecing Together Profile & Group Links</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-invisible-networker-eliminating-public-view-of-fb-stories/"><u>The Invisible Networker: Eliminating Public View of Fb Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-power-dynamics-between-metaai-and-bots/"><u>Unraveling the Power Dynamics Between MetaAI and Bots</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-convert-your-srt-files-for-free-with-top-websites-for-2024/"><u>[New] Convert Your SRT Files for FREE with Top Websites for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-secrets-to-writing-compelling-vlog-dialogues/"><u>[Updated] 2024 Approved Secrets to Writing Compelling Vlog Dialogues</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/capture-your-screen-like-a-pro-ultimate-techniques-for-taking-screenshots-on-pcs/"><u>Capture Your Screen Like a Pro: Ultimate Techniques for Taking Screenshots on PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-online-safety-with-facebooks-defensive-measures/"><u>Enhancing Online Safety with Facebook's Defensive Measures</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/expert-insights-on-the-samsung-galaxy-s10-an-exceptional-luxury-device/"><u>Expert Insights on the Samsung Galaxy S10: An Exceptional Luxury Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-a-new-transparency-center-detailing-its-policies/"><u>Facebook Launches a New Transparency Center Detailing Its Policies</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/facesave-videorecorder-pro-for-2024/"><u>FaceSave Videorecorder Pro for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/mac-users-path-to-professional-audio-with-audacity/"><u>Mac Users' Path to Professional Audio with Audacity</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-chat-frontier-facebook-enhances-sound-interaction/"><u>New Chat Frontier: Facebook Enhances Sound Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/post-fb-world-informations-pathway/"><u>Post-FB World: Information’s Pathway</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/proven-methods-for-snappy-signature-bg-removal/"><u>Proven Methods for Snappy Signature Bg Removal</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/synthetic-sentience-showdown-advanced-gemini-vs-gptplusplus/"><u>Synthetic Sentience Showdown: Advanced Gemini Vs GPT++</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-leaving-social-networking-behind/"><u>The Ultimate Guide to Leaving Social Networking Behind</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-access-strategies-for-facebookinsta-profile-management/"><u>Unraveling Access Strategies for Facebook/Insta Profile Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/wave-bye-bye-to-fb-on-android-devices-a-simple-guide/"><u>Wave Bye-Bye to FB on Android Devices - A Simple Guide</u></a></li>
 </ul></div>
 

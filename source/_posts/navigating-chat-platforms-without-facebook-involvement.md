@@ -1,7 +1,7 @@
 ---
 title: Navigating Chat Platforms without Facebook Involvement
-date: 2024-09-01T03:42:12.528Z
-updated: 2024-09-02T03:42:12.528Z
+date: 2024-11-21T08:27:52.768Z
+updated: 2024-11-26T21:20:36.911Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/9828bf793f93780e9596bdf90064698c2faf8ab44
  Can you use Messenger without Facebook? Yes, in a way: even if you have sworn off Facebook or want to quit social media altogether, it doesn't mean you can't take advantage of Facebook's Messenger service.
 
  The two are obviously linked. But if you follow these simple steps, you can use Facebook Messenger without having an active Facebook account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Use Facebook Messenger?
 
@@ -37,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/9828bf793f93780e9596bdf90064698c2faf8ab44
 
 ![download facebook messenger service app store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Messenger.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Facebook remains a social media giant, but its popularity is waning. Why? Some are turning to other means of contact. Younger generations are turning to Snapchat and TikTok to keep in touch. Some prefer just to talk to people face-to-face or use traditional SMS.
 
  Some refuse to use Facebook on principle, wary of any conglomerates. Others don't like social platform staples like political debates, pyramid schemes, and pointless status updates.
@@ -45,9 +53,6 @@ thumbnail: https://thmb.techidaily.com/9828bf793f93780e9596bdf90064698c2faf8ab44
 
  But even if you don't have Facebook, the company is still tracking you: shadow profiles detail the activities of those not using the app. Signing up to Messenger isn't going to make much of a difference, compared to the personal information users with Facebook accounts give up.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Download Messenger Without an Active Facebook Account
 
  Things used to be simpler. The process of using Facebook Messenger without having Facebook itself was easy: you could sign up using your phone number. Sorted. But Facebook quietly phased this option out in 2019, so now, you have to have a Facebook account. But don't panic: you can work around this.
@@ -58,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/9828bf793f93780e9596bdf90064698c2faf8ab44
 
 ![Facebook Messaging service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/The-Messenger-app-logo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Next, you need to know how to sign up for Messenger.
 
  When you open the app for the first time, it will encourage you to log into a Facebook account using either your email address or phone number. Instead, click on**Create New Account** . This will redirect you into creating a Facebook account.
@@ -66,14 +75,6 @@ Next, you need to know how to sign up for Messenger.
 
  Okay, so now you have a Facebook account. That's not ideal, but you can do something about that at least. So what next?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## How to Set Up Messenger Without an Active Facebook Account
 
  After you activate your account, there are still a few settings to finalize so that you can take full advantage of the app.
@@ -82,9 +83,6 @@ Next, you need to know how to sign up for Messenger.
 
  How can you add friends to Messenger? You can do this via your Facebook account if you want to, but you'll probably need to explain to them that this is temporary, because you're only doing it to interact with them on Messenger. If you want to connect solely on Messenger via your smartphone, you can click on your profile picture in the top-left of your interface. Then go to**Phone contacts > Upload contacts** . This will sync the app with your phone book.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Can You Have Messenger Without Using Facebook?
 
  You still have the main problem you wanted to avoid: you have a Facebook profile, simply to use Messenger. So what can you do?
@@ -93,16 +91,10 @@ Next, you need to know how to sign up for Messenger.
 
  However, you cannot delete Facebook without also deleting Messenger.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## What Happens to Messenger if You Delete or Deactivate Facebook?
 
 ![how to delete or deactivate account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Deactivate-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
  Don't make this decision lightly. Before you begin the process, you need to know what it means when you[deactivate your Facebook account](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
 
  In a nutshell, deactivating Facebook still allows you time to think about whether you want to permanently delete your account (as your data is still stored, ready for reactivation). It also means Messenger will continue to work. When you deactivate Facebook, you should be asked if you want to continue using Messenger.
@@ -115,6 +107,10 @@ Next, you need to know how to sign up for Messenger.
 
  You'll see your two options with warnings about what happens when you follow either method. Select**Deactivate account** so you can still use Messenger on your smartphone.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Can I Use Messenger Without Facebook on my PC?
 
  Sadly, you can only use Messenger via your browser if you've got an active Facebook account.
@@ -124,22 +120,20 @@ Next, you need to know how to sign up for Messenger.
  If you're concerned about too many people finding you,[you can toggle your privacy settings](https://www.makeuseof.com/how-to-manage-facebook-privacy-settings-for-specific-posts/) . And if you're troubled by the amount of data Facebook can find out about you, you really need to limit what goes onto your Facebook page, including who can actually post to it and tag you in status updates or photos.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## And That's How You Can Download Messenger Without Using Facebook
 
  The apps are intrinsically tied to each other, so you can't actually use Messenger without a Facebook account anymore. That doesn't mean the latter has to be**active** , though.
 
  Nonetheless, because this little loophole allows you to carry on using Messenger even after deactivating your main Facebook profile, it's not the end of the world.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -148,4 +142,23 @@ Next, you need to know how to sign up for Messenger.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/outube-and-dailymotion-unveiling-core-variations-for-2024/"><u>[New] YouTube & Dailymotion Unveiling Core Variations for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/27728578-best-free-youtube-ending-creators-top-6-picks/"><u>Best Free YouTube Ending Creators - Top 6 Picks!</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-change-instagramfacebook-support-for-meta-drops/"><u>Embracing Change: Instagram/Facebook Support for Meta Drops</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-conversation-flow-introducing-new-friends-to-messenger/"><u>Enhancing Conversation Flow: Introducing New Friends to Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-embraces-twitters-concept-for-better-sharing-awareness/"><u>Facebook Embraces Twitter's Concept for Better Sharing Awareness</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/fine-tuning-focus-the-ultimate-guide-to-zooming-in-on-videoleap-for-2024/"><u>Fine-Tuning Focus The Ultimate Guide to Zooming in on Videoleap for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-build-a-professional-facebook-profile-you-can-be-proud-of/"><u>How to Build a Professional Facebook Profile You Can Be Proud Of</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-smartphones-algorithm-targeting-you-fact-or-fluke/"><u>Is Your Smartphone's Algorithm Targeting You? Fact or Fluke?</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-personal-data-update-on-fb/"><u>Master the Art of Personal Data Update on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-of-non-disclosure-in-online-forums/"><u>Navigating the Nuances of Non-Disclosure in Online Forums</u></a></li>
+<li><a href="https://os-tips.techidaily.com/regain-your-tunes-effective-strategies-for-retrieving-accidentally-erased-songs/"><u>Regain Your Tunes: Effective Strategies for Retrieving Accidentally Erased Songs</u></a></li>
+<li><a href="https://techidaily.com/reviving-retro-windows-audio-a-step-by-step-guide-to-restoring-classic-system-sounds-in-windows-11/"><u>Reviving Retro Windows Audio: A Step-by-Step Guide to Restoring Classic System Sounds in Windows 11</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ltimate-guide-to-sound-shakers/"><u>The Ultimate Guide to Sound Shakers</u></a></li>
+<li><a href="https://article-files.techidaily.com/unveil-the-8-greatest-places-to-download-3d-text-psd-files/"><u>Unveil the 8 Greatest Places to Download 3D Text PSD Files</u></a></li>
+<li><a href="https://win-able.techidaily.com/wwe-2k22-pc-version-why-does-it-keep-crashing-solutions-inside/"><u>WWE 2K22 PC Version: Why Does It Keep Crashing? - Solutions Inside</u></a></li>
+</ul></div>
 

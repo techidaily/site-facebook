@@ -1,7 +1,7 @@
 ---
 title: "Navigating Facebook Settings: Change Your Year of Birth"
-date: 2024-09-01T03:48:01.944Z
-updated: 2024-09-02T03:48:01.944Z
+date: 2024-11-26T03:49:09.010Z
+updated: 2024-11-27T02:27:59.005Z
 tags:
   - facebook
 categories:
@@ -39,7 +39,15 @@ Follow the steps below to edit your birthday on the Facebook app.
 
 ![Edit basic info on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Edit-basic-info-on-facebook-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![edit basic info on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-basic-info-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![edit facebook birthdate](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-facebook-birthdate.jpg)
 
@@ -60,30 +68,33 @@ Here's how:
 
 ![facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-homepage.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * Click on**About** in the menu below your name and profile photo.
 
 ![facebook-profile-page-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-profile-page-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 * Select**Basic and Contact Info** in the menu on the left.
 
 ![contact-info-facebook-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/contact-info-facebook-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 * Scroll down to where you'll find your birth date and birth year.
 
 ![change facebook birthday](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Make your desired corrections, tick the age confirmation box, and click**Save** .
 
 ![change facebook birthday 2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday-2.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Request a Birthday Change to Facebook
 
@@ -93,37 +104,28 @@ Here's how:
 
 ![contact facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/contact-facebook.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 * Input your desired changes.
 * Select a reason for the change in the dropdown menu and click send.
 
 ![request birthday change](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/request-birthday-change.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Facebook will then correct the error in your birthdate as soon as your request is processed.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Get Your Birthday Wishes on the Right Day
 
  Follow the steps we've outlined above to edit your birthday on Facebook. That way, you no longer have to worry about getting birthday wishes on a day that isn't your birthday.
 
  One other importance of having accurate information, like birthdays, on your Facebook account is that they sometimes require government-issued IDs that show your actual birthday when retrieving an account. So if the birthdate on your ID and on the social media platform doesn't match up, you might lose your account permanently.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -132,4 +134,23 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/reakthrough-techniques-in-youtube-content-creation/"><u>[New] Breakthrough Techniques in YouTube Content Creation</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-building-visual-story-arcs/"><u>[New] Building Visual Story Arcs</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-step-into-high-dynamic-range-the-complete-hdr-conversion-guide/"><u>[New] Step Into High Dynamic Range The Complete HDR Conversion Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-youtubes-financial-frontier-achieving-video-monetization-mastery/"><u>[Updated] 2024 Approved YouTube's Financial Frontier Achieving Video Monetization Mastery</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-the-social-media-synergy-twitters-most-shared-tiktoks/"><u>[Updated] In 2024, The Social Media Synergy Twitter’s Most Shared TikToks</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/1728471349321-nas/"><u>如何定期將 NAS 系統資料移動到外部設備上 - 主要有兩種策略</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-oversight-board-delays-decision-on-trumps-suspension/"><u>Facebook's Oversight Board Delays Decision on Trump's Suspension</u></a></li>
+<li><a href="https://win-able.techidaily.com/forza-horizon-npc-engine-optimization-how-i-overcame-the-frame-rate-drop-issue/"><u>Forza Horizon nPC Engine Optimization: How I Overcame the Frame Rate Drop Issue!</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-find-links-for-facebook-profiles-pages-and-groups/"><u>How to Find Links for Facebook Profiles, Pages, and Groups</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-mastering-sharing-your-privacy-guarded-yt-clip-via-gmail-pro/"><u>In 2024, Mastering Sharing Your Privacy-Guarded YT Clip via Gmail Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/intrusion-warning-keep-an-eye-out-for-facebook-anomalies/"><u>Intrusion Warning: Keep an Eye Out for Facebook Anomalies</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-security-email-legitimate-at-facebookmailcom-ensuring-fb-safety/"><u>Is Security Email Legitimate at facebookmail.com, Ensuring FB Safety?</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-the-unchallenged-online-kingpin/"><u>Meta: The Unchallenged Online Kingpin</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-digital-life-dont-become-an-easy-target/"><u>Protect Your Digital Life: Don't Become an Easy Target</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-x3daudiodll-error-messages-and-getting-back-on-track/"><u>Troubleshooting 'x3daudio.dll' Error Messages and Getting Back on Track</u></a></li>
+<li><a href="https://facebook.techidaily.com/tv-and-gadgets-android-screensharing-explained/"><u>TV & Gadgets: Android Screensharing Explained</u></a></li>
+</ul></div>
 

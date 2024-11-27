@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2024-11-13T16:06:10.639Z
-updated: 2024-11-17T17:06:02.223Z
+date: 2024-11-26T08:08:22.942Z
+updated: 2024-11-27T15:08:40.695Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Scam Ads Are Rarely Removed Even After Being Reported
 
  The report by[Which?](https://press.which.co.uk/whichpressreleases/google-and-facebook-failing-to-remove-online-scam-adverts-reported-by-victims-which-finds/) laid out some statistics that show how little these companies are doing to remove scam adverts from their platforms.
@@ -39,10 +43,7 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -78,16 +79,16 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-professional-recordings-at-home-10-key-strategies-for-excellence/"><u>[New] 2024 Approved Professional Recordings at Home 10 Key Strategies for Excellence</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-navigating-video-editor-landscape-choose-filmora-or-democracy-creator-for-2024/"><u>[New] Navigating Video Editor Landscape Choose Filmora or Democracy Creator for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-unlocking-your-cameras-screen-recording-features-for-2024/"><u>[New] Unlocking Your Camera's Screen Recording Features for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-mastering-medias-closing-chapters/"><u>2024 Approved Mastering Media's Closing Chapters</u></a></li>
-<li><a href="https://facebook.techidaily.com/detailed-tutorial-enhancing-image-clarity-on-facebook/"><u>Detailed Tutorial: Enhancing Image Clarity on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-silicon-valley-giants-government-intervention/"><u>Dissecting Silicon Valley Giants: Government Intervention</u></a></li>
-<li><a href="https://facebook.techidaily.com/eclipsing-disclosure-facebooks-true-user-shift/"><u>Eclipsing Disclosure: Facebook's True User Shift</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-engagement-key-mobile-settings-in-fb-app/"><u>Elevate Engagement: Key Mobile Settings in FB App</u></a></li>
-<li><a href="https://facebook.techidaily.com/fixing-an-inaccessible-account-on-social-networking-site-fb/"><u>Fixing an Inaccessible Account on Social Networking Site - FB</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/huawei-users-rejoice-learn-the-easy-way-to-convert-and-watch-dvds-on-your-phonetablet-without-cost/"><u>Huawei Users Rejoice! Learn the Easy Way to Convert & Watch DVDs on Your Phone/Tablet Without Cost</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/revive-system-efficiency-upgrading-graphics-driver-on-windows/"><u>Revive System Efficiency: Upgrading Graphics Driver on Windows</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-top-picks-ultimate-tools-for-efficient-scheduling-screen-captures/"><u>[Updated] 2024 Approved Top Picks Ultimate Tools for Efficient Scheduling Screen Captures</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-tips-and-tricks-to-attract-product-sponsors-to-your-youtube-channel/"><u>[Updated] Tips and Tricks to Attract Product Sponsors to Your Youtube Channel</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-win-10-and-11-intruder-exceptions-error-message/"><u>Fixing Win 10 & 11 Intruder Exceptions Error Message</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-channels-make-it-easier-to-connect-in-facebook-groups/"><u>How Channels Make It Easier to Connect in Facebook Groups</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/how-to-undo-corrupted-mp4-videos-on-your-windows-1187-pc-with-three-effective-methods/"><u>How to Undo Corrupted MP4 Videos on Your Windows 11/8/7 PC with Three Effective Methods</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-a-disable-iphone-13-pro-using-find-my-iphone-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock a disable iPhone 13 Pro using find my iphone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/humor-hierarchy-the-20-most-popular-memes-for-2024/"><u>Humor Hierarchy The 20 Most Popular Memes for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovation-in-social-media-twittersphere-to-facebooks-knowledgeable-posting/"><u>Innovation in Social Media: Twittersphere to Facebook's Knowledgeable Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-full-whatsapp-account-ability-post-privacy-policy-refusal/"><u>Maintaining Full WhatsApp Account Ability Post-Privacy Policy Refusal</u></a></li>
+<li><a href="https://facebook.techidaily.com/techs-intrigue-is-your-device-secretly-curating-commerce/"><u>Tech's Intrigue: Is Your Device Secretly Curating Commerce?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-community-curation-employing-new-features-in-facebook-group-control/"><u>The Art of Community Curation: Employing New Features in Facebook Group Control</u></a></li>
 </ul></div>
 

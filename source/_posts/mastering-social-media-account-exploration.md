@@ -1,7 +1,7 @@
 ---
 title: Mastering Social Media Account Exploration
-date: 2024-11-13T17:14:52.500Z
-updated: 2024-11-17T17:01:24.237Z
+date: 2024-11-21T07:44:53.460Z
+updated: 2024-11-26T22:47:49.126Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View and Review Your Activity on Facebook
 
  You can[use Facebook's search function](https://www.makeuseof.com/tag/5-facebook-search-tips/) to find the settings you are looking for. For example, there are quite a few ways you can[find anything on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) , but to find everything you've ever liked on Facebook, all you need to do is to go to your**Activity Log** and this is how you do it:
@@ -34,9 +38,18 @@ thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6
 2. Select**Settings & Privacy** , then click**Activity Log** .  
 ![Screenshot of activity log Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/activity-log-view.jpg)
 3. You will be able to filter by**Date** or review**Activity Types.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 4. You will be able to review your**Posts** . Things like photos, videos, or status updates that you have shared.  
 ![Screenshot Facebook likes and reactions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/likes-and-reactions.jpg)
 5. You'll be able to review the**Activity You're Tagged** in.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. You'll also see your**Interactions** such as what you've liked, reacted to, or commented on.
 2. You'll be able to review**Groups** and**Events,** such as your group activity and the events you've created.
@@ -45,10 +58,7 @@ thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6
 5. You'll see your**Logged Actions and Other Activity** to review things like your devices, logins and videos you've watched.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Reviewing Your Activity on Facebook
@@ -70,22 +80,17 @@ thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/approved-crafting-youtube-masterpieces-with-powerful-hashtag-strategies/"><u>2024 Approved Crafting YouTube Masterpieces with Powerful Hashtag Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-comprerancial-guide-to-facebook-echo-show-vs-portal/"><u>A Comprerancial Guide to Facebook Echo Show vs Portal</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-guide-to-crafting-profile-pics-that-resonate/"><u>A Guide to Crafting Profile Pics That Resonate</u></a></li>
-<li><a href="https://facebook.techidaily.com/achieve-zero-notifications-from-fb/"><u>Achieve Zero Notifications From FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/advance-to-elite-level-with-metas-payment/"><u>Advance to Elite Level with Meta's Payment</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-suspicious-activity-on-your-computer-emails/"><u>Alert! Suspicious Activity on Your Computer, Emails</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-app-usage-patterns-a-predictor-of-consumer-desires/"><u>Are App Usage Patterns A Predictor of Consumer Desires?</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-meta-ais-feasibility-with-social-media-giants/"><u>Assessing Meta AI's Feasibility with Social Media Giants</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/budget-friendly-entertainment-discover-the-wide-selection-of-roku-express-reviews/"><u>Budget-Friendly Entertainment: Discover the Wide Selection of Roku Express Reviews</u></a></li>
-<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-xiaomi-redmi-note-12r-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Xiaomi Redmi Note 12R to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-time-honored-top-15-in-the-world-of-stop-motion/"><u>In 2024, Time-Honored Top 15 in the World of Stop-Motion</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-unlock-final-cut-pro-at-a-steal-explore-student-discounts/"><u>New In 2024, Unlock Final Cut Pro at a Steal Explore Student Discounts</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/quick-repair-techniques-for-a-malfunctioning-logitech-g933-microphone/"><u>Quick Repair Techniques for a Malfunctioning Logitech G933 Microphone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150975738-social-synergy-achieved-upload-and-share-fb-stories-notebooks-to-top-sites/"><u>Social Synergy Achieved: Upload & Share FB Stories, Notebooks to Top Sites.</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solving-issues-with-modern-warfare-3-mw3-troubleshooting-tips-for-game-startup-failures/"><u>Solving Issues with Modern Warfare 3 (MW3) - Troubleshooting Tips for Game Startup Failures</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-potential-how-chatgpt-can-transform-your-company-in-8-key-steps/"><u>Unlocking Potential: How ChatGPT Can Transform Your Company in 8 Key Steps</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-how-to-remove-audio-from-mov-files-on-windows-or-mac-for-2024/"><u>Updated How to Remove Audio From MOV Files on Windows or Mac for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-elevate-your-episodes-masterful-lighting-setups-explained/"><u>[New] Elevate Your Episodes Masterful Lighting Setups Explained</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-easy-effective-strategy-immediate-clearance-of-unwanted-youtube-comments/"><u>[New] In 2024, Easy, Effective Strategy Immediate Clearance of Unwanted YouTube Comments</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-maximizing-your-social-reach-top-30-out-of-the-box-tiktok-nicknames/"><u>[Updated] In 2024, Maximizing Your Social Reach Top 30 Out-of-the-Box TikTok Nicknames</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-picture-power-infusing-textual-elements-on-windows-and-mac-photo-canvas/"><u>[Updated] Picture Power Infusing Textual Elements on Windows & Mac Photo Canvas</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-nokia-c02-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Nokia C02 to Roku | Dr.fone</u></a></li>
+<li><a href="https://tools.techidaily.com/aiseesoft-total-video-converter-for-win/"><u>Aiseesoft Total Video Converter for Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-shatters-boundaries-in-online-shopping-fridays/"><u>Facebook Shatters Boundaries in Online Shopping Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-privacy-on-display-in-every-push-notification/"><u>Is Your Privacy on Display in Every Push Notification?</u></a></li>
+<li><a href="https://facebook.techidaily.com/national-survey-on-sns-more-harm-than-good/"><u>National Survey on SNS: More Harm Than Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/reasons-for-the-decline-social-vs-forum-dynamics/"><u>Reasons for the Decline: Social vs Forum Dynamics</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-pages-with-strategic-admins/"><u>Securing Your Pages with Strategic Admins</u></a></li>
+<li><a href="https://extra-information.techidaily.com/speech-to-script-top-apps-for-on-the-go-text-generation/"><u>Speech to Script Top Apps for On-the-Go Text Generation</u></a></li>
 </ul></div>
 

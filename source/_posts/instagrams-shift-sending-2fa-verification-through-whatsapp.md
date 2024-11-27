@@ -1,7 +1,7 @@
 ---
 title: "Instagram's Shift: Sending 2FA Verification Through WhatsApp"
-date: 2024-11-15T17:10:05.246Z
-updated: 2024-11-17T17:46:57.252Z
+date: 2024-11-19T22:16:57.886Z
+updated: 2024-11-27T06:08:07.008Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/021a636e7cb8e3ab80d8561e5ce2e4b597fd93ffb
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Instagram 2FA Codes via WhatsApp?
 
  While Instagram hasn't made the feature official as of yet, mobile developer and reverse engineer Alessandro Paluzzi was able to unearth evidence that Facebook is working on it.
@@ -29,10 +33,7 @@ thumbnail: https://thmb.techidaily.com/021a636e7cb8e3ab80d8561e5ce2e4b597fd93ffb
  He also shared some screenshots on Twitter showing the user interface around this new optional feature in Instagram's app for iOS and Android. Instagram users will be able to opt-in when---and if, for that matter---Facebook rolls out this option to everyone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Using WhatsApp for Instagram 2FA Codes
@@ -48,10 +49,7 @@ thumbnail: https://thmb.techidaily.com/021a636e7cb8e3ab80d8561e5ce2e4b597fd93ffb
  For example,[Instagram is testing uploading post photos and videos via a web browser](https://www.makeuseof.com/instagram-web-posting-test/) , as well as accessing creator tools and creating stories using the web version of the service.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Which Instagram 2FA Method Should I Use?
@@ -85,20 +83,24 @@ thumbnail: https://thmb.techidaily.com/021a636e7cb8e3ab80d8561e5ce2e4b597fd93ffb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-expert-techniques-for-enhanced-minecraft-zooms/"><u>[New] In 2024, Expert Techniques for Enhanced Minecraft Zooms</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-navigating-the-world-of-asmr-video-content/"><u>[Updated] 2024 Approved Navigating the World of ASMR Video Content</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-capturing-the-essence-cinematic-techniques-at-their-best/"><u>[Updated] Capturing the Essence Cinematic Techniques at Their Best</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-lush-looks-and-flawless-filters-building-your-vlog-empire-for-2024/"><u>[Updated] Lush Looks and Flawless Filters Building Your Vlog Empire for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/analysis-q2-sales-surge-oculus-quests-purchased-by-facebook-users/"><u>Analysis: Q2 Sales Surge - Oculus Quests Purchased by Facebook Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-internet-comments-eternal-markers/"><u>Are Internet Comments Eternal Markers?</u></a></li>
-<li><a href="https://facebook.techidaily.com/banishing-comments-maintaining-content-integrity-on-fb/"><u>Banishing Comments: Maintaining Content Integrity on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/beats-and-bonds-what-might-be-coming-from-fb-and-spotifys-boombox/"><u>Beats and Bonds: What Might Be Coming From FB and SPOTIFY’s Boombox?</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-vivo-y200-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Vivo Y200 Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-belief-fact-checking-facebooks-user-numbers/"><u>Beyond Belief: Fact-Checking Facebook's User Numbers</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-users-trust-fb-messenger-encryption/"><u>Can Users Trust FB Messenger Encryption?</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/create-captivating-yt-thumbnails-fast-in-2024/"><u>Create Captivating YT Thumbnails Fast, In 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-apple-iphone-15-pro-passcode-not-working-drfone-by-drfone-ios/"><u>How to Fix Apple iPhone 15 Pro Passcode not Working? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149786368-livestream-instagram-no-media-necessary/"><u>Livestream Instagram: No Media Necessary!</u></a></li>
-<li><a href="https://driver-download.techidaily.com/the-purpose-of-vessel-monitoring-systems-vms-and-automatic-identification-system-ais-explain-how-they-provide-real-time-data-on-the-vessels-identity-positio37/"><u>The Purpose of Vessel Monitoring Systems (VMS) and Automatic Identification System (AIS): Explain How They Provide Real-Time Data on the Vessel's Identity, Position, Speed, Course, and Navigational Status, Which Aids in Maritime Safety and Security.</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-a-beginners-pathway-to-innovative-snapchat-expressions/"><u>[Updated] 2024 Approved A Beginner's Pathway to Innovative Snapchat Expressions</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-top-10-fastest-flip-screen-games-on-desktops-and-phones/"><u>[Updated] 2024 Approved Top 10 Fastest Flip-Screen Games on Desktops & Phones</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-bringing-imagery-elements-into-harmony/"><u>[Updated] In 2024, Bringing Imagery Elements Into Harmony</u></a></li>
+<li><a href="https://article-posts.techidaily.com/ditch-the-viewfinder-top-6-non-periscope-video-platforms-for-2024/"><u>Ditch the Viewfinder Top 6 Non-Periscope Video Platforms for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-nubia-red-magic-8s-proplus-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Nubia Red Magic 8S Pro+ in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-tecno-spark-10-pro-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Tecno Spark 10 Pro with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-choices-at-the-click-of-a-button-for-fb-feeds/"><u>Making Choices at the Click of a Button for FB Feeds</u></a></li>
+<li><a href="https://techtrends.techidaily.com/microsoft-disruptions-highlight-critical-risks-in-government-use-of-major-technology-providers/"><u>Microsoft Disruptions Highlight Critical Risks in Government Use of Major Technology Providers</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/optimized-with-advanced-automated-tracking-the-essential-guide-to-cookiebot/"><u>Optimized with Advanced Automated Tracking: The Essential Guide to Cookiebot</u></a></li>
+<li><a href="https://facebook.techidaily.com/post-deletion-reality-check-on-fb/"><u>Post-Deletion Reality Check on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-during-outages-a-survival-guide/"><u>Social Networking During Outages: A Survival Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-scope-scouting-discovering-profile-and-group-links/"><u>Social Scope Scouting: Discovering Profile & Group Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-advent-of-advanced-moderation-systems-by-facebook/"><u>The Advent of Advanced Moderation Systems by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-vanishing-presence-in-messaging-apps/"><u>The Impact of Vanishing Presence in Messaging Apps</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/top-rated-pc-migration-software-for-dell-systems-on-windows-operating-systems-11-10-8-7/"><u>Top Rated PC Migration Software for Dell Systems on Windows Operating Systems (11, 10, 8, 7)</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-tutorial-for-implementing-hyper-v-in-windows-10-systems-efficiently/"><u>Ultimate Tutorial for Implementing Hyper-V in Windows 10 Systems Efficiently</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-consequences-leaving-a-facebook-community-properly/"><u>Understanding Consequences: Leaving a Facebook Community Properly</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-location-services-on-facebook-messenger/"><u>Unlock Location Services on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up/"><u>What Is Big Tech and Why Is the Government Trying to Break It Up?</u></a></li>
 </ul></div>
 

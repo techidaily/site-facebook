@@ -1,7 +1,7 @@
 ---
 title: Facing Accusations, FB Stands by Advertising Principles
-date: 2024-11-15T17:48:30.147Z
-updated: 2024-11-17T17:10:27.626Z
+date: 2024-11-21T05:34:36.982Z
+updated: 2024-11-26T19:52:26.873Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Signal Sees Its Facebook Ad Account Disabled
 
  Signal is taking an issue with tremendous data collection happening behind the scenes on Facebook, Instagram, and WhatsApp designed to "sell visibility into people and their lives."
@@ -33,10 +37,7 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
  In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Responds to Signal's Move
@@ -52,10 +53,7 @@ Facebook responded with the following statement to the media:
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Signal's Ads You’ll Never See on Instagram
@@ -67,10 +65,7 @@ Facebook responded with the following statement to the media:
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is This Nothing But a PR Stunt on Signal's Part?
@@ -98,24 +93,17 @@ Facebook responded with the following statement to the media:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-yearly-highlight-10-best-free-lut-download-links/"><u>[New] 2024 Approved Yearly Highlight - 10 Best FREE LUT Download Links</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-crafting-a-united-front-brand-integrations-on-youtube-platform/"><u>[Updated] 2024 Approved Crafting a United Front Brand Integrations on YouTube Platform</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-perfecting-profile-playlists-on-facebook-through-mobile/"><u>[Updated] 2024 Approved Perfecting Profile Playlists on Facebook Through Mobile</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-premier-mobile-and-desktop-mkv-software/"><u>[Updated] 2024 Approved Premier Mobile & Desktop MKV Software</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-whatsapp-audio-messages-decoded/"><u>[Updated] 2024 Approved WhatsApp Audio Messages Decoded</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-streamlined-methods-for-iphone-screen-capture/"><u>2024 Approved Streamlined Methods for iPhone Screen Capture</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/essential-tips-for-buying-a-home-entertainment-system-focusing-on-tvs/"><u>Essential Tips for Buying a Home Entertainment System, Focusing on TVs</u></a></li>
-<li><a href="https://facebook.techidaily.com/facial-id-shutdown-exploring-the-meta-facebook-breakup/"><u>Facial ID Shutdown? Exploring the Meta-Facebook Breakup</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-find-8-digital-hubs-offering-free-green-screen-elements-and-scenes/"><u>In 2024, Find 8 Digital Hubs Offering Free Green-Screen Elements & Scenes</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-visual-tech-top-7-screen-options-for-image-experts/"><u>In 2024, Innovative Visual Tech - Top 7 Screen Options for Image Experts</u></a></li>
-<li><a href="https://facebook.techidaily.com/influence-misleads-on-covid-19-truths-and-fears/"><u>Influence Misleads on Covid-19 Truths and Fears</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-the-same-dont-update-how-to-preserve-your-whatsapp-usage/"><u>Keep the Same, Don’t Update: How to Preserve Your WhatsApp Usage</u></a></li>
-<li><a href="https://facebook.techidaily.com/leadership-elevation-assigning-a-prestigious-admin-role-on-fb/"><u>Leadership Elevation: Assigning a Prestigious Admin Role on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/personalizing-your-online-engagement-less-more-quality-time/"><u>Personalizing Your Online Engagement: Less, More Quality Time</u></a></li>
-<li><a href="https://facebook.techidaily.com/reduce-exposure-to-facebook-reels/"><u>Reduce Exposure to Facebook Reels</u></a></li>
-<li><a href="https://facebook.techidaily.com/stop-fb-alerts-and-messages-a-compreenas-guide/"><u>Stop Fb Alerts & Messages: A Compreenas Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-to-shield-from-facebook-phishing-attempts/"><u>Strategies to Shield From Facebook Phishing Attempts</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-creative-writing-how-chatgpt-enhances-novel-composition-in-9-ways/"><u>Unlocking Creative Writing: How ChatGPT Enhances Novel Composition in 9 Ways</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-to-weigh-up-before-permanently-saying-goodbye-online/"><u>What to Weigh Up Before Permanently Saying Goodbye Online</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-setting-the-price-for-higher-youtube-engagement/"><u>[New] Setting the Price for Higher YouTube Engagement</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-syncing-sound-with-visuals-on-facebook-essential-guide/"><u>[Updated] 2024 Approved Syncing Sound with Visuals on Facebook - Essential Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-smart-pick-android-apps-for-large-video-meetings-for-2024/"><u>[Updated] Smart Pick Android Apps for Large Video Meetings for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/dramatic-lighting-in-hdr-portraits-techniques-and-tips-for-2024/"><u>Dramatic Lighting in HDR Portraits Techniques and Tips for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-sharing-experience-move-fb-content-to-top-3-apps-with-ease/"><u>Enhancing Sharing Experience: Move Fb Content to Top 3 Apps with Ease</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-lava-blaze-curve-5g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Lava Blaze Curve 5G Data? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-the-budget-friendly-mobvoi-ticwatch-e2-worth-your-money-a-comprehensive-review/"><u>Is the Budget-Friendly Mobvoi TicWatch E2 Worth Your Money? A Comprehensive Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/proper-method-to-disconnect-spotify-on-facebook/"><u>Proper Method to Disconnect Spotify on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-facebook-hoaxes-detect-14-standard-deceptions/"><u>Stop Facebook Hoaxes: Detect 14 Standard Deceptions</u></a></li>
+<li><a href="https://windows11.techidaily.com/unraveling-windows-network-confusion-code-0x800704b3/"><u>Unraveling Windows' Network Confusion - Code: 0X800704B3</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-did-sheryl-sandberg-do-at-facebook/"><u>What Did Sheryl Sandberg Do at Facebook?</u></a></li>
 </ul></div>
 

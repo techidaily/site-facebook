@@ -1,7 +1,7 @@
 ---
 title: Social Networking Meets Software Innovation via Facebook and Rust
-date: 2024-11-14T16:25:19.350Z
-updated: 2024-11-17T16:30:29.820Z
+date: 2024-11-26T10:25:53.972Z
+updated: 2024-11-26T19:56:18.225Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Beloved Programming Language
 
  In a[statement](https://developers.facebook.com/blog/post/2021/04/29/facebook-joins-rust-foundation/) , Ashley Williams, Interim Executive Director of the Rust Foundation, said that:
@@ -35,10 +39,7 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -60,14 +61,17 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-forging-a-massive-online-following-on-facebook/"><u>[New] 2024 Approved Forging a Massive Online Following on Facebook</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/rom-dull-scenes-to-dynamic-sports-highlights/"><u>[New] From Dull Scenes to Dynamic Sports Highlights</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-depth-guide-to-extracting-vimeo-media-for-2024/"><u>[Updated] In-Depth Guide to Extracting Vimeo Media for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-duplicitous-online-barter-schemes-on-facebook/"><u>Deciphering Duplicitous Online Barter Schemes on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-fbcta-implications-for-internet-use/"><u>Deciphering FBCTA: Implications for Internet Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-revenue-plan-with-song-royalties/"><u>Decoding Facebook's Revenue Plan with Song Royalties</u></a></li>
-<li><a href="https://facebook.techidaily.com/driving-results-with-key-business-meta-tools-and-strategies/"><u>Driving Results with Key Business Meta Tools and Strategies</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fixing-yellow-tint-reviving-true-colors-on-laptops/"><u>Fixing Yellow Tint: Reviving True Colors on Laptops</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-ranking-the-top-hand-drawn-whiteboard-animation-software-for-2024/"><u>Updated Ranking the Top Hand-Drawn Whiteboard Animation Software for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-unleash-creativity-learning-sony-vegas-techniques-for-youtube-video-editing/"><u>[New] 2024 Approved Unleash Creativity Learning Sony Vegas Techniques for YouTube Video Editing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-explore-and-capture-mountains-with-best-cameras/"><u>[New] In 2024, Explore and Capture Mountains with Best Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/english-soccer-teams-are-boycotting-social-media-over-online-abuse/"><u>English Soccer Teams Are Boycotting Social Media Over Online Abuse</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-digital-representation-now-with-oculus/"><u>Enhanced Digital Representation Now With Oculus</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonizing-social-media-and-playlists-facebooks-boombox-revelation/"><u>Harmonizing Social Media and Playlists: Facebook's Boombox Revelation</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-your-apple-iphone-13-pro-passcode-4-easy-methods-with-or-without-itunes-by-drfone-ios/"><u>In 2024, How to Unlock Your Apple iPhone 13 Pro Passcode 4 Easy Methods (With or Without iTunes)</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-16-from-oneplus-nord-n30-5g-to-other-android-devices-data-transfer-apps-to-switch-phone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 16 from OnePlus Nord N30 5G to Other Android Devices Data Transfer Apps to Switch Phone Easily | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/revolutionize-notes-with-mematic-software-for-2024/"><u>Revolutionize Notes with Mematic Software for 2024</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/solving-your-computers-endless-cycle-issues-effective-solutions-for-windows-10-81-and-8/"><u>Solving Your Computer's Endless Cycle Issues: Effective Solutions for Windows 10, 8.1, and 8</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-tutorial-changing-your-mobile-devices-apparent-gps-position/"><u>Step-by-Step Tutorial: Changing Your Mobile Device's Apparent GPS Position</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-assessment-pros-and-cons-of-facebook-events/"><u>The Impact Assessment: Pros & Cons of Facebook Events</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-account-defenses-implement-2fa-for-email-services-like-googles-gmail-and-microsofts-outlook/"><u>Unlock Account Defenses: Implement 2FA for Email Services Like Google's Gmail and Microsoft's Outlook</u></a></li>
 </ul></div>
 

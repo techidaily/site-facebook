@@ -1,7 +1,7 @@
 ---
 title: The New Era of Community Management Unveiled by Facebook
-date: 2024-11-10T16:53:37.023Z
-updated: 2024-11-17T17:56:02.233Z
+date: 2024-11-24T10:37:19.043Z
+updated: 2024-11-27T14:01:08.090Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Launches New Admin Tools to Moderate Groups
 
  In a[blog post](https://www.facebook.com/community/whats-new/new-tools-features-nurture-community/) , Facebook announced that it's launching some new admin tools to make group moderation easier for admins. These new tools include a new home for admin tools and settings, an AI-powered comment moderator, and more.
@@ -33,10 +37,7 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -48,16 +49,7 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -67,10 +59,7 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -94,18 +83,21 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-voice-of-volume-6-free-apps-for-channeling-youtube-music-onto-android-devices/"><u>[New] In 2024, Voice of Volume 6 Free Apps for Channeling YouTube Music Onto Android Devices</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-tecno-phantom-v-fold-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Tecno Phantom V Fold Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-social-media-etiquette-follow-vs-unfollow-on-facebook/"><u>Deciphering Social Media Etiquette: Follow Vs. Unfollow on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dazzle-transformative-techniques-for-images/"><u>Digital Dazzle: Transformative Techniques for Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-on-the-go-10-lightweight-android-essentials/"><u>Efficient on the Go: 10 Lightweight Android Essentials</u></a></li>
-<li><a href="https://facebook.techidaily.com/effortless-repair-stellars-quicktime-mov-fixes/"><u>Effortless Repair: Stellar’s QuickTime MOV Fixes</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Vivo X Flip | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/install-the-official-canon-pixma-mg3620-driver-for-your-windows-device/"><u>Install the Official Canon PIXMA MG3620 Driver for Your Windows Device</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/navigating-change-the-impact-of-smart-lens-technology-on-biking-displays-cyclistinnovations/"><u>Navigating Change: The Impact of Smart Lens Technology on Biking Displays | CyclistInnovations</u></a></li>
-<li><a href="https://extra-information.techidaily.com/perfecting-visual-output-incorporating-luts-into-your-ae-projects/"><u>Perfecting Visual Output Incorporating LUTs Into Your AE Projects</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tips-and-tricks-correcting-malfunctioned-read-aloud-feature-in-office-suite/"><u>Tips & Tricks: Correcting Malfunctioned Read Aloud Feature in Office Suite</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-huawei-nova-y91-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Huawei Nova Y91 without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-this-top-music-reaction-videos-of-2023/"><u>Watch This! Top Music Reaction Videos of 2023</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-10-steps-to-perfect-youtube-reactions-a-trio-guide-for-2024/"><u>[New] 10 Steps to Perfect YouTube Reactions – A Trio Guide for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-easy-steps-for-sharing-your-xbox-playtime-for-2024/"><u>[New] Easy Steps for Sharing Your Xbox Playtime for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-avoid-ad-dollars-boost-your-view-count-for-free/"><u>[New] In 2024, Avoid Ad Dollars – Boost Your View Count for Free</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-digital-literacy-with-facebooks-transparency-resources/"><u>Enhancing Digital Literacy with Facebook’s Transparency Resources</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/expert-advice-on-repairing-your-alienware-command-center-problems/"><u>Expert Advice on Repairing Your Alienware Command Center Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-false-bargains-on-facebook-marketplace-how-to-dodge-them/"><u>Exposing False Bargains on Facebook Marketplace – How to Dodge Them</u></a></li>
+<li><a href="https://techtrends.techidaily.com/guide-to-simultanenously-using-multiple-bluetooth-speakers-via-one-device/"><u>Guide to Simultanenously Using Multiple Bluetooth Speakers via One Device</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-watch-avchd-mts-video-on-galaxy-f34-5g-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to watch AVCHD MTS video on Galaxy F34 5G?</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-for-initiating-interactive-online-gatherings-fb/"><u>Instructions for Initiating Interactive Online Gatherings (FB)</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/narrative-basics-explanation/"><u>Narrative Basics Explanation</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-new-age-facebooks-transition-to-meta/"><u>Navigating the New Age: Facebook's Transition to Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-needs-a-pause-facebook-urges-teens-on-insta-hiatus/"><u>Networking Needs a Pause: Facebook Urges Teens on Insta Hiatus</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/relying-on-ais-pros-and-cons-of-chatgptbard-in-money-matters/"><u>Relying on AIs: Pros & Cons of ChatGPT/Bard in Money Matters</u></a></li>
+<li><a href="https://facebook.techidaily.com/reveal-your-location-a-step-by-step-guide-for-fb-users/"><u>Reveal Your Location: A Step by Step Guide for FB Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-meta-verification-value-for-investment/"><u>Understanding Meta Verification: Value for Investment?</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-s-most-popular-animation-software-for-schools-and-universities/"><u>Updated In 2024, S Most Popular Animation Software for Schools and Universities</u></a></li>
 </ul></div>
 

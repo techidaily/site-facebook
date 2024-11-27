@@ -1,7 +1,7 @@
 ---
 title: "Industry’s Controversial Stars: A Focus on the Top 6"
-date: 2024-09-01T03:44:18.116Z
-updated: 2024-09-02T03:44:18.116Z
+date: 2024-11-25T15:18:59.743Z
+updated: 2024-11-27T00:54:11.469Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,17 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 
  Read on to find out the most polarizing tech tycoons we can't get enough of.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Jack Dorsey
 
 ![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Best known for:** Co-founder and CEO of Twitter
 
@@ -49,13 +57,14 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 
  The disgraced ex-CEO might not be the tech genius she wanted to portray herself as. However, her ability to perpetuate a decade-long fraud and raise more than $700 million from investors and venture capitalists has elevated her to the top of the list of master con artists, subject to countless documentaries and articles in awe and horror of her tale.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Julian Assange
 
 ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Best known for:** Founder of WikiLeaks
 
  Julian Assange shot to notoriety in 2010 after publishing a number of classified documents on WikiLeaks. The most damaging leaks involved a series of classified US war logs and diplomatic cables, which prompted high-profile US politicians to label Assange a "terrorist."
@@ -74,9 +83,6 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 
 ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 **Best known for:** CEO of YouTube
 
  Relatively foreign to controversy, Wojcicki's first fall out with the YouTube community was when she upheld the decision not to kick YouTube personality Logan Paul from the platform. This was after he posted a video of a person who had committed suicide.
@@ -87,6 +93,10 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 
 ![Free Expression Awards YouTube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/free-expression-youtube-awards.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
 ## 5\. Bill Gates
@@ -94,9 +104,9 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 ![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Senator Chris Coons meeting with Bill Gates at the Russell Senate Office Building on November 8, 2019.
 
 **Best known for:** Co-founder of Microsoft
@@ -109,17 +119,10 @@ thumbnail: https://thmb.techidaily.com/bdc516c407f1c047ce69fce10934901af5b77e563
 
  Contrary to the many conspiracy theories that paint Gates as a supervillain, his foundation (the Bill & Melinda Gates Foundation) promotes philanthropy to combat disease and poverty worldwide.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## 6\. Mark Zuckerberg
 
 ![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 **Best known for:** Co-founder of Facebook
 
  Zuckerberg, along with his Facebook co-founders, pioneered internet social networking as it is known today. Connecting with friends and family from any corner of the globe has never been simpler using Facebook.
@@ -138,9 +141,6 @@ The ultimate burning program for all your needs!</a>
 
  When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to[delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Least Polarizing Tech Figure?
 
  It is not easy being a public figure. Deciding to do something, or a lack of action, will attract both praise and criticism.
@@ -149,14 +149,11 @@ The ultimate burning program for all your needs!</a>
 
  Image Credit: Image Credit: Anthony Quintano/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Mark%5FZuckerberg%5FF8%5F2018%5FKeynote%5F%2841118893354%29.jpg)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -165,4 +162,26 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-optimize-content-delivery-on-instagram-with-these-top-8-tools-for-2024/"><u>[New] Optimize Content Delivery on Instagram with These Top 8 Tools for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-top-screen-capturing-solutions-by-tunefab-experts/"><u>[Updated] 2024 Approved Top Screen Capturing Solutions by Tunefab Experts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unleash-the-power-of-digital-advertising-with-our-comprehensive-set-of-50-free-youtube-banners/"><u>[Updated] 2024 Approved Unleash the Power of Digital Advertising with Our Comprehensive Set of 50 FREE YouTube Banners</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-realme-gt-3-device-sim-by-drfone-android/"><u>Easily Unlock Your Realme GT 3 Device SIM</u></a></li>
+<li><a href="https://facebook.techidaily.com/overlooked-high-impact-tech-developments-top-4-hidden-gems/"><u>Overlooked High-Impact Tech Developments - Top 4 Hidden Gems</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/perfect-virtual-presentations-using-video-filters-on-zoom-for-2024/"><u>Perfect Virtual Presentations Using Video Filters on Zoom for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-fb-login-in-the-absence-of-code/"><u>Reclaiming FB Login in the Absence of Code</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/refurbished-apple-iphone-12-everything-you-need-to-know-drfone-by-drfone-transfer-from-ios/"><u>Refurbished Apple iPhone 12 Everything You Need to Know | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-teen-online-interactions-on-the-social-network/"><u>Safeguarding Teen Online Interactions on the Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-fb-watchfulness-master-the-off-facebook-activity-strategy/"><u>Stop FB Watchfulness: Master the Off-Facebook Activity Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secret-language-of-facebooks-iconography-unveiled/"><u>The Secret Language of Facebook’s Iconography Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-tutorial-for-private-photo-sharing-on-fb/"><u>The Ultimate Tutorial for Private Photo Sharing on FB</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/transforming-film-with-vr-experience-for-2024/"><u>Transforming Film with VR Experience for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-online-livestream-technology-for-2024/"><u>Ultimate Online Livestream Technology for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-facebooks-operations-via-transparency-center-launch/"><u>Unmasking Facebook's Operations via Transparency Center Launch</u></a></li>
+<li><a href="https://win-able.techidaily.com/update-clears-memory-shortage-bug-in-god-of-war-everything-you-need-to-know/"><u>Update Clears Memory Shortage Bug in God of War - Everything You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/visualizing-conversations-a-guide-to-using-fb-images-in-whatsapp/"><u>Visualizing Conversations: A Guide to Using FB Images in WhatsApp</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-announces-cross-device-whatsapp-functionality/"><u>Zuckerberg Announces Cross-Device WhatsApp Functionality</u></a></li>
+</ul></div>
 

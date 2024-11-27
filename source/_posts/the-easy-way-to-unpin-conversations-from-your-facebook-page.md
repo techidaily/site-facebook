@@ -1,7 +1,7 @@
 ---
 title: The Easy Way to Unpin Conversations From Your Facebook Page
-date: 2024-09-01T03:46:11.595Z
-updated: 2024-09-02T03:46:11.595Z
+date: 2024-11-23T22:06:42.375Z
+updated: 2024-11-26T18:21:23.805Z
 tags:
   - facebook
 categories:
@@ -23,30 +23,29 @@ thumbnail: https://thmb.techidaily.com/26e5a5bed3537105229e89d2df536f43cfadace1d
 
  When you remove such comments, Facebook does not send notifications to the person who commented. However, they may notice their comments have been deleted when viewing the post.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete a Comment on Your Facebook Post
 
  Deleting an offensive comment is simply a few clicks away. Just follow the steps below on how you can delete them, whether you're accessing Facebook on a PC or through the mobile app.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Delete a Comment When Accessing Facebook From a PC
 
 Here's how to remove comments using a PC:
 
 ![screenshot showing how to delete comment on facebook desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-delete-comment-on-facebook-desktop-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. Navigate to the upsetting comment, and hover your cursor over the comment. You'll see three dots next to the comment.
 2. Click on the**three dots** to reveal comment management options.
 3. With a click of the cursor on**Delete** , a dialogue box opens. It reads**Are you sure you want to delete this comment?** with an option to either cancel or delete.
 4. Click on**Delete,** and the comment is deleted.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ### How to Delete a Comment on a Mobile App
 
  The process slightly differs on a Facebook mobile app. Follow these steps to delete a comment under your post directly from your mobile app.
@@ -54,13 +53,15 @@ Here's how to remove comments using a PC:
 ![screenshot showing how to delete comment on facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-delete-comment-on-facebook-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot showing how to confirm comment deletion on facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-confirm-comment-deletion-on-facebook-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
 1. Identify the negative comment, then long press on it until a menu pops up.
@@ -70,22 +71,20 @@ Close
  Related:[What Happens to Your Data if Facebook Ever Dies?](https://www.makeuseof.com/what-happens-to-facebook-data-if-it-dies/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Get Rid of Negative Comments on Your Posts
 
  You can't always control what comments people drop on your Facebook posts. However, Facebook empowers you to delete the comments you find offensive.
 
  If you have any such comments on your Facebook posts, follow the steps we've shared above to remove the comment.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -94,4 +93,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-a-step-by-step-on-downloading-instagrams-viral-content/"><u>[New] 2024 Approved A Step-by-Step on Downloading Instagram's Viral Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rafting-engaging-youtube-thumbnails-a-step-by-step-guide/"><u>[New] Crafting Engaging YouTube Thumbnails A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-revolutionize-zoom-videos-with-key-conversion-methods/"><u>2024 Approved Revolutionize Zoom Videos with Key Conversion Methods</u></a></li>
+<li><a href="https://win-updates.techidaily.com/effectiveness-of-factory-restores-does-it-wipe-out-android-trojans-worms-and-spyware-as-per-malwarefox-analysis/"><u>Effectiveness of Factory Restores: Does It Wipe Out Android Trojans, Worms, and Spyware as per MalwareFox Analysis?</u></a></li>
+<li><a href="https://facebook.techidaily.com/elusive-endorsements-on-social-media/"><u>Elusive Endorsements on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-vk-a-deep-dive-into-russias-internet-hub/"><u>Inside VK: A Deep Dive Into Russia's Internet Hub</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mobile-economy-from-phones-to-ransomware-solutions/"><u>Mobile Economy: From Phones to Ransomware Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-your-social-media-network-structure/"><u>Simplifying Your Social Media Network Structure</u></a></li>
+<li><a href="https://games-able.techidaily.com/synchronizing-files-in-steam-without-conflict/"><u>Synchronizing Files in Steam without Conflict</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-never-ending-story-of-facebook-why-its-not-over/"><u>The Never-Ending Story of Facebook: Why It's Not Over</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-steps-for-silent-facebook-video-problems-on-your-computer/"><u>Troubleshooting Steps for Silent Facebook Video Problems on Your Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-growth-4-innovative-business-meta-tools/"><u>Unlock Growth: 4 Innovative Business Meta Tools</u></a></li>
+</ul></div>
 

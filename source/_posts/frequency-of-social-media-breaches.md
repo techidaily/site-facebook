@@ -1,7 +1,7 @@
 ---
 title: Frequency of Social Media Breaches
-date: 2024-11-14T17:50:43.226Z
-updated: 2024-11-17T16:58:22.181Z
+date: 2024-11-25T18:08:20.286Z
+updated: 2024-11-27T12:49:03.490Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Common Are Social Media Hacks?
 
 ![black iPhone with purple wallpaper and social media apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/iphone-with-purple-walpaper-and-apps.jpg)
@@ -43,22 +47,12 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
  However, differences existed depending on a person’s country of residence. Individuals in Russia, Israel, Malaysia, and Turkey viewed account hacks as more likely than not.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Increases the Chances of a Social Media Hack?
 
 ![Woman in bedroom on bed lit by her laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-in-bed-in-dark-room-lit-by-laptop.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Certain things can make you more or less likely to experience a social media account hack.
 
@@ -71,10 +65,7 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
  Several months earlier, information from a massive Facebook data leak in 2019 became public. That incident affected more than 530 million users worldwide, but Facebook representatives opted not to notify them individually.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Risks Associated With a Social Media Hack?
@@ -92,10 +83,7 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
  Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Handle a Social Media Hack
@@ -109,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
  Next, go through any necessary account recovery steps set by the social media site. For example, Twitter’s help documentation for such situations recommends requesting a password reset as your first strategy. Getting additional help requires submitting a support ticket containing your username and the date you last had access.
 
  And review any options for[strengthening your social media security](https://www.makeuseof.com/how-to-hack-facebook/) . Facebook’s Security Checkup walks you through suggested improvements to make. It’s a good starting point if you use that site.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## You Can Avoid a Social Media Hack
 
@@ -129,22 +121,18 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/300-deal-on-rifts-data-recovery-post-facebook-hack/"><u>$300 Deal on Rifts: Data Recovery Post-Facebook Hack</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-forum-messages-lasting-impressions/"><u>Are Forum Messages Lasting Impressions?</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-you-ready-for-meta-ais-social-network-ambition/"><u>Are You Ready for Meta AI’s Social Network Ambition?</u></a></li>
-<li><a href="https://facebook.techidaily.com/battling-fake-news-facebook-introduces-stricter-rules/"><u>Battling Fake News: Facebook Introduces Stricter Rules</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-scenes-unpacking-metamate-meanings/"><u>Behind-The-Scenes: Unpacking 'Metamate' Meanings</u></a></li>
-<li><a href="https://facebook.techidaily.com/boost-productivity-and-peace-using-facebooks-reminder-feature/"><u>Boost Productivity and Peace Using Facebook’s Reminder Feature</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/bose-quietcontrol-30-review/"><u>Bose Quietcontrol 30 Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/community-crescendo-identifying-this-years-most-engaging-online-spaces/"><u>Community Crescendo: Identifying This Year's Most Engaging Online Spaces</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/earn-big-fast-the-ultimate-guide-to-tiktoks-wealth-generation-8-strategies-for-2024/"><u>Earn Big, Fast The Ultimate Guide to TikTok's Wealth Generation (8 Strategies) for 2024</u></a></li>
-<li><a href="https://techidaily.com/hard-resetting-an-oppo-reno-11-5g-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Oppo Reno 11 5G Device Made Easy | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Oppo A18 | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-hurry-hoarding-images-and-intonations/"><u>In 2024, Hurry Hoarding Images & Intonations</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149918094-protect-your-conversations-with-facebooks-newly-secured-dms-and-calls/"><u>Protect Your Conversations with Facebook’s Newly Secured DMs & Calls.</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-messages-from-nokia-xr21-by-fonelab-android-recover-messages/"><u>The way to get back lost messages from Nokia XR21</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/1722025299949-troubleshooting-the-most-widespread-chatgpt-glitches-easy-fixes-inside/"><u>Troubleshooting the Most Widespread ChatGPT Glitches – Easy Fixes Inside!</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-time-efficient-tips-to-purify-audio-from-static-interference/"><u>Updated 2024 Approved Time-Efficient Tips to Purify Audio From Static Interference</u></a></li>
-<li><a href="https://sound-optimizing.techidaily.com/updated-streamlining-silence-simplified-guide-to-extracting-background-noise-from-music-tracks-using-audacity/"><u>Updated Streamlining Silence Simplified Guide to Extracting Background Noise From Music Tracks Using Audacity</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-discovering-the-garmin-ultra-30-an-insightful-review/"><u>[New] Discovering the Garmin Ultra 30 An Insightful Review</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-learn-to-make-a-flawless-square-video-in-imovie-for-instagram-for-2024/"><u>[Updated] Learn to Make a Flawless Square Video in iMovie for Instagram for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-methods-for-converting-twitter-videos-into-mp3-format/"><u>2024 Approved Methods for Converting Twitter Videos Into MP3 Format</u></a></li>
+<li><a href="https://facebook.techidaily.com/examine-the-risks-before-you-opt-into-facebooks-recorded-visits/"><u>Examine the Risks Before You Opt Into Facebook's Recorded Visits</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-influential-marketer-to-step-down/"><u>Facebook's Influential Marketer to Step Down</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-asus-rog-phone-8-pro-by-drfone-android/"><u>In 2024, How to Bypass FRP from Asus ROG Phone 8 Pro?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-step-by-step-how-to-master-these-7-expert-graders/"><u>In 2024, Step-by-Step How to Master These 7 Expert Graders</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-googles-pixel-4a-5g-unbeatable-performance-meets-affordability/"><u>In-Depth Review of Google's Pixel 4a 5G: Unbeatable Performance Meets Affordability</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-framework-social-norms-in-friend-requesting/"><u>Invisible Framework: Social Norms in Friend Requesting</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/journey-to-the-ultimate-vr-cycling-spaces-for-2024/"><u>Journey to the Ultimate VR Cycling Spaces for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/pause-triggered-by-exofficio-board-on-suspension-case/"><u>Pause Triggered by Exofficio Board on Suspension Case</u></a></li>
+<li><a href="https://facebook.techidaily.com/silence-the-social-media-squabbles/"><u>Silence the Social Media Squabbles</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-true-story-behind-your-screen-time-dispelling-social-media-fabrications/"><u>The True Story Behind Your Screen Time: Dispelling Social Media Fabrications</u></a></li>
 </ul></div>
 

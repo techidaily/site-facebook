@@ -1,7 +1,7 @@
 ---
 title: Securely Engage with Friends on Facebook, Here’s How
-date: 2024-11-16T17:31:51.834Z
-updated: 2024-11-17T17:33:58.385Z
+date: 2024-11-19T23:46:02.881Z
+updated: 2024-11-27T07:12:51.457Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 ![facebook login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-login-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: Poring Studio/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-20-june-2019-facebook-1433132015)
 
 * Under the[Security and login](https://www.facebook.com/settings?tab=security) tab, check the**Where you're logged in** section to identify which devices you have logged into Facebook. If you see a browser or device you don't recognize, select the**three dots** next to it and choose**Log out** . If you notice anything suspicious, select**Not you?** .
@@ -43,13 +47,6 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 ## 2. Privacy
 
 ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
 
@@ -75,15 +72,16 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4. Public Posts
 
 ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
 
@@ -92,28 +90,12 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * Some information on Facebook is always public, like your cover photos, profile pictures, and featured photos. You can manage who can like or comment on these, including public, friends of friends, or friends only.
 * If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5. Blocking
 
 ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Paparacy/[Shutterstock](https://www.shutterstock.com/image-photo/moscow-russia-april-19-2018-logo-1071882503)
@@ -126,6 +108,10 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 ## 6\. Quick Tips
 
 ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
 
@@ -152,22 +138,19 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-androids-latest-advancements-for-immersive-video-viewing/"><u>[New] 2024 Approved Android's Latest Advancements for Immersive Video Viewing</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-secure-hassle-free-passport-images-top-10-choices/"><u>[Updated] 2024 Approved Secure, Hassle-Free Passport Images - Top 10 Choices</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-earning-streaming-strategies-8-beginners-tips-for-2024/"><u>[Updated] Earning Streaming Strategies - 8 Beginners' Tips for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-the-ultimate-guide-to-kids-drones/"><u>[Updated] The Ultimate Guide to Kids' Drones</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-million-move-by-social-giant-to-captivate-writing-talent-from-substack/"><u>$5 Million Move by Social Giant to Captivate Writing Talent From Substack</u></a></li>
-<li><a href="https://facebook.techidaily.com/adapting-to-the-rise-of-crypto-on-platforms/"><u>Adapting to the Rise of Crypto on Platforms</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/affordable-apple-watch-series-se-anticipated-updates-and-features-coming-your-way-insights/"><u>Affordable Apple Watch Series SE: Anticipated Updates and Features Coming Your Way – Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-platforms-catering-to-the-elderly-social-scene/"><u>Best Platforms Catering to the Elderly Social Scene</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-buzz-examining-the-real-story-of-fb-papers/"><u>Beyond Buzz: Examining the Real Story of FB Papers</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-free-from-facebooks-grip-a-list-of-10-motivators-for-quitting/"><u>Breaking Free From Facebook's Grip: A List of 10 Motivators for Quitting</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-the-cycle-why-taking-breaks-is-essential-for-mental-health/"><u>Breaking the Cycle: Why Taking Breaks Is Essential for Mental Health</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-out-controversy-refresh-your-feed-focus/"><u>Cut Out Controversy: Refresh Your Feed Focus</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-destiny-without-facebooks-influence/"><u>Data Destiny Without Facebook’s Influence</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-poco-c51-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Poco C51 | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-samsung-galaxy-f15-5g-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Samsung Galaxy F15 5G?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-key-elements-in-asmr-video-content/"><u>In 2024, Key Elements in ASMR Video Content</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-motorola-g54-5g-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Motorola G54 5G to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-share-a-private-youtube-video-with-google-account-in-2024/"><u>[New] How to Share a Private YouTube Video with Google Account, In 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-turn-swipes-to-love-powerful-tricks-and-ideas-for-standout-biographies/"><u>[Updated] In 2024, Turn Swipes to Love Powerful Tricks and Ideas for Standout Biographies</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/5-solutions-for-tecno-pova-5-pro-unlock-without-password-by-drfone-android/"><u>5 Solutions For Tecno Pova 5 Pro Unlock Without Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-who-steers-its-future/"><u>Facebook: Who Steers Its Future?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/wisdom-top-10-recruiting-video-guide/"><u>Hire Wisdom Top 10 Recruiting Video Guide</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-change-gps-location-on-itel-p55t-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Itel P55T Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-htc-u23-pro-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from HTC U23 Pro to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-god-of-war-ragnarok-release-date/"><u>In 2024, God of War Ragnarok Release Date</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructional-guide-to-split-up-spotify-and-fb/"><u>Instructional Guide to Split Up Spotify and FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-intertwined-lives-friends-on-facebook-history/"><u>Investigating Intertwined Lives: Friends on Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/rescue-your-rusty-social-media-site-with-troubleshooting-aids/"><u>Rescue Your Rusty Social Media Site with Troubleshooting Aids</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-uneven-sound-in-apples-earpods-discover-4-effective-remedies/"><u>Troubleshooting Uneven Sound in Apple's EarPods: Discover 4 Effective Remedies</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-impact-of-removing-your-fb-watch-history/"><u>Understanding the Impact of Removing Your FB Watch History</u></a></li>
+<li><a href="https://facebook.techidaily.com/youtubes-untold-story-on-how-monitoring-keeps-it-free-and-functional/"><u>YouTube's Untold Story on How Monitoring Keeps It Free and Functional</u></a></li>
 </ul></div>
 

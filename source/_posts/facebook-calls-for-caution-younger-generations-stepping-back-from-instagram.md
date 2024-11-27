@@ -1,7 +1,7 @@
 ---
 title: "Facebook Calls for Caution: Younger Generations Stepping Back From Instagram"
-date: 2024-11-12T16:04:26.057Z
-updated: 2024-11-17T16:58:08.707Z
+date: 2024-11-24T16:24:50.073Z
+updated: 2024-11-27T11:08:06.458Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ Here's what to know about the planned Instagram features.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is the Planned "Take a Break" Feature?
 
  Facebook says it wants to play its part in ensuring that young Instagram users don't spend too much time on the app, so it will be launching a Take a Break feature. The feature will encourage teens to step away from using the app temporarily.
@@ -41,10 +45,7 @@ This feature could possibly address those concerns.
  Related:[Is an Instagram for Kids a Good or Bad Idea? The Pros and Cons](https://www.makeuseof.com/instagram-for-kids-pros-and-cons/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Nudging Teens Away From Potentially Harmful Content
@@ -58,10 +59,7 @@ Here's how Clegg explained it:
  Related:[Why Instagram Is Forcing You to Add Your Birthday](https://www.makeuseof.com/instagram-forcing-you-add-birthday/)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Is Facebook Introducing These Features?
@@ -75,16 +73,7 @@ Here's how Clegg explained it:
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
@@ -112,22 +101,24 @@ Here's how Clegg explained it:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-action-shooting-guide-choosing-cameras-as-a-novice-23-update/"><u>[New] Action Shooting Guide Choosing Cameras as a Novice '23 Update</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-efficient-windows-11-recorders-to-ace-your-content-for-2024/"><u>[New] Efficient Windows 11 Recorders to Ace Your Content for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-effortless-video-capturing-on-win11-os/"><u>[Updated] Effortless Video Capturing on Win11 OS</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-premier-ai-for-stunning-photo-creation/"><u>[Updated] Premier AI for Stunning Photo Creation</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-twitter-and-instagram-join-bidens-vaccine-crusade/"><u>Facebook, Twitter & Instagram Join Biden's Vaccine Crusade</u></a></li>
-<li><a href="https://facebook.techidaily.com/forge-stronger-bonds-and-drive-success-top-8-facebook-workplace-features/"><u>Forge Stronger Bonds & Drive Success: Top 8 Facebook Workplace Features</u></a></li>
-<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-oppo-reno-10-5g-frp-by-drfone-android/"><u>Full Guide to Bypass Oppo Reno 10 5G FRP</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/in-2024-engineering-a-standout-tiktok-endcap/"><u>In 2024, Engineering A Standout TikTok Endcap</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-mac-enthusiasts-selection-of-premier-editing-suites/"><u>In 2024, Mac Enthusiasts' Selection of Premier Editing Suites</u></a></li>
-<li><a href="https://facebook.techidaily.com/linking-smartphones-with-home-screens/"><u>Linking Smartphones with Home Screens</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-friendly-face-poking-in-modern-social-media/"><u>Navigating Friendly Face-Poking in Modern Social Media</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/quick-and-easy-creating-beautifully-detailed-slow-motion-videos-in-mobile-apps-for-2024/"><u>Quick and Easy Creating Beautifully Detailed Slow Motion Videos in Mobile Apps for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/raising-the-bar-for-online-privacy-facebook-adds-end-to-end-encryption-to-chat-services/"><u>Raising the Bar for Online Privacy: Facebook Adds End-to-End Encryption to Chat Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/regaining-access-the-swift-solution-for-forgetful-fb-users/"><u>Regaining Access - The Swift Solution for Forgetful FB Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-platforms-add-sponsored-content-features/"><u>Social Media Platforms Add Sponsored Content Features</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/s-that-you-should-know-about-youtube-keyword-research-for-2024/"><u>Things That You Should Know About YouTube Keyword Research for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/user-skepticism-rises-examining-five-times-facebook-missed-the-target/"><u>User Skepticism Rises: Examining Five Times Facebook Missed the Target</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-detailed-exploration-youtubes-visionary-suite/"><u>[New] 2024 Approved A Detailed Exploration YouTube's Visionary Suite</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-final-cut-pro-x-the-ultimate-guide-for-vertical-video-posts/"><u>[New] 2024 Approved Final Cut Pro X The Ultimate Guide for Vertical Video Posts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/trategies-for-captivating-end-moments-for-2024/"><u>[New] Strategies for Captivating End Moments for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-best-subtitle-converters-win-and-mac-edition-leading-8-sbt-to-srtr-tools/"><u>[Updated] 2024 Approved Best Subtitle Converters Win & Mac Edition, Leading 8 SBT to SRTR Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-job-market-gems-shortlist-for-success-for-2024/"><u>[Updated] Job Market Gems - Shortlist for Success for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-quora-poster-sizing-instructions-for-2024/"><u>[Updated] Quora Poster Sizing Instructions for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-apex-alternatives-social-networks-beyond-twitter/"><u>2024 Approved Apex Alternatives Social Networks Beyond Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-online-security-by-editing-phone-and-email/"><u>Enhance Online Security by Editing Phone & Email</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-surpasses-apple-via-tailored-subscriptions-unveiled-operations/"><u>Facebook Surpasses Apple via Tailored Subscriptions: Unveiled Operations</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-dwindling-user-count-in-the-face-of-tiktoks-ascent/"><u>Facebook’s Dwindling User Count in the Face of TikTok’s Ascent</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-scrolling-to-serenity-the-top-10-reasons-to-leave-the-facebook-journey/"><u>From Scrolling to Serenity: The Top 10 Reasons to Leave the Facebook Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-look-at-what-fb-omits-from-your-timeline/"><u>Inside Look at What Fb Omits From Your Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/intelligent-customization-of-url-pairings-on-facebook/"><u>Intelligent Customization of URL Pairings on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/notifying-teen-activity-on-the-web-platform-facebook/"><u>Notifying Teen Activity on the Web Platform, Facebook</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/premium-applications-for-animating-3d-scenes-for-2024/"><u>Premium Applications for Animating 3D Scenes for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/profit-driven-plans-top-5-social-media-monetization-ideas/"><u>Profit-Driven Plans: Top 5 Social Media Monetization Ideas</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/simplified-processes-inshot-for-pc-and-laptop-video-creation/"><u>Simplified Processes Inshot for PC and Laptop Video Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-alert-expose-these-14-ubiquitous-facebook-scams/"><u>Stay Alert! Expose These 14 Ubiquitous Facebook Scams</u></a></li>
+<li><a href="https://win-guides.techidaily.com/windows-os-samsung-ssd/"><u>Windows OSへの移行: Samsung SSDでパフォーマンス向上</u></a></li>
 </ul></div>
 

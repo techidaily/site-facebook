@@ -1,7 +1,7 @@
 ---
 title: Fresh Laws on the Horizon for America's Big Tech Firms
-date: 2024-11-10T17:05:56.977Z
-updated: 2024-11-17T16:26:26.491Z
+date: 2024-11-25T03:05:23.703Z
+updated: 2024-11-26T19:48:37.665Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
@@ -34,16 +38,13 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
@@ -62,10 +63,7 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
@@ -100,22 +98,12 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
@@ -129,6 +117,10 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -151,21 +143,19 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-mastering-makeup-tutorials-launching-your-glam-vlog/"><u>[New] Mastering Makeup Tutorials Launching Your Glam Vlog</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-closer-look-techniques-for-microsoft-teams/"><u>[Updated] In 2024, Closer Look Techniques for Microsoft Teams</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-resolve-non-playing-facebook-video-issues-androidios/"><u>2024 Approved Resolve Non-Playing Facebook Video Issues (Android/iOS)</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apple-tvplus-vs-competitors-an-in-depth-comparison-of-top-streaming-platforms/"><u>Apple TV+ vs Competitors: An In-Depth Comparison of Top Streaming Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/debunking-facebook-fables-top-10-untruths-exposed/"><u>Debunking Facebook Fables: Top 10 Untruths Exposed</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-online-ambiguity-a-study-on-vague-content-sharing/"><u>Deciphering Online Ambiguity: A Study on Vague Content Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-deceptive-digits-true-users-of-social-media/"><u>Decoding Deceptive Digits: True Users of Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/delving-into-facebooks-internal-layout-strategy/"><u>Delving Into Facebook's Internal Layout Strategy</u></a></li>
-<li><a href="https://facebook.techidaily.com/disconnection-directive-protocols-for-abandoning-fb-business-accounts/"><u>Disconnection Directive: Protocols for Abandoning FB Business Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/do-status-updates-have-a-shelf-life/"><u>Do Status Updates Have a Shelf Life?</u></a></li>
-<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-oneplus-11-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass OnePlus 11 5G FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://facebook.techidaily.com/eco-system-new-era-of-renewable-power-at-fb/"><u>Eco-System: New Era of Renewable Power at FB</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-poco-x5withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Poco X5with/without a PC</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-oppo-a59-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Oppo A59 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-strategies-for-effective-youtube-comment-engagement/"><u>In 2024, Strategies for Effective YouTube Comment Engagement</u></a></li>
-<li><a href="https://games-able.techidaily.com/superior-emulation-selections-gaming-consoles-on-a-mac/"><u>Superior Emulation Selections: Gaming Consoles on a Mac</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-zoom-in-on-success-screenshots-made-simple-by-ezvide-tech/"><u>[New] 2024 Approved Zoom In on Success Screenshots Made Simple by EZvide Tech</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-guidance-to-creating-a-3d-text-art-effect-in-adobe-illustrator/"><u>[New] Guidance to Creating a 3D Text Art Effect in Adobe Illustrator</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-gelato-gadgets-step-by-step-screen-capture-for-frozen-snacks/"><u>[Updated] Gelato Gadgets Step-by-Step Screen Capture for Frozen Snacks</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/44cm57eo6zug44k944ov44oi44ks5rs755so44gx44gf44kt44or6zug44kr44k544k44oe44kk44k65pa55rov6kyb5bqn44cn/"><u>「編集ソフトを活用したキル集カスタマイズ方法講座」</u></a></li>
+<li><a href="https://win-blog.techidaily.com/cactus-is-a-noun-that-has-an-irregular-plural-it-changes-to-cacti/"><u>Cactus Is a Noun that Has an Irregular Plural: It Changes to Cacti</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-social-sphere-insight-into-facebooks-openness-hub/"><u>Mastering the Social Sphere: Insight Into Facebook’s Openness Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-facebook-spotting-unfamiliar-logins-quickly/"><u>Secure Facebook: Spotting Unfamiliar Logins Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-voice-of-facebook-erupts-on-60-minutes/"><u>Silent Voice of Facebook Erupts on 60 Minutes</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-instructions-for-a-seamless-vhs-to-dvd-transfer-using-premium-conversion-tools/"><u>Step-by-Step Instructions for a Seamless VHS to DVD Transfer Using Premium Conversion Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-like-hiding-techniques-for-fb-users/"><u>Tactical Like Hiding Techniques for FB Users</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851801-9798218147051-the-grand-solar-flash/"><u>The Grand Solar Flash | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-tips-for-a-secure-social-network-experience-on-fb/"><u>Top Tips for a Secure Social Network Experience on FB</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/troubleshoot-utorrent-unresponsiveness-with-these-7-proven-techniques/"><u>Troubleshoot Utorrent Unresponsiveness with These 7 Proven Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfiltered-living-the-impact-of-quitting-social-networks/"><u>Unfiltered Living: The Impact of Quitting Social Networks</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Spotify Miniplayer: A Compact Music Haven Within FB App"
-date: 2024-11-14T17:38:56.035Z
-updated: 2024-11-17T16:40:08.939Z
+date: 2024-11-26T10:51:58.430Z
+updated: 2024-11-27T06:24:04.277Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Enjoy Your Favorite Spotify Content on the Facebook App
 
  Before the rollout of this new miniplayer, it was already possible to share Spotify songs on Facebook with friends and family. But whenever you wanted to listen to them, you were automatically redirected to the Spotify app or website.
@@ -31,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
  Now, you can enjoy your favorite tunes without ever leaving the Facebook app.
 
 ![Facebook Spotify music player](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/spotify-miniplayer.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
@@ -44,13 +52,6 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
  Spotify’s miniplayer has already launched in the US, Canada, Australia, and in 25 other countries. Spotify is planning to expand this feature to more countries over the following months.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Listen to Spotify Songs Through the Facebook Miniplayer
 
  To launch the new Facebook player, simply tap the**Play** button on the Spotify song shared on the News Feed.
@@ -60,25 +61,13 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -88,10 +77,7 @@ Close
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## More Audio Features Are Coming Soon
@@ -115,19 +101,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/astering-youtubes-vista-an-in-depth-tutorial-on-video-submissions-for-2024/"><u>[New] Mastering YouTube's Vista An In-Depth Tutorial on Video Submissions for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-guidance-to-youtube-music-mix/"><u>[Updated] Guidance to YouTube Music Mix</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-perfecting-the-skill-for-selective-youtube-downloads/"><u>[Updated] In 2024, Perfecting the Skill for Selective YouTube Downloads</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-quintuple-excellence-writing-for-eight-film-classifications/"><u>[Updated] Quintuple Excellence Writing for Eight Film Classifications</u></a></li>
-<li><a href="https://facebook.techidaily.com/10-messenger-rooms-tips-and-tricks-for-beginners/"><u>10 Messenger Rooms Tips and Tricks for Beginners</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-gopro-hero5-session-review/"><u>2024 Approved GoPro Hero5 Session Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-compreenasional-approach-to-securing-your-online-presence/"><u>A Compreenasional Approach to Securing Your Online Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-comprehensive-roundup-of-this-years-most-compelling-podcasts/"><u>A Comprehensive Roundup of This Year's Most Compelling Podcasts</u></a></li>
-<li><a href="https://games-able.techidaily.com/ace-every-gameplay-session-ensuring-optimal-frames-per-second-in-valorant-for-pc-users/"><u>Ace Every Gameplay Session: Ensuring Optimal Frames Per Second in Valorant for PC Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-screens-re-evaluating-facebooks-user-count/"><u>Beyond Screens: Re-Evaluating Facebook’s User Count</u></a></li>
-<li><a href="https://facebook.techidaily.com/curbing-the-clicks-reducing-your-online-presence/"><u>Curbing the Clicks: Reducing Your Online Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-for-dollars-tracking-trends-and-targets/"><u>Data for Dollars: Tracking Trends and Targets</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-expert-tips-to-maximize-creativity-and-efficiency-in-obs-edits/"><u>In 2024, Expert Tips to Maximize Creativity and Efficiency in OBS Edits</u></a></li>
-<li><a href="https://win-able.techidaily.com/lego-star-wars-skywalker-saga-stability-improvements-for-pc-gamers/"><u>Lego Star Wars: Skywalker Saga Stability Improvements for PC Gamers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-digital-cash-kings-leading-youtube-creators/"><u>2024 Approved Digital Cash Kings Leading YouTube Creators</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-recommendations-the-finest-fee-free-streamers-and-tools/"><u>2024 Approved Expert Recommendations The Finest, Fee-Free Streamers and Tools</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/re-the-best-free-youtube-video-editor-apps-for-android-for-2024/"><u>Explore the Best Free YouTube Video Editor Apps for Android for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fix-a-broken-huion-pen-swiftly-with-these-5-methods/"><u>Fix a Broken Huion Pen Swiftly with These 5 Methods</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/from-dataset-to-dialogue-building-a-unique-bot/"><u>From Dataset to Dialogue: Building a Unique Bot</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-mute-the-art-of-deleting-on-fb-discussions/"><u>Mastering Mute: The Art of Deleting on FB Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/preeminent-locations-aiming-at-freelancer-careers/"><u>Preeminent Locations Aiming at Freelancer Careers</u></a></li>
+<li><a href="https://facebook.techidaily.com/profiling-people-for-profit-an-exploration/"><u>Profiling People for Profit: An Exploration</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/sophisticated-screenshot-options-for-gamers-for-2024/"><u>Sophisticated Screenshot Options for Gamers for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-blueprint-for-crafting-stand-out-steam-reviews/"><u>The Ultimate Blueprint for Crafting Stand-Out Steam Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/truth-in-a-tweet-debunking-top-facebook-misconceptions/"><u>Truth in a Tweet: Debunking Top Facebook Misconceptions</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/ultimate-guide-igniting-video-visionaries-in-your-channel-for-2024/"><u>Ultimate Guide Igniting Video Visionaries in Your Channel for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-hidden-project-the-upcoming-smartwatch/"><u>Unveiling Facebook's Hidden Project: The Upcoming Smartwatch</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-multi-device-support-is-coming-zuckerberg-confirms/"><u>WhatsApp Multi-Device Support Is Coming, Zuckerberg Confirms</u></a></li>
 </ul></div>
 

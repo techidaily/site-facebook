@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2024-11-11T16:12:43.981Z
-updated: 2024-11-17T17:32:41.288Z
+date: 2024-11-19T23:50:13.702Z
+updated: 2024-11-26T20:21:48.036Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Growing the Independent Creator Space
 
  The publishing platform was initially announced by Facebook in March. Among its features for writers is a free, self-publishing tool for creating and sending newsletters, integration with Facebook Pages, the ability for journalists to create Facebook Groups to grow community support, a dashboard to help writers understand how their content is performing, and more.
@@ -37,16 +41,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -72,22 +67,19 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-unveiling-whatsapps-call-conversations/"><u>[New] In 2024, Unveiling WhatsApp's Call Conversations</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-the-beginners-guide-to-pioneering-minecraft-recordings-on-mac/"><u>[Updated] 2024 Approved The Beginner's Guide to Pioneering Minecraft Recordings on Mac</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-deep-dive-into-apps-with-az-recorder/"><u>[Updated] Deep Dive Into Apps with AZ Recorder</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-minecraft-homestead-essentials-6-10/"><u>[Updated] Minecraft Homestead Essentials #6-10</u></a></li>
-<li><a href="https://facebook.techidaily.com/11-common-facebook-problems-and-errors-and-how-to-fix-them/"><u>11 Common Facebook Problems and Errors (and How to Fix Them)</u></a></li>
-<li><a href="https://facebook.techidaily.com/12-proven-methods-to-skyrocket-engagement-in-social-networking/"><u>12 Proven Methods to Skyrocket Engagement in Social Networking</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-honor-magic-5-pro-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Honor Magic 5 Pro Without Power Button | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-step-by-step-plan-to-transform-your-online-biography/"><u>A Step-by-Step Plan to Transform Your Online Biography</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-screen-a-year-without-a-new-oculus-quest/"><u>Beyond the Screen: A Year Without a New Oculus Quest</u></a></li>
-<li><a href="https://facebook.techidaily.com/captivating-audiences-pages-and-group-polling-mastery/"><u>Captivating Audiences: Pages & Group Polling Mastery</u></a></li>
-<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-shadowbans-and-their-evasion-techniques/"><u>Comprehensive Guide to Shadowbans & Their Evasion Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/comprehensively-exploring-metas-latest-privacy-regulations/"><u>Comprehensively Exploring Meta’s Latest Privacy Regulations</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-lives-on-even-in-fbs-demise/"><u>Data Lives On, Even in FB's Demise</u></a></li>
-<li><a href="https://win-blog.techidaily.com/dvd-movavi/"><u>DVD에서 영상/음악 파일로의 원활한 전환: Movavi 동영상 변퓨터 사용법</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-top-sites-for-buying-google-pixel-tunes/"><u>In 2024, Top Sites for Buying Google Pixel Tunes</u></a></li>
-<li><a href="https://app-tips.techidaily.com/the-paradox-of-productivity-is-generative-ai-causing-extra-jobs-according-to-zdnet/"><u>The Paradox of Productivity: Is Generative AI Causing Extra Jobs, According to ZDNet?</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/understanding-the-causes-of-sluggishness-how-to-speed-up-your-google-drive-uploads/"><u>Understanding the Causes of Sluggishness: How to Speed Up Your Google Drive Uploads</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-instructional-guide-modify-comment-accessibility-on-youtube/"><u>[New] In 2024, Instructional Guide Modify Comment Accessibility on YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-mastering-the-art-of-obtaining-facebooks-prestigious-blue-badge/"><u>[Updated] In 2024, Mastering the Art of Obtaining Facebook’s Prestigious Blue Badge</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-top-10-budget-friendly-cloud-service-providers/"><u>[Updated] In 2024, Top 10 Budget-Friendly Cloud Service Providers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-audio-magic-the-gradual-introduction-with-audition/"><u>[Updated] Unveiling Audio Magic The Gradual Introduction with Audition</u></a></li>
+<li><a href="https://extra-information.techidaily.com/acquiring-fcp-for-zip-legal-strategies-explained-for-2024/"><u>Acquiring FCP for Zip Legal Strategies Explained for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elite-endorsements-whos-the-crown-jewel-meta-verified-or-blue-badged/"><u>Elite Endorsements: Who's the Crown Jewel – Meta Verified or Blue Badged?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-past-connections-on-facebook/"><u>Exploring Past Connections on Facebook</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-tecno-spark-go-2023-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Tecno Spark Go (2023) Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-note-visualization-obsidian-canvas-techniques/"><u>Mastering Note Visualization: Obsidian Canvas Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/muting-the-mobile-browser-in-facebook-app/"><u>Muting the Mobile Browser in Facebook App</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-transform-your-videos-a-beginners-guide-to-time-lapse-in-final-cut-pro-for-2024/"><u>New Transform Your Videos A Beginners Guide to Time Lapse in Final Cut Pro for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevent-ploys-know-the-signs-of-these-14-facebook-frauds/"><u>Prevent Ploys: Know the Signs of These 14 Facebook Frauds</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconstructing-past-interactions-a-guide-to-social-media-archives-on-facebook/"><u>Reconstructing Past Interactions: A Guide to Social Media Archives on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/transformative-metadata-the-top-4-tools-for-business-breakthroughs/"><u>Transformative Metadata: The Top 4 Tools for Business Breakthroughs</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: English Sports Teams Begin Their Boycott of Social Media
-date: 2024-11-16T17:51:22.108Z
-updated: 2024-11-17T16:29:00.023Z
+date: 2024-11-20T18:46:51.004Z
+updated: 2024-11-26T20:56:52.753Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## England Sports' Social Media Blackout Has Begun
 
  We reported previously that[English soccer teams were planning a social media blackout](https://www.makeuseof.com/english-soccer-teams-are-boycotting-social-media-over-online-abuse/) in a stand against online racism. This is a message that teams and players collectively want to spread; that racism online, or anywhere else, is totally unacceptable.
@@ -31,10 +35,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Will the Social Media Blackout Involve?
@@ -44,10 +45,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Are Sports Teams Boycotting Social Media?
@@ -61,10 +59,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Taking a Stand Against Racism
@@ -86,19 +81,24 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-from-fan-to-earner-understanding-view-requirements/"><u>[New] From Fan to Earner Understanding View Requirements</u></a></li>
-<li><a href="https://games-able.techidaily.com/1719163251677-achieve-peak-performance-install-updated-nvidia-graphics-driver-now/"><u>Achieve Peak Performance - Install Updated Nvidia Graphics Driver Now.</u></a></li>
-<li><a href="https://howto.techidaily.com/calls-on-xiaomi-mix-fold-3-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Xiaomi Mix Fold 3 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/engage-with-ease-learn-the-top-30-smart-words-and-abbreviations-in-social-media/"><u>Engage with Ease: Learn the Top 30 SMART Words and Abbreviations in Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/hidden-in-plain-sight-locating-privatized-social-media-files/"><u>Hidden in Plain Sight: Locating Privatized Social Media Files</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-honor-magic-vs-2-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Honor Magic Vs 2 Phone Pattern Lock</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-navigated-steps-for-sound-submissions-to-youtube-for-2024/"><u>Notes Navigated Steps for Sound Submissions to YouTube for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-common-obstacles-with-windows-installation-files/"><u>Overcoming Common Obstacles with Windows Installation Files</u></a></li>
-<li><a href="https://facebook.techidaily.com/personalizing-content-curation-insights-from-user-experiences-survey/"><u>Personalizing Content Curation: Insights From User Experiences Survey</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-personal-info-with-facebooks-updated-privacy-options/"><u>Securing Personal Info with Facebook’s Updated Privacy Options</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-dynamics-redefined-identifying-4-platform-driven-societal-alterations/"><u>Social Dynamics Redefined: Identifying 4 Platform-Driven Societal Alterations</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Xiaomi Redmi K70 | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/update-your-canon-pixma-mg2520-driver-on-windows/"><u>Update Your Canon PIXMA MG2520 Driver on Windows</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/weaving-in-youtubes-video-selection-a-step-by-step-guide-for-2024/"><u>Weaving in YouTube's Video Selection A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-leaderboard-best-following-drone-technology/"><u>[Updated] 2024 Approved Leaderboard Best-Following Drone Technology</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-digital-video-conquerors-ultimate-toolkit-list/"><u>[Updated] In 2024, Digital Video Conquerors' Ultimate Toolkit List</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-complete-guide-to-facebooks-live-feature-how-to-and-best-practices/"><u>[Updated] In 2024, The Complete Guide to Facebook's Live Feature How-To & Best Practices</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209920626-9781071513996-365-citacoes-taoistas/"><u>365 Citações Taoistas | Free Book</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-vivo-y17s-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Vivo Y17s to iPhone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-sound-focused-platform-amidst-clubhouse-rise/"><u>Facebook Launches Sound-Focused Platform Amidst Clubhouse Rise</u></a></li>
+<li><a href="https://facebook.techidaily.com/getting-back-into-facebook-a-guide-without-access-codes/"><u>Getting Back Into Facebook: A Guide Without Access Codes</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-gt-5-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Realme GT 5 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-innovative-snapchat-strategies-the-ultimate-list/"><u>In 2024, Innovative Snapchat Strategies The Ultimate List</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-or-out-assessing-facebooks-expat-group-dynamics/"><u>Inside or Out: Assessing Facebook’s Expat Group Dynamics</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-daring-maneuvers-in-europe-could-rename-the-tech-titans-landscape/"><u>Meta’s Daring Maneuvers in Europe Could Rename the Tech Titans Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-prioritized-the-iphone-trend-shift/"><u>Privacy Prioritized: The iPhone Trend Shift</u></a></li>
+<li><a href="https://win-trending.techidaily.com/semplice-scrittura-di-zeri-su-disco-rigido-seagate-due-metodi-efficaci/"><u>Semplice Scrittura Di Zeri Su Disco Rigido Seagate: Due Metodi Efficaci</u></a></li>
+<li><a href="https://win-able.techidaily.com/solved-query-troubleshooting-the-missing-vanguard-setup-in-valorant/"><u>Solved Query: Troubleshooting the Missing Vanguard Setup in Valorant</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-reading-between-the-lines-in-fb-dms/"><u>Techniques for Reading Between the Lines in FB DMs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/outuber-revolutionary-jake-pauls-content-conquest/"><u>The YouTuber Revolutionary Jake Paul's Content Conquest</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-for-better-code-facebook-embraces-rust-initiative/"><u>Uniting for Better Code: Facebook Embraces Rust Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-fb-and-instas-latest-test-of-sponsored-story-stickers/"><u>Unveiling FB and Insta's Latest Test of Sponsored Story Stickers</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-your-linkedin-endorsements-ever-expire/"><u>Will Your LinkedIn Endorsements Ever Expire?</u></a></li>
 </ul></div>
 

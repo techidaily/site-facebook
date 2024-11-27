@@ -1,7 +1,7 @@
 ---
 title: "Navigating Facebook’s Privacy Update: Essential Steps"
-date: 2024-11-11T17:57:11.588Z
-updated: 2024-11-17T16:38:02.794Z
+date: 2024-11-21T13:45:54.528Z
+updated: 2024-11-27T09:43:49.745Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/ffb0273089dad909d1970227a2adf2a6505fbce5d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Access the New Facebook Privacy Center
 
  The new Privacy Center was announced in a[Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
@@ -34,20 +38,21 @@ Here's how:
 
 ![Click on Security and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Open Facebook on your computer and click on the**Account** dropdown button in the top-right corner.  
 ![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
 2. Click on**Settings and privacy** then click on**Privacy Center** .  
 ![Facebook Privacy Center Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-3.png)  
  This will take you to the Privacy Center home where you can further explore this new feature.
 
- Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
 
 ## Facebook's Privacy Center at a Glance
 
@@ -61,24 +66,15 @@ Here's how:
 
  Related:[What Are The Facebook Papers Everyone Is Talking About](https://www.makeuseof.com/what-are-facebook-papers/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Use Facebook's Privacy Center
 
  To view Meta's privacy policy on sharing, for instance, simply access the Privacy Center on your computer, scroll down to**Sharing** and click on**Read more** .
 
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
-
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
 
@@ -94,13 +90,6 @@ Here's how:
 
  Related:[Why Meta Is Killing Facebook's Facial Recognition System](https://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Why You Should Use Facebook's Privacy Center
 
  If you have access to the Privacy Center, it may be worth your while to spend some time familiarizing yourself with how Meta handles and processes your data across its family of apps.
@@ -114,10 +103,7 @@ Here's how:
  Related:[Facebook Is Tracking You! Here's How to Stop It](https://www.makeuseof.com/tag/facebook-tracking-stop/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Protect Your Privacy
@@ -141,20 +127,20 @@ Here's how:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-cant-see-only-cursor-a6400-issue/"><u>[New] Can't See, Only Cursor! - A6400 Issue</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-free-video-credits-expertise-top-6-maker-guide/"><u>[Updated] In 2024, Free Video Credits Expertise - Top 6 Maker Guide</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-the-efficient-way-to-grab-all-episodes-on-your-idevice/"><u>[Updated] The Efficient Way to Grab All Episodes on Your iDevice</u></a></li>
-<li><a href="https://fox-place.techidaily.com/rawsd5/"><u>回復される未フォーマットRAWSDカードのための5つの方法</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciding-your-online-space-for-group-interaction-a-networking-analysis/"><u>Deciding Your Online Space for Group Interaction: A Networking Analysis</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-equilibrium-of-price-in-crypto-coins/"><u>Decoding the Equilibrium of Price in Crypto Coins</u></a></li>
-<li><a href="https://facebook.techidaily.com/delve-into-digital-memories-friends-facebook-timeline/"><u>Delve Into Digital Memories: Friends' Facebook Timeline</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-detox-ban-political-content-on-fb/"><u>Digital Detox: Ban Political Content on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/disconnect-and-vanish-step-by-step-fb-deletion-guide-android/"><u>Disconnect & Vanish: Step-By-Step FB Deletion Guide (Android)</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-the-best-fb-image-choice/"><u>Discovering the Best FB Image Choice</u></a></li>
-<li><a href="https://facebook.techidaily.com/do-facebooks-engaging-quizzes-compromise-security/"><u>Do Facebook's Engaging Quizzes Compromise Security?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximize-your-home-network-with-asus-ax6600-mesh-wifi-expert-review-and-setup-tips/"><u>Maximize Your Home Network with ASUS AX6600 Mesh WiFi: Expert Review & Setup Tips</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/reset-itunes-backup-password-of-apple-iphone-se-2022-prevention-and-solution-drfone-by-drfone-ios/"><u>Reset iTunes Backup Password Of Apple iPhone SE (2022) Prevention & Solution | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/struggling-with-oculus-rift-connection-errors-solutions-inside/"><u>Struggling with Oculus Rift Connection Errors? Solutions Inside</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unlocking-digital-archives-your-step-by-step-guide-to-wayback-machine-usage/"><u>Unlocking Digital Archives: Your Step-by-Step Guide to Wayback Machine Usage</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-digital-image-perfection-how-to-remove-picture-backdrops-swiftly-for-2024/"><u>[New] Digital Image Perfection How To Remove Picture Backdrops Swiftly for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-first-steps-in-gamified-editing-software-selection/"><u>[New] In 2024, First Steps in Gamified Editing Software Selection</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-securing-your-online-sessions-pcmobile-recording/"><u>[New] In 2024, Securing Your Online Sessions PC/Mobile Recording</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-best-stream-tech-innovative-hardware-and-software-guide-for-youtubers/"><u>[Updated] In 2024, Best Stream Tech Innovative Hardware & Software Guide for Youtubers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-streamlining-facebook-content-for-tv-platforms/"><u>[Updated] Streamlining Facebook Content for TV Platforms</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-streamlining-time-tracking-for-youtube-videos-for-2024/"><u>[Updated] Streamlining Time Tracking for YouTube Videos for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/cookiebot-driven-analytics-boosting-your-web-traffic-effortlessly/"><u>Cookiebot-Driven Analytics: Boosting Your Web Traffic Effortlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-cracks-down-on-satirical-content-rules/"><u>Facebook Cracks Down on Satirical Content Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/fake-friend-alerts-on-facebook/"><u>Fake Friend Alerts on Facebook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-iphone-tricks-turn-your-images-upside-down-sideways/"><u>In 2024, IPhone Tricks Turn Your Images Upside-Down, Sideways</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/es-audio-upgrade-discover-best-software-for-youtube-to-mp3-for-2024/"><u>IPhone's Audio Upgrade Discover Best Software for YouTube-to-MP3 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/legitimacy-check-on-facebooks-security-email-address/"><u>Legitimacy Check on Facebook's Security Email Address</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-to-past-facebook-entries/"><u>Navigating to Past Facebook Entries</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-xbox-guide-to-weaving-a-web-of-social-network-ties/"><u>The Xbox Guide to Weaving a Web of Social Network Ties</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-do-so-many-people-hate-facebook/"><u>Why Do So Many People Hate Facebook?</u></a></li>
 </ul></div>
 

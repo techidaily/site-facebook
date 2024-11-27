@@ -1,7 +1,7 @@
 ---
 title: "Tech Titans Under Fire: Trust Erosion Amidst Public Concerns"
-date: 2024-09-01T03:44:41.941Z
-updated: 2024-09-02T03:44:41.941Z
+date: 2024-11-26T04:33:37.584Z
+updated: 2024-11-26T18:49:26.492Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/df6d6f7af97a6f2a263dcbc0519760a864ba0996c
 
  Now a joint poll by the Washington Post and the Schar School of Government and Policy at the George Mason University shows people do not trust many big tech companies. Most would also like governments to regulate big tech more. Let's find out some more details about the poll, and why Facebook in particular is most distrusted.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Does the Poll Say?
 
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
 
@@ -42,15 +50,17 @@ thumbnail: https://thmb.techidaily.com/df6d6f7af97a6f2a263dcbc0519760a864ba0996c
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is Facebook So Distrusted?
 
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
 
  In 2016 Cambridge Analytica, a now-defunct firm, used data on Facebook users to influence US political campaigns. Since then, the publicity around Facebook has been brutal. Every month it seems a new story comes out accusing Facebook of something.
@@ -66,8 +76,9 @@ thumbnail: https://thmb.techidaily.com/df6d6f7af97a6f2a263dcbc0519760a864ba0996c
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Regulation Is Coming
 
  More than 70% of internet users are on Facebook and have no intention of quitting. The same is probably true of all big tech; they have become too ubiquitous and too intertwined with our lives.
@@ -78,14 +89,11 @@ thumbnail: https://thmb.techidaily.com/df6d6f7af97a6f2a263dcbc0519760a864ba0996c
 
  For now, users are taking matters into their own hands. Nearly 80% take precautions to limit the information that big tech gathers about them. These precautions include disallowing tracking, deleting web history, and Virtual Private Networks (VPN).
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -94,4 +102,22 @@ thumbnail: https://thmb.techidaily.com/df6d6f7af97a6f2a263dcbc0519760a864ba0996c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-youtube-themes-made-easy-by-the-coolest-logo-and-icon-stores-online/"><u>[New] 2024 Approved YouTube Themes Made Easy by the Coolest Logo & Icon Stores Online</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-mastering-screen-capture-a-compreenas-android-guide-for-2024/"><u>[New] Mastering Screen Capture A Compreenas Android Guide for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-5-simplified-steps-for-sequential-youtube-video-viewing-free/"><u>2024 Approved 5 Simplified Steps for Sequential YouTube Video Viewing (Free)</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-you-to-me-updating-your-social-network-identifier/"><u>From You to Me: Updating Your Social Network Identifier</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-screenshots-on-iphone-12-pro-max-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Screenshots on iPhone 12 Pro Max? | Stellar</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagrams-hidden-gems-designing-stunning-engaging-puzzle-posts/"><u>In 2024, Instagram's Hidden Gems Designing Stunning, Engaging Puzzle Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-tactics-to-unearth-upcoming-facebook-clubs/"><u>Innovative Tactics to Unearth Upcoming Facebook Clubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-beyond-the-screen-facebooks-potential-physical-ventures/"><u>Marketing Beyond the Screen: Facebook's Potential Physical Ventures</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-high-res-content-uploads-for-fb-app-users/"><u>Navigating High-Res Content Uploads for FB App Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/rooted-for-progress-what-the-unlock-of-oculus-go-means-for-enthusiasts/"><u>Rooted for Progress: What the Unlock of Oculus Go Means for Enthusiasts</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/say-goodbye-to-spam-protect-your-iphone-with-these-three-essential-text-blocking-strategies/"><u>Say Goodbye to Spam: Protect Your iPhone with These Three Essential Text-Blocking Strategies</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/social-media-snipping-an-easy-method-for-capturing-twitters-gifs/"><u>Social Media Snipping An Easy Method for Capturing Twitter’s GIFs</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platform-security-vulnerabilities/"><u>Social Platform Security Vulnerabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-rise-presents-new-headwinds-to-facebooks-profits/"><u>TikTok's Rise Presents New Headwinds to Facebook's Profits</u></a></li>
+</ul></div>
 

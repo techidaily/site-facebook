@@ -1,7 +1,7 @@
 ---
 title: Why Meta Postpones Default E2E Encryption Till 2023 Explained
-date: 2024-11-10T16:37:24.722Z
-updated: 2024-11-17T17:53:02.510Z
+date: 2024-11-23T09:55:10.673Z
+updated: 2024-11-26T23:58:48.730Z
 tags:
   - facebook
 categories:
@@ -24,9 +24,17 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Does Meta Want End-to-End Encryption?
 
 ![hacker typing on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/hacker-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta's goal is to integrate all functionalities on Facebook, Facebook Messenger, Instagram, and WhatsApp. This will enable users to post messages across the four apps, with each app's existing features available across the board.
 
@@ -37,10 +45,7 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
@@ -54,16 +59,7 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
@@ -89,18 +85,16 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-comprehensive-analysis-top-budget-friendly-video-calling-tools-iphones-and-androids/"><u>[New] Comprehensive Analysis Top Budget-Friendly Video Calling Tools - iPhones & Androids</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-magical-voice-change-tools-for-efficient-calls/"><u>[New] Magical Voice Change Tools for Efficient Calls</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-avoiding-drone-pitfalls-key-factors-for-a-smart-purchase/"><u>[Updated] 2024 Approved Avoiding Drone Pitfalls Key Factors for a Smart Purchase</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-downloading-igtv-made-simple-iphone-and-android-users-bible-for-2024/"><u>[Updated] Downloading IGTV Made Simple IPhone & Android Users' Bible for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-guide-to-designing-powerful-youtube-logos/"><u>[Updated] The Ultimate Guide to Designing Powerful YouTube Logos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-unlock-creativity-the-best-collection-of-free-slide-show-patterns/"><u>2024 Approved Unlock Creativity The Best Collection of Free Slide Show Patterns</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/audit-your-google-docs-learn-the-techniques-for-spotting-who-checked-out-your-work/"><u>Audit Your Google Docs: Learn the Techniques for Spotting Who Checked Out Your Work</u></a></li>
-<li><a href="https://facebook.techidaily.com/decluttering-discussions-keep-politics-at-bay-on-facebook/"><u>Decluttering Discussions: Keep Politics at Bay on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/dive-into-music-spotify-miniplayer-in-facebook-app/"><u>Dive Into Music: Spotify Miniplayer in Facebook App</u></a></li>
-<li><a href="https://facebook.techidaily.com/dominion-of-thought-metas-global-ai-titan-emerges/"><u>Dominion of Thought: Meta's Global AI Titan Emerges</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-strategies-for-social-media-recruitment/"><u>Effective Strategies for Social Media Recruitment</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-image-innovation-at-your-fingertips-applications-for-photo-text-adjustments/"><u>In 2024, Image Innovation at Your Fingertips Applications for Photo Text Adjustments</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-the-latest-on-youtube-ad-income-guidelines/"><u>In 2024, The Latest on YouTube Ad Income Guidelines</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-elevating-ppt-impact-through-high-quality-recordings-for-2024/"><u>[New] Elevating PPT Impact Through High-Quality Recordings for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-unpacking-tunefab-written-review-on-latest-tech-for-screen-recording/"><u>[New] In 2024, Unpacking Tunefab' Written Review on Latest Tech for Screen Recording</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-the-ultimate-roadmap-for-distance-podcasting/"><u>[Updated] 2024 Approved The Ultimate Roadmap for Distance Podcasting</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/explore-creativity-top-8-innovative-editing-tools-for-iphone-android-for-2024/"><u>Explore Creativity Top 8 Innovative Editing Tools for iPhone, Android for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-tecno-spark-10-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Tecno Spark 10 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-unveils-mega-ai-powerhouse-to-dominate-tech/"><u>Meta Unveils Mega AI Powerhouse to Dominate Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-online-life-navigating-through-six-key-reasons-for-fbs-metaverse/"><u>Reimagining Online Life: Navigating Through Six Key Reasons for FB’s Metaverse</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resolving-opengl32dll-missing-error-on-your-computer-a-step-by-step-guide/"><u>Resolving OpenGL32.dll Missing Error on Your Computer: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-into-the-future-crafting-immersive-3d-photos-for-fb/"><u>Step Into the Future: Crafting Immersive 3D Photos for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-intruder-alert-check-for-pcemail-misuse-indicators/"><u>Stop Intruder Alert! Check for PC/Email Misuse Indicators</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-effective-crowdflower-tools/"><u>The Ultimate Guide to Effective CrowdFlower Tools</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "No More Prying Eyes: German Mandate Against Facebook's WhatsApp Data Invasion"
-date: 2024-11-15T17:30:15.539Z
-updated: 2024-11-17T16:10:36.723Z
+date: 2024-11-24T04:23:59.884Z
+updated: 2024-11-27T12:10:00.643Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Germany Bans Facebook From Collecting WhatsApp Data
 
  Johannes Caspar, the head of the Hamburg privacy authority, led the new action against Facebook. The body has ruled that forcing users to accept additional data collection in WhatsApp's new privacy policy is unlawful.
@@ -39,10 +43,7 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -56,10 +57,7 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -83,24 +81,17 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-navigate-a-new-era-in-livestrances-top-3-desktop-techniques-on-tiktok/"><u>[Updated] 2024 Approved Navigate a New Era in Livestrances Top 3 Desktop Techniques on TikTok</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-igniting-online-trends-crafting-viral-facebook-posts/"><u>[Updated] Igniting Online Trends Crafting Viral Facebook Posts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-must-have-keyword-gurus-for-video-success/"><u>[Updated] In 2024, 10 Must-Have Keyword Gurus for Video Success</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-grab-tailor-made-cost-free-outro-videos/"><u>2024 Approved Grab Tailor-Made, Cost-Free Outro Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-verification-protocols/"><u>Decoding Facebook's Verification Protocols</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-silent-editors-of-social-media-platforms/"><u>Decoding the Silent Editors of Social Media Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/designing-an-impactful-social-media-narrative/"><u>Designing an Impactful Social Media Narrative</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dominance-claiming-the-top-tier-title-meta-gold-or-twitters-bronze/"><u>Digital Dominance: Claiming the Top Tier Title – Meta-Gold or Twitter's Bronze?</u></a></li>
-<li><a href="https://facebook.techidaily.com/disabling-fbs-security-on-lost-phones-in-minutes/"><u>Disabling FB's Security on Lost Phones in Minutes</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-a-life-beyond-facebook-10-compelling-reasons-to-quit/"><u>Discovering a Life Beyond Facebook: 10 Compelling Reasons to Quit</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-shared-passions-via-chatting-game-surveys/"><u>Discovering Shared Passions via Chatting Game Surveys</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-selection-of-your-facebook-promotions/"><u>Dissecting the Selection of Your Facebook Promotions</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-career-with-facebooks-business-tools/"><u>Elevate Your Career with Facebook's Business Tools</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Google Pixel 8 | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Vivo V27? | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/revolutionizing-home-lighting-discover-the-latest-innovative-lutron-pico-remote-a-game-changer-for-smart-homes/"><u>Revolutionizing Home Lighting: Discover the Latest Innovative Lutron Pico Remote - A Game Changer for Smart Homes</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/safeguard-your-pc-without-bitlockers-help-on-windows/"><u>Safeguard Your PC Without BitLocker's Help on Windows</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-livekernelevent-117-mishap-a-comprehensive-guide/"><u>Solving the LiveKernelEvent 117 Mishap: A Comprehensive Guide</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/unveiling-the-latest-in-tech-the-comprehensive-guide-by-toms-hardware/"><u>Unveiling the Latest in Tech: The Comprehensive Guide by Tom's Hardware</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-optimizing-live-periscope-video-speed-for-2024/"><u>[New] Optimizing Live Periscope Video Speed for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-breaking-the-boundaries-vr-film-production-essentials-top-9/"><u>[Updated] Breaking the Boundaries VR Film Production Essentials (Top 9)</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-m1-computation-face-off-lightweight-vs-robust-designs/"><u>2024 Approved M1 Computation Face-Off Lightweight vs Robust Designs</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolutionary-leap-why-now-meet-a-social-innovator-at-facebook/"><u>Evolutionary Leap: Why Now, Meet a 'Social Innovator' At Facebook</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-realme-narzo-60-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Realme Narzo 60 5G online without jailbreak</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-it-time-for-faces-to-face-off-in-the-real-estate-arena-with-shops/"><u>Is It Time for Faces to Face-Off in the Real Estate Arena with Shops?</u></a></li>
+<li><a href="https://facebook.techidaily.com/renewables-redefined-facebooks-complete-energy-overhaul/"><u>Renewables Redefined: Facebook's Complete Energy Overhaul</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/reviving-your-iphone-six-proven-techniques-to-resurrect-the-dead-screen/"><u>Reviving Your iPhone: Six Proven Techniques to Resurrect the Dead Screen</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealth-socializers-disguising-fb-connections/"><u>Stealth Socializers: Disguising FB Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-hand-guiding-facebook-group-conversations/"><u>The Hidden Hand Guiding Facebook Group Conversations</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/wiederherstellung-verlorener-microsoft-excel-dokumente-auf-windows-11-schnelllosungen-und-tipps/"><u>Wiederherstellung Verlorener Microsoft Excel-Dokumente Auf Windows 11: Schnelllösungen Und Tipps</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/windows-11-compatible-iphone-driver-solutions-download-and-install-guide/"><u>Windows 11 Compatible iPhone Driver Solutions: Download & Install Guide</u></a></li>
 </ul></div>
 

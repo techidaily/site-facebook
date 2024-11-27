@@ -1,7 +1,7 @@
 ---
 title: "Textual Excellence in Messages: Beyond Basic Fonts"
-date: 2024-11-14T17:57:53.597Z
-updated: 2024-11-17T17:20:37.755Z
+date: 2024-11-20T00:15:49.481Z
+updated: 2024-11-27T10:05:12.063Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Text Formatting Works in Messenger
 
  While[Messenger has many features you can try](https://www.makeuseof.com/tag/facebook-messenger-features/) , you can easily format text in Facebook Messenger with the right characters or symbols. Each type of emphasis has a symbol that you need to type before and after the text that you want to emphasize.
@@ -35,10 +39,7 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
  Here are the symbols to use for different types of formatting, along with examples of how it looks when you send a message.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Add Bold Text in Messenger
@@ -47,18 +48,15 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
  To make a text bold, type an asterisk (\*) before and after the text. Bold text is most often used for strong emphasis on important phrases and keywords.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Make Italic Text in Messenger
 
 ![Italicize text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/italicize-text-demo-messenger.jpg)
 
  To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Use Strikethrough Text in Messenger
 
@@ -72,13 +70,6 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
 ![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
 
  Most texts you'll see online will have proportional spacing—where each character occupies only as much width as it needs. Monospaced text has each character occupying the same amount of space.
@@ -90,10 +81,7 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
@@ -107,6 +95,10 @@ To send text in a block of code:
 5. Type three more backticks and send your text.
 
  This will send your text with code formatting. This is just one of the many[things you can do with Facebook Messenger](https://www.makeuseof.com/things-you-can-do-facebook-messenger-features/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Customize Your Facebook Messages With Text Formatting
 
@@ -129,18 +121,21 @@ To send text in a block of code:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-a-guide-to-the-8-truly-effective-youtube-marketing-methods/"><u>[New] 2024 Approved A Guide to the 8 Truly Effective Youtube Marketing Methods</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-download-fb-content-windows-and-mac-guide/"><u>[Updated] Download FB Content Windows & Mac Guide</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-constructing-a-high-definition-pc-for-ultra-hd-video-production/"><u>[Updated] In 2024, Constructing a High-Definition PC for Ultra-HD Video Production</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-techniques-to-surpass-instagrams-typical-video-limits/"><u>[Updated] In 2024, Techniques to Surpass Instagram's Typical Video Limits</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/complete-evaluation-hero4-black-interface-for-2024/"><u>Complete Evaluation Hero4 Black Interface for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facts-behind-fears-redefining-our-understanding-of-facebook-files/"><u>Facts Behind Fears: Redefining Our Understanding of Facebook Files</u></a></li>
-<li><a href="https://facebook.techidaily.com/immersive-synergy-defining-the-metaverse-concept/"><u>Immersive Synergy: Defining the Metaverse Concept</u></a></li>
-<li><a href="https://facebook.techidaily.com/influencers-insight-amplifying-your-online-alliance/"><u>Influencers' Insight: Amplifying Your Online Alliance</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-my-phone-number-more-vulnerable-now-after-fb-update/"><u>Is My Phone Number More Vulnerable Now After FB Update?</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/obs-and-shadowplay-which-streams-better-in-2024/"><u>Obs and ShadowPlay - Which Streams Better, In 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-tutorial-how-to-easily-convert-dvd-content-into-wma-audio-files-using-windows-1011-software/"><u>Ultimate Tutorial: How to Easily Convert DVD Content Into WMA Audio Files Using Windows 10/11 Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/unleash-the-power-of-participation-maximizing-impact-in-fb-posts/"><u>Unleash the Power of Participation: Maximizing Impact in FB Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-social-medias-pros-outweigh-the-cons-a-top-9-list/"><u>Why Social Media's Pros Outweigh the Cons: A Top 9 List</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-screen-commanders-face-off-for-2024/"><u>[New] Screen Commanders Face-Off for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-zero-cost-maximum-impact-mastering-your-characters-voice-in-free-fire-gameplay/"><u>[Updated] In 2024, Zero Cost, Maximum Impact Mastering Your Character's Voice in Free Fire Gameplay</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-optimal-series-premium-webcam-grips/"><u>2024 Approved Optimal Series Premium Webcam Grips</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/como-convertir-videos-mpeg-al-formato-libre-3gp-usando-el-servicio-en-linea-de-movavi/"><u>Cómo Convertir Videos MPEG Al Formato Libre 3GP Usando El Servicio en Línea De Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-opens-new-horizons-for-oculus-go-with-root-access-unveiled/"><u>Facebook Opens New Horizons for Oculus Go with Root Access Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-insight-time-off-for-teens-from-instagram-usage/"><u>Facebook's Insight: Time Off for Teens From Instagram Usage</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-missing-desktop-icons-on-windows-10-a-comprehensive-guide/"><u>Fixing Missing Desktop Icons on Windows 10: A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721477328780-having-trouble-with-your-iphones-vpn-connection-learn-how-to-solve-it-with-these-7-methods/"><u>Having Trouble with Your iPhone's VPN Connection? Learn How to Solve It With These 7 Methods!</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-apple-iphone-se-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Apple iPhone SE iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-xiaomi-redmi-k70-pro-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Xiaomi Redmi K70 Pro Devices | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/real-time-recording-mastery-with-manycams-video-software-suite/"><u>Real-Time Recording Mastery with ManyCam's Video Software Suite</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-your-social-space-navigating-facebooks-new-moderation-tools/"><u>Steering Your Social Space: Navigating Facebook's New Moderation Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-secure-pieces-from-facebooks-725m-settlement/"><u>Strategies to Secure Pieces From Facebook's $725M Settlement</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-hints-of-facebooks-upcoming-identity-change/"><u>Unveiling Hints of Facebook's Upcoming Identity Change</u></a></li>
+<li><a href="https://facebook.techidaily.com/webworld-woe-all-big-social-platforms-go-dark/"><u>Webworld Woe: All Big Social Platforms Go Dark</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-safe-germany-orders-stop-to-facebook-data-mining-practices/"><u>WhatsApp Users Safe? Germany Orders Stop to Facebook Data Mining Practices</u></a></li>
 </ul></div>
 

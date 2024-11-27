@@ -1,7 +1,7 @@
 ---
 title: "Greatest Gathering Places: Seniors' Social Media Picks"
-date: 2024-11-12T17:11:04.496Z
-updated: 2024-11-17T17:02:10.435Z
+date: 2024-11-21T10:53:53.468Z
+updated: 2024-11-27T06:02:34.004Z
 tags:
   - facebook
 categories:
@@ -22,9 +22,17 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1. Facebook
 
 ![senior man and woman laughing in front of phone and laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-kampus-production-6667799.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  As one of the older social platforms, Facebook has gained a lot of popularity among senior citizens. In a study conducted by the College of Communications of Pennsylvania State University and published on[ScienceDirect](https://www.sciencedirect.com/science/article/abs/pii/S0747563216301431) , research examined what it was exactly that seniors get from Facebook.
 
@@ -52,22 +60,12 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 
  LinkedIn is also a place where companies, businesses, and industries advertise their online and offline events. For seniors who want to stay professionally connected and who want to hone their skills and enlarge their network, LinkedIn is a perfect platform for doing that.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3. WhatsApp
 
 ![Woman using laptop and holding a coffee cup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-marcus-aurelius-6787904.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  WhatsApp is an excellent way to stay connected with friends and family via instant messaging. It is readily accessible and has a ton of benefits. By encouraging people to build networks, its[users can also create WhatsApp communities](https://www.makeuseof.com/how-to-create-whatsapp-community/) .
@@ -88,16 +86,13 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 
  There are recipes for just about any dish, DIY and decorating channels, as well as exercise and health videos for active seniors. For especially tech-savvy seniors, they can also make their own channel and upload their own videos if they have some interesting content to share.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5. Blogger
 
 ![elderly woman using a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-anna-shvets-5257246.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  There's no doubt that seniors have a lot of stories to tell. Some stories are rich in historical detail that only they can recall, and other stories can be as simple as sharing something about their day. For seniors who have considered writing about their lives, starting a blog through a platform like Blogger, is an excellent first step.
 
@@ -108,10 +103,7 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
  Blogger is also a good platform for recording memories, storing photos, and interacting with others by following other blogs. The platform allows bloggers to manage their blog's settings by moderating comments and responding to people leaving them.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Opportunities for Seniors to Connect Are Endless
@@ -133,22 +125,17 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://hardware-updates.techidaily.com/download-intel-centrino-advanced-n-6205-driver/"><u>[Download] Intel Centrino Advanced-N 6205 Driver</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-zooming-into-excellence-a-complete-guide-for-professionals-of-podcast-production/"><u>[New] Zooming Into Excellence A Complete Guide for Professionals of Podcast Production</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-above-and-beyond-uavs-for-gopro-recording-excellence/"><u>[Updated] Above and Beyond UAVs for GoPro Recording Excellence</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-cloaking-in-content-an-introduction-to-video-smoothing-for-2024/"><u>[Updated] Cloaking in Content An Introduction to Video Smoothing for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/3-platforms-one-game-facebook-and-twitters-nbafocus-campaign/"><u>3 Platforms, One Game: Facebook & Twitter's NBAFocus Campaign</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-detailed-walkthrough-of-activating-and-using-sleep-mode-in-messenger-kids/"><u>A Detailed Walkthrough of Activating & Using Sleep Mode in Messenger Kids</u></a></li>
-<li><a href="https://facebook.techidaily.com/anticipating-facebooks-revamped-stories-panels-with-reels-and-rooms/"><u>Anticipating Facebook's Revamped Stories Panels with Reels and Rooms</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-likes-and-shares-understanding-facebooks-metaverse-vision/"><u>Beyond Likes and Shares: Understanding Facebook’s Metaverse Vision</u></a></li>
-<li><a href="https://facebook.techidaily.com/bring-your-soundtrack-to-the-smallest-screen-in-fb/"><u>Bring Your Soundtrack to the Smallest Screen in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/channeling-more-meaningful-connections-within-communities/"><u>Channeling More Meaningful Connections Within Communities</u></a></li>
-<li><a href="https://facebook.techidaily.com/cross-platform-content-posting-instagram-reels-to-facebook/"><u>Cross-Platform Content: Posting Instagram Reels to Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/cyber-shutdown-global-giants-blackout-briefcase/"><u>Cyber Shutdown: Global Giants' Blackout Briefcase</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-on-apple-iphone-13-pro-max-by-drfone-ios/"><u>How to Bypass iCloud Lock on Apple iPhone 13 Pro Max</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-analyzing-ffmpegs-aptitude-for-maintaining-audible-fidelity/"><u>In 2024, Analyzing FFmpeg’s Aptitude for Maintaining Audible Fidelity</u></a></li>
-<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Sony Xperia 5 V? | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-asus-rog-phone-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/windows-11-mbr-gpt-ssd/"><u>Windows 11 システムの移行: MBR ハードディスクから GPT SSDに転送するためのガイド</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-streamlining-the-process-of-finding-your-own-musical-compilation-on-youtube/"><u>[New] Streamlining the Process of Finding Your Own Musical Compilation on Youtube</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-samsung-galaxy-z-fold-5-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Samsung Galaxy Z Fold 5 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/exclusive-insight-apples-next-move-into-artificial-intelligence-with-smart-home-robotics-details-on-upcoming-devices/"><u>Exclusive Insight: Apple's Next Move Into Artificial Intelligence with Smart Home Robotics - Details on Upcoming Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/hasty-methods-to-remove-content-from-your-fb-profile/"><u>Hasty Methods to Remove Content From Your FB Profile</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Honor Play 7T? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-facebook-portals-into-your-home-network/"><u>Integrating Facebook Portals Into Your Home Network</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/openai-and-meta-hit-with-class-action-suits-by-artists-like-sarah-silverman-why-theyre-fighting-back/"><u>OpenAI & Meta Hit with Class-Action Suits by Artists Like Sarah Silverman - Why They're Fighting Back</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-win-turn-off-facebook-monitoring-via-off-facebook-tool/"><u>Privacy Win: Turn Off Facebook Monitoring via Off-Facebook Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthening-account-protection-with-simple-steps-of-2fa-implementation/"><u>Strengthening Account Protection with Simple Steps of 2FA Implementation</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-future-is-now-how-vida-transforms-video-editing-for-2024/"><u>The Future Is Now How Vida Transforms Video Editing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-your-facebook-timeline-comprehensive-history-download-guide/"><u>Uncovering Your Facebook Timeline: Comprehensive History Download Guide</u></a></li>
 </ul></div>
 

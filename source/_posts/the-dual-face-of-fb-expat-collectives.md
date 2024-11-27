@@ -1,7 +1,7 @@
 ---
 title: The Dual Face of FB Expat Collectives
-date: 2024-09-01T03:41:22.728Z
-updated: 2024-09-02T03:41:22.728Z
+date: 2024-11-23T14:37:05.592Z
+updated: 2024-11-27T00:47:44.953Z
 tags:
   - facebook
 categories:
@@ -31,25 +31,14 @@ thumbnail: https://thmb.techidaily.com/8859a6a8995fd23a6d3c164e4eb7814defea1c5b8
 
  You may have questions about the law, housing, prices, and the best restaurants to eat at. Most expat groups have a lot of members, especially if they are based in a capital city, so when you ask a question, you'll likely get a lot of answers.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Upcoming Events
 
  When you come to a new town, there are likely a lot of events happening around you, but you may not be aware of them. Some expats like to share news about what is happening in their neighborhood, information about concerts, job-seeker fairs, galleries that have opened, and even farmers' markets. This could be a fun way to get acquainted with your new neighborhood.
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. You Become More Aware of Dangers
 
  Many expat groups share information about potential dangers and malicious activities in their town. Many also share information about scams. For example, they might share information about criminals on the loose, robbers, or potential threats in the neighborhood. Because these groups are large, sharing useful information on them can help others become aware of what is out there.
@@ -57,17 +46,15 @@ thumbnail: https://thmb.techidaily.com/8859a6a8995fd23a6d3c164e4eb7814defea1c5b8
 ![Three women gathered around a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-alexander-suhorucov-6457552.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. You Might Get Crisis Advice
 
  Most of the time, people use expat groups to ask for advice. Expats like to share their experiences and offer recommendations, such as where people can get access to lawyers, where to find a locksmith, or how to file a police report.
 
  If you join an expat group, you can expect to get information about the law, government policies, what to do in times of crisis, and your rights when something bad happens. You will also be able to ask questions about visas, the types of documents you need for applying for housing for example, and other information that pertains to your stay in your new city.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ### 5\. You Get Information About Real Estate
 
  Expat groups may also provide you with information about accommodation, such as flats and housing laws. Many expats utilize the groups to let people know of potential changes in tenant laws. These can include things such as rent increases, legal loopholes, and your legal rights when it comes to reporting faults or shortages.
@@ -75,17 +62,26 @@ thumbnail: https://thmb.techidaily.com/8859a6a8995fd23a6d3c164e4eb7814defea1c5b8
 ![Group of friends sitting on the steps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-keira-burton-6147224.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 6\. Lost and Found Posts
 
  If you're part of an expat group, you'll likely come across some lost and found posts. Many expat groups have a focus on community and neighborhoods, so if you lose something, you can ask the group for help to spread the word. Likewise, if you find a lost dog or cat, you can utilize the group to spread awareness.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. Work-Related Information
 
  While expat groups are not for posting job advertisements, they do provide advice about your rights as an employee. There are often FAQ (Frequently Asked Questions) sections on the group's page where you can find information related to work and career.
 
  Some groups may include information about working visas, notice periods, nondiscrimination policies, HR, and other useful content so that you become fully aware of your rights in your new country.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Disadvantages of Joining an Expat Group
 
@@ -94,6 +90,10 @@ thumbnail: https://thmb.techidaily.com/8859a6a8995fd23a6d3c164e4eb7814defea1c5b8
 ![Unhappy woman behind a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-andrea-piacquadio-3755755.jpg)
 
  This is especially important if you are seeking legal information. Apart from[being aware of Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) , here are a few things you should also expect to experience in an expat group:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Lots of Trolls
 
@@ -105,16 +105,14 @@ thumbnail: https://thmb.techidaily.com/8859a6a8995fd23a6d3c164e4eb7814defea1c5b8
 
 ![A woman holding a help sign at work](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-yan-krukov-7640764.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
  If you are seeking some serious advice, it is best not to go and ask the expats. On the slim chance that you may actually get expert advice from the group, be aware that there are a lot of "experts" without the credentials to back up what they're saying.
 
  While they might mean well, getting expert advice on Facebook groups is not something that is advised. Especially because you don't know the people in these groups personally.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. You Might Get Unwanted Messages
 
  If you post in expat groups, there is a chance that people will also try and reach out to you via a private message. Sometimes, you may get messages from people you don't want to talk to. There are[privacy settings on Facebook that you should review](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) , especially if you are receiving unwanted messages.
@@ -127,23 +125,17 @@ thumbnail: https://thmb.techidaily.com/8859a6a8995fd23a6d3c164e4eb7814defea1c5b8
 
  There are also a lot of people out there who are pretending to be someone else. All these instances could lead to an unhappy outcome. This is why it's important to always assess the situation before you go ahead and hand over any private details.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Expat Groups Are Not Expert Groups
 
  It's important to remember that expat groups on Facebook are there to help people get acquainted with their new cities/countries. While they do offer advice and helpful hints about settling into a new place, the advice on them is just as good as the advice on internet forums. This means that it is largely based on opinion.
 
  If you do decide to join an expat group on Facebook, be aware of potential misinformation. Always seek expert advice if you are dealing with something serious.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -152,4 +144,18 @@ thumbnail: https://thmb.techidaily.com/8859a6a8995fd23a6d3c164e4eb7814defea1c5b8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-adding-soundtracks-to-your-inshot-projects/"><u>[New] Adding Soundtracks to Your InShot Projects</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exclusive-listing-high-quality-free-streamers-for-webm-files/"><u>[New] Exclusive Listing High-Quality, Free Streamers for WebM Files</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-meme-playbook-no-10-essentials/"><u>[Updated] The Ultimate Meme Playbook No. 10 Essentials</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-hot-30-5g-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Hot 30 5G.</u></a></li>
+<li><a href="https://solve-info.techidaily.com/effiziente-systemneuinstallation-vollstandiges-formatloschen-unter-windows/"><u>Effiziente Systemneuinstallation - Vollständiges Formatlöschen Unter Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/emerging-tech-two-cameras-on-first-fb-wearable-suggested/"><u>Emerging Tech: Two Cameras on First FB Wearable Suggested</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-zero-to-hero-in-online-communities/"><u>From Zero to Hero in Online Communities</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Realme 10T 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-legal-boundaries-when-grabbing-private-fb-content/"><u>Navigating Legal Boundaries When Grabbing Private FB Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-identity-of-the-courageous-fb-insider/"><u>Unveiling Identity of the Courageous FB Insider</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-doesnt-apple-join-the-metaverse-wave-like-facebook/"><u>Why Doesn't Apple Join the Metaverse Wave Like Facebook?</u></a></li>
+</ul></div>
 

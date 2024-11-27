@@ -1,7 +1,7 @@
 ---
 title: How to Redefine Phone/Email on Facebook
-date: 2024-11-16T16:23:42.993Z
-updated: 2024-11-17T16:56:37.431Z
+date: 2024-11-24T17:04:22.483Z
+updated: 2024-11-26T22:12:55.710Z
 tags:
   - facebook
 categories:
@@ -32,18 +32,15 @@ thumbnail: https://thmb.techidaily.com/dd18e8bc3c9f273d09d135719fd511870ffe57b02
 
  Another reason why you might want to update your email or phone number is if you are moving or traveling and will be using a new email address or phone number temporarily. Whatever the reason, updating your information is easy to do and can be done in just a few minutes.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Update Your Email Address and Phone Number on Facebook
 
  You can change the email address and phone number linked to your account on the Facebook app as well as the web version.
 
 Here's how...
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Update Your Email Address and Phone Number on Mobile
 
@@ -53,7 +50,15 @@ To change your email address on the Facebook app, follow these steps:
 
 ![screenshot showing facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot showing personal information page on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-personal-information-page-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
@@ -74,21 +79,7 @@ Here's how to do this:
 
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![screenshot showing how to remove phone number from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-how-to-remove-phone-number-from-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -105,10 +96,7 @@ Close
 3. Click on**Settings & Privacy** \>**Settings** .  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing account settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-account-settings-page-on-Facebook.jpg)
@@ -118,13 +106,14 @@ Close
 ![screenshot showing edit email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-edit-email-address-page.jpg)
 6. Enter your new email address in the provided field and click**Add** or click on**Add your phone number?** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot showing enter email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-enter-email-address-page.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Updating Your Contact Information on Facebook
@@ -146,22 +135,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-direct-send-from-camera-roll-your-easy-to-follow-guide/"><u>[New] Direct Send From Camera Roll Your Easy-to-Follow Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevating-engagement-finding-your-youtube-segment/"><u>[New] In 2024, Elevating Engagement Finding Your YouTube Segment</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-top-15-facebook-strategies-for-maximizing-online-selling-power/"><u>[New] In 2024, Top 15 Facebook Strategies for Maximizing Online Selling Power</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-insights-into-procuring-freeness-in-frame-vids/"><u>[New] Insights Into Procuring Freeness in Frame Vids</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-mastering-mini-gaming-memories-learn-to-record-minecraft-on-apple-devices/"><u>[Updated] 2024 Approved Mastering Mini-Gaming Memories Learn to Record Minecraft on Apple Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/exiting-facespace-without-warning-heres-how-to-return/"><u>Exiting Facespace Without Warning? Here's How to Return</u></a></li>
-<li><a href="https://program-issues.techidaily.com/forza-horizon-4-pc/"><u>Forza Horizon 지정치 4: PC 오류 해결 방법</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-realme-narzo-n53-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Realme Narzo N53 Devices | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-stopping-fb-tracking-via-off-fb-activity-hub/"><u>Mastery: Stopping FB Tracking Via Off-FB Activity Hub</u></a></li>
-<li><a href="https://article-posts.techidaily.com/revolutionize-your-gameplay-with-this-gratuitous-voice-alterer-for-2024/"><u>Revolutionize Your Gameplay with This Gratuitous Voice Alterer for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-profile-identities-no-extremist-viewpoints-allowed/"><u>Securing Profile Identities: No Extremist Viewpoints Allowed</u></a></li>
-<li><a href="https://facebook.techidaily.com/seeing-the-supporters-count/"><u>Seeing the Supporters Count</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-a-conflict-free-group-disengagement/"><u>Strategies for a Conflict-Free Group Disengagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-efficiently-managing-friends-list-on-facebook/"><u>The Art of Efficiently Managing Friends List on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-did-social-networking-services-crash/"><u>Why Did Social Networking Services Crash?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-pausing-your-insta-addiction-is-better-for-you/"><u>Why Pausing Your Insta Addiction Is Better for You</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/zero-struggle-screen-edge-adjustment-on-computers/"><u>Zero Struggle! Screen Edge Adjustment on Computers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-pixelated-prowess-celebrating-the-best-shooter-classics/"><u>[New] Pixelated Prowess Celebrating the Best Shooter Classics</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-harvesting-stills-from-moving-images-on-windows/"><u>[Updated] In 2024, Harvesting Stills From Moving Images on Windows</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-joke-generation-made-simple-kapwing-app-guide/"><u>[Updated] Joke Generation Made Simple – Kapwing App Guide</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-mac-recording-hub-essential-insights/"><u>[Updated] Mac Recording Hub Essential Insights</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/construct-humor-memes-via-adobe-for-2024/"><u>Construct Humor Memes via Adobe for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-life-offline-end-your-facebook-addiction/"><u>Embrace Life Offline: End Your Facebook Addiction</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-friends-forever-growing-your-online-band/"><u>Facebook Friends Forever: Growing Your Online Band</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-a-fatal-error-on-facebook-platform/"><u>Fixing a Fatal Error on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-misleading-online-experiences/"><u>Navigating the Maze of Misleading Online Experiences</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviving-instagram-the-rationale-behind-its-comeback/"><u>Reviving Instagram: The Rationale Behind Its Comeback</u></a></li>
+<li><a href="https://os-tips.techidaily.com/reviving-ipad-connectivity-essential-steps-for-reactivating-the-usb-driver/"><u>Reviving iPad Connectivity: Essential Steps for Reactivating the USB Driver</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-7-best-content-scheduling-aids-for-frequent-updates/"><u>The 7 Best Content Scheduling Aids for Frequent Updates</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-buccaneers-guide-key-slang-for-seafaring-characters/"><u>The Buccaneer's Guide: Key Slang for Seafaring Characters</u></a></li>
 </ul></div>
 

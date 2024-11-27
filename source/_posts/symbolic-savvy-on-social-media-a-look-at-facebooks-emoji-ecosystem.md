@@ -1,7 +1,7 @@
 ---
 title: Symbolic Savvy on Social Media - A Look at Facebook’s Emoji Ecosystem
-date: 2024-09-01T03:42:28.237Z
-updated: 2024-09-02T03:42:28.237Z
+date: 2024-11-24T05:41:46.374Z
+updated: 2024-11-27T06:07:53.648Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
  In this article, we take a look at what all of these symbols mean, from the Like button to others you'll come across—such as icons on Facebook menus and symbols for your status update.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Social Facebook Symbols
 
  The following are some of the more common Facebook icons for social interactions. Most people who use Facebook regularly will recognize them fairly easily.
@@ -33,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
  To switch to one of these reaction symbols, hover over the**Like** button (or hold the**Like** button on the Facebook mobile app) and the different reaction options will pop up. You then just need to select the reaction you want to use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Create Post Symbols
 
  Aside from the options above, the other icons you'll see on Facebook are the ones that display while you're creating new posts or updating your status.
@@ -45,30 +53,24 @@ thumbnail: https://thmb.techidaily.com/38e4000e96c33206bb992b3f696967e164e1f69dc
 
 ![Facebook Icons When Creating a Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-icons-when-creating-a-post.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
  Hitting**More** shows the rest of the options that you have when creating a post on Facebook. This includes GIFs and raising money on the website. On mobile, you also get icons for music, the camera, and your post's background color.
 
 ![More Tools for Creating a Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/more-tools-for-creating-a-facebook-post.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  On the**Create post** window, you're also able to add emojis with the convenient**Emoji** icon nearby. The**Feeling/activity** button offers even more ways to share your emotions.
 
  Hit this button to access two long lists of emojis under two categories. The first tab is titled**Feelings** and contains emojis to express the emotions driving your post.
 
 ![Feelings Emojis for Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/feelings-emojis-for-facebook-post.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The options in**Activities** are a bit more interesting as you can specify what you're doing. Clicking on any of these reveals more symbols for your post.
 
 ![Activities Icons for Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/activities-icons-for-facebook-post.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  While you can only choose one feeling or activity to sit alongside your name on the post, the range of options here is honestly impressive and can benefit more than your personal posts.
 
  If[Facebook's whitelisting feature](https://www.makeuseof.com/what-is-facebook-whitelisting/) interests you, for example, exploring this list of Facebook symbols and their meanings can give you ideas on how to promote different brands.
@@ -112,16 +114,20 @@ What do these Facebook symbols mean?
 
 ![Facebook Post Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-post-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Other users' posts offer icons for hiding, snoozing, silencing, unfollowing, reporting, embedding, and more. You can customize your posts and feed to get the most out of Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Navigation Symbols
 
  There are more key symbols on Facebook, including the icons that appear at the top and side of your web page. The smartphone version is more compact, but it features the same options. So, explore and[try Facebook mobile settings](https://www.makeuseof.com/facebook-app-settings-worth-trying/) , too.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### Facebook Menu Icons
 
  On the right side of this toolbar, you'll notice three buttons. The first pulls out a menu where you can find friends, search local events, create posts, stories, pages, or ads, and do a host of other things.
@@ -137,22 +143,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![Facebook Notifications Icon and Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-notifications-icon-and-settings.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  At the center of your menu bar are four more icons. They take you to your**Home** ,**Marketplace** ,**Groups** , and**Gaming** pages. Under them, you'll also find the**Stories** and**Reels** tabs.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Facebook Navigation Icons
 
  These next Facebook symbols will be well-known to regular Facebook users. If you click on the**Home** tab, you'll see dozens of icons on the left side.
@@ -168,8 +163,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![Icons on Facebook's Navigation Sidebar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/icons-on-facebook-s-navigation-sidebar.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Didn't realize you could do so much on Facebook? We're barely getting started. Hit**See More** for everything this sidebar has to offer, such as:
 
 * **Ad Centre** : Create and view your page adverts.
@@ -193,9 +189,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Spend time trying out Facebook's icons, buttons, and tabs to understand the platform's full capabilities. You can go from[downloading your entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to[boosting your business with Meta tools](https://www.makeuseof.com/meta-business-tools/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Symbols on Facebook: Explained
 
  Once you know what all of these Facebook symbols mean, it's clear that this social network is good for much more than just scrolling mindlessly.
@@ -204,14 +197,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  This technique won't fail you, but read labels and descriptions carefully so you don't mess with anything important. The site is a rabbit hole, but all of these icons on Facebook make diving in all the more tempting.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -220,4 +210,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-photoshop-stability-enhancement-essentiality/"><u>[New] Photoshop Stability Enhancement - Essentiality</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unveiling-the-best-storytelling-schools-1-8-guide-for-2024/"><u>[New] Unveiling the Best Storytelling Schools - #1-#8 Guide for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-vivo-s17-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Vivo S17 Activity | Dr.fone</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/windows-hddssd/"><u>容易にコピー！ Windows HDDからSSDへのデータ移行方法説明</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-the-audience-in-new-ways-with-facebook-hub/"><u>Engaging the Audience in New Ways with Facebook Hub</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ensure-regular-feeding-with-the-petsafe-automatic-6-port-feeder-device/"><u>Ensure Regular Feeding With The PetSafe Automatic 6-Port Feeder Device</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-windows-update-failed-with-error-0x8024c01c-in-modern-operating-systems/"><u>How to Fix 'Windows Update Failed with Error 0X802^4C01C' In Modern Operating Systems</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-content-cultivating-capital-your-videography-voyage/"><u>In 2024, Crafting Content, Cultivating Capital Your Videography Voyage</u></a></li>
+<li><a href="https://facebook.techidaily.com/market-dynamics-300-dollar-headsets-as-cybersecurity-measures/"><u>Market Dynamics: 300-Dollar Headsets as Cybersecurity Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-message-chambers-a-beginners-guide-to-proficiency/"><u>Mastering Message Chambers: A Beginner's Guide to Proficiency</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-what-does-it-mean-for-facial-id-on-fb/"><u>Meta Drops: What Does It Mean for Facial ID on FB?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-honor-x8b-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Honor X8b Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-whats-hot-on-social-media-hub/"><u>Uncovering What's Hot on Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-your-share-in-facebooks-725m-class-action/"><u>Understanding Your Share in Facebook’s 725M Class Action</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-users-mastering-privacy-in-clans/"><u>Unseen Users: Mastering Privacy in Clans</u></a></li>
+</ul></div>
 

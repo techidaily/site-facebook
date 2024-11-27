@@ -1,7 +1,7 @@
 ---
 title: "IOS 14.5: A Blow for Facebook's Data Collection?"
-date: 2024-11-10T16:34:32.507Z
-updated: 2024-11-17T16:34:53.270Z
+date: 2024-11-20T06:21:46.248Z
+updated: 2024-11-26T18:09:59.101Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 ![iphone hello screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hello.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  App Tracking Transparency is a feature that allows users to decide if they want their activity tracked across different apps on their iOS device.
 
  Every iOS device is assigned a unique identifier, called an Identifier for Advertisers (IDFA), that can track the user. The purpose of the IDFA is for advertisers to personalize and target ads more effectively.
@@ -38,16 +42,13 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does Facebook Make Money?
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
 
@@ -64,22 +65,12 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Many Users Allow App Tracking?
 
@@ -89,15 +80,16 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
@@ -135,19 +127,22 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-ace-guide-to-constructing-virtual-classroom-headlines-for-2024/"><u>[Updated] Ace Guide to Constructing Virtual Classroom Headlines for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-best-screen-recording-apps-for-mac-users-excluded-from-bandicam/"><u>[Updated] In 2024, Best Screen Recording Apps for Mac Users - Excluded From Bandicam</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-zooms-finest-audio-to-text-solutions-complimentary-and-subscriptions/"><u>2024 Approved Zoom's Finest Audio-to-Text Solutions Complimentary & Subscriptions</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-motorola-moto-g-5g-2023-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Motorola Moto G 5G (2023) Phone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/augmenting-learning-with-vr-for-2024/"><u>Augmenting Learning with VR for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/avchdm2tsmts/"><u>AVCHDフォーマットへのM2TS・MTS変換手順：徹底ガイド</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciding-the-future-with-meta-ais-social-media-entry/"><u>Deciding the Future with Meta AI's Social Media Entry</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-facebooks-operational-architecture-plan/"><u>Deciphering Facebook’s Operational Architecture Plan</u></a></li>
-<li><a href="https://facebook.techidaily.com/delving-into-previous-social-interactions-on-fb/"><u>Delving Into Previous Social Interactions on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-detox-for-your-profile-remove-regretful-posts-now/"><u>Digital Detox for Your Profile: Remove Regretful Posts Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dialogues-the-leading-20-forums-in-online-communication/"><u>Digital Dialogues: The Leading 20 Forums in Online Communication</u></a></li>
-<li><a href="https://facebook.techidaily.com/dive-into-privacy-dont-join-facebooks-link-ledger/"><u>Dive Into Privacy: Don't Join Facebook's Link Ledger</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-vivo-v27e-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Vivo V27e Screen | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/unlocking-advanced-settings-installing-gpeditmsc-on-windows-home/"><u>Unlocking Advanced Settings: Installing GPEDIT.MSC on Windows Home</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-unlock-superior-asmr-audio-with-top-recorder-mics/"><u>[New] 2024 Approved Unlock Superior ASMR Audio with Top Recorder Mics</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-android-developers-insider-take-scouting-the-leading-fb-video-extractors/"><u>[Updated] In 2024, Android Developer's Insider Take Scouting the Leading FB Video Extractors</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ai-driven-productivity-essential-tools-for-content-gurus/"><u>AI-Driven Productivity: Essential Tools for Content Gurus</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/breaking-through-virtual-barriers-crafting-engaging-metaverse-content-for-2024/"><u>Breaking Through Virtual Barriers Crafting Engaging Metaverse Content for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/download-corsair-k70-mouse-software-and-drivers-get-started/"><u>Download Corsair K70 Mouse Software & Drivers - Get Started</u></a></li>
+<li><a href="https://fox-search.techidaily.com/file-recovery-tutorial-with-autopsy-how-to-restore-deleted-files/"><u>File Recovery Tutorial with Autopsy: How to Restore Deleted Files</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-11-pro-max-to-the-latest-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 11 Pro Max to the Latest iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-plex-vs-streaming-titanique/"><u>In 2024, Plex vs Streaming Titanique</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-light-and-dark-shades-in-tech-world/"><u>Leading Light and Dark Shades in Tech World</u></a></li>
+<li><a href="https://facebook.techidaily.com/shield-your-identity-silent-posting-tactics/"><u>Shield Your Identity: Silent Posting Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-savings-and-serenity-the-9-reasons-to-be-online-for-life/"><u>Social Savings & Serenity: The 9 Reasons to Be Online for Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-commercial-value-of-watchfulness/"><u>The Commercial Value of Watchfulness</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quest-for-memory-lanes-first-facebook-step/"><u>The Quest for Memory Lane's First Facebook Step</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-ultimate-checkpoint-a-2021-review-of-vegas-pros-latest-features-for-2024/"><u>The Ultimate Checkpoint A 2021 Review of Vegas Pro's Latest Features for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-gatherings-of-freelance-professionals/"><u>Top 5 Gatherings of Freelance Professionals</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-6-strong-reasons-to-stay-linked-to-facebook/"><u>Unlocking Potential: 6 Strong Reasons to Stay Linked to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-unplugging-makes-you-happier-and-healthier/"><u>Why Unplugging Makes You Happier and Healthier</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Harnessing Nature: FB Energized by Renewables"
-date: 2024-11-12T18:08:05.235Z
-updated: 2024-11-17T18:04:47.387Z
+date: 2024-11-25T07:19:33.095Z
+updated: 2024-11-26T16:32:44.686Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Becomes the World’s Largest Corporate Purchaser of Renewable Energy
 
  Climate change presents risks for everyone and everything—from plant species to human beings. Google, Apple, Amazon, as well as Facebook, understand how serious the issues are and have all created environmental targets to eliminate carbon emissions.
@@ -41,10 +45,7 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Has Already Set Its Next Environmental Target
@@ -52,10 +53,7 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
@@ -83,20 +81,17 @@ So, things may, finally, be moving in the right direction.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-avoid-blandness-in-your-vids-top-recommended-youtube-thumbnail-heights/"><u>[New] In 2024, Avoid Blandness in Your Vids Top Recommended YouTube Thumbnail Heights</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-kinemaster-tutorial-seamless-integration-of-green-screen-techniques/"><u>[New] Kinemaster Tutorial Seamless Integration of Green Screen Techniques</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-transforming-your-videos-first-impression-fb-cover-makeover-techniques/"><u>[Updated] In 2024, Transforming Your Videos' First Impression FB Cover Makeover Techniques</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-erase-apple-iphone-13-pro-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>3 Ways to Erase Apple iPhone 13 Pro When Its Locked Within Seconds | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/7-ideal-planning-platforms-for-content-release-management/"><u>7 Ideal Planning Platforms for Content Release Management</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-second-chance-trump-on-meta-platforms/"><u>A Second Chance: Trump on Meta Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-practices-in-digital-employment-advertising/"><u>Best Practices in Digital Employment Advertising</u></a></li>
-<li><a href="https://facebook.techidaily.com/bypassing-ios-app-tracking-becomes-common-trend/"><u>Bypassing iOS App Tracking Becomes Common Trend</u></a></li>
-<li><a href="https://facebook.techidaily.com/connected-culture-facebooks-journey-to-meta-universe/"><u>Connected Culture: Facebook’s Journey to Meta Universe</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719147404422-elevating-conversation-confidentiality-facebooks-new-direct-messaging-and-call-services-with-end-to-end-encryption/"><u>Elevating Conversation Confidentiality: Facebook’s New Direct Messaging & Call Services with End-to-End Encryption</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-y100t-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Y100t</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/pccapcut1/"><u>PC上でCapCutを使用して複数回ビデオを1つのスクリーンに表示する方法</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210280038-9781911134435-quareia/"><u>Quareia | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719153085215-revelations-in-technology-youve-overlooked-top-4-must-have-knowledge/"><u>Revelations in Technology You've Overlooked - Top 4 Must-Have Knowledge</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-soundbar-systems-ultimate-guide/"><u>Top Rated Soundbar Systems - Ultimate Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-adding-sparkle-to-your-content-incorinasing-unique-story-emojis/"><u>[New] 2024 Approved Adding Sparkle to Your Content Incorinasing Unique Story Emojis</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/automated-methods-for-adding-photo-dates-for-2024/"><u>Automated Methods for Adding Photo Dates for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/le-of-free-high-quality-sound-clips-for-videos/"><u>Compile of Free, High-Quality Sound Clips for Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-to-expand-stories-with-added-reels-and-rooms/"><u>Facebook to Expand Stories with Added Reels & Rooms?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-ambitions-in-physical-retail-spaces-what-it-means-for-us/"><u>Facebook's Ambitions in Physical Retail Spaces - What It Means For Us</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-legally-safe-chants-and-tunes-the-ultimate-meditation-list/"><u>In 2024, Legally Safe Chants & Tunes - The Ultimate Meditation List</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-digital-collectibles/"><u>Instagram's Digital Collectibles</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/jotunheim-raid-the-war-of-the-worlds-for-2024/"><u>Jotunheim Raid The War of the Worlds for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-hevc-h265-on-samsung-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on Samsung , is it possible?</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/the-beginners-path-to-becoming-a-discord-live-stream-guru-for-2024/"><u>The Beginner's Path to Becoming a Discord Live Stream Guru for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-deceptive-trade-tactics-and-your-defense-strategies-on-fb/"><u>Unveiling Deceptive Trade Tactics and Your Defense Strategies on FB</u></a></li>
+<li><a href="https://games-able.techidaily.com/unveiling-mysteries-of-shiny-pokemon-in-scarlet-and-violet-85/"><u>Unveiling Mysteries of Shiny Pokémon in Scarlet and Violet (85)</u></a></li>
 </ul></div>
 

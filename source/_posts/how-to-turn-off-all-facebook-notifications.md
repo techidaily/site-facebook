@@ -1,7 +1,7 @@
 ---
 title: How To Turn Off All Facebook Notifications
-date: 2024-11-10T16:29:35.054Z
-updated: 2024-11-17T16:42:55.307Z
+date: 2024-11-23T23:07:17.837Z
+updated: 2024-11-27T08:20:40.575Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 
 ![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Let's start with the most important question: How do you delete notifications on Facebook?
 
  If you want to remove a Facebook notification on the web app, follow the step-by-step instructions below:
@@ -39,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 5. Select**Remove this notification** .
 
  The process to delete Facebook notifications on the smartphone app is similar. Just fire up the app and tap on the**Notifications** tab. Once you've found the alert you want to get rid of, tap on the three dots and choose**Remove this notification** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Clear All Facebook Notifications
 
@@ -63,6 +71,10 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Turn Off Facebook Notifications as They Arrive
 
  The process to turn off Facebook notifications as they arrive is similar to the process for deleting Facebook notifications.
@@ -78,13 +90,6 @@ Follow the steps below to learn about the process on the web app:
  (**Note:** If you are disabling notifications from a page, you will also see an option to**Turn off all notifications from this page** .)
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications by Category
 
@@ -105,13 +110,6 @@ Follow the steps below to learn about the process on the web app:
 
  It's also worth scrolling to the very bottom of the list to the**How you receive notifications** section. In it, you can select which browser and email notifications you receive. You can choose to receive Facebook's suggested notifications if can't be bothered to customize everything—but it will probably still result in you getting too much spam.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Stop Facebook Notifications Altogether
 
  You can't disable all types of Facebook notifications in the web app, but you can stop Facebook notifications entirely on Android and iOS.
@@ -119,10 +117,7 @@ Follow the steps below to learn about the process on the web app:
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Stop Facebook Notifications on Android
@@ -130,10 +125,7 @@ Follow the steps below to learn about the process on the web app:
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
@@ -181,15 +173,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/accelerated-gaming-high-speed-android-lite-picks/"><u>Accelerated Gaming: High-Speed Android Lite Picks</u></a></li>
-<li><a href="https://facebook.techidaily.com/accelerating-collaboration-top-8-features-of-facebook-tools/"><u>Accelerating Collaboration: Top 8 Features of Facebook Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/broadcasting-ig-livestream-without-audiovisuals/"><u>Broadcasting IG Livestream Without Audio/Visuals</u></a></li>
-<li><a href="https://facebook.techidaily.com/clubhouse-competition-facebook-adds-sonic-dimension/"><u>Clubhouse Competition: Facebook Adds Sonic Dimension</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/te-your-content-with-effective-video-seo/"><u>Elevate Your Content with Effective Video SEO</u></a></li>
-<li><a href="https://apple-account.techidaily.com/icloud-separation-how-to-disconnect-iphone-xs-and-ipad-by-drfone-ios/"><u>iCloud Separation How To Disconnect iPhone XS and iPad</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-capture-cinematic-moments-seamlessly-across-pcs-and-smartphones/"><u>In 2024, Capture Cinematic Moments Seamlessly Across PCs & Smartphones</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-oneplus-11rmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can OnePlus 11RMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://win-help.techidaily.com/1728470965865-microsoft-project-mpp/"><u>Microsoft Project MPPファイル回復ガイド - ダメージを直す最適な手順</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-ultimate-checklist-for-instagram-popularity-surge/"><u>[Updated] In 2024, The Ultimate Checklist for Instagram Popularity Surge</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigating-the-world-of-asmr-videos-for-2024/"><u>[Updated] Navigating the World of ASMR Videos for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/combatting-the-notorious-windows-update-error-0x80070003/"><u>Combatting the Notorious Windows Update Error: 0X80070003</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-copycat-scams-a-brief-overview/"><u>Facebook Copycat Scams: A Brief Overview</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-samsung-galaxy-a14-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/free-ways-to-master-timing-your-facebook-updates-for-maximum-reach/"><u>Free Ways to Master Timing Your Facebook Updates for Maximum Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-social-engagement-outgrew-traditional-forum-systems/"><u>How Social Engagement Outgrew Traditional Forum Systems</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/secure-your-digital-footprint-how-a-vpn-is-crucial-for-safeguarding-on-vision-pro-and-other-xr-headsets/"><u>Secure Your Digital Footprint: How a VPN Is Crucial for Safeguarding on Vision Pro and Other XR Headsets</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-digital-world-a-comprehensive-guide-to-fb-safety/"><u>Securing Your Digital World: A Comprehensive Guide to FB Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-shine-with-quality-media-facebook-hd-tips/"><u>Social Shine with Quality Media: Facebook HD Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-venue-vigilance-harnessing-the-power-of-facebook-moderation-capabilities/"><u>Virtual Venue Vigilance: Harnessing the Power of Facebook Moderation Capabilities</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Tecno Phantom V Flip | Dr.fone</u></a></li>
 </ul></div>
 

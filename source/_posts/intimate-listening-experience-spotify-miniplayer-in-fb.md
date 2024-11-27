@@ -1,7 +1,7 @@
 ---
 title: Intimate Listening Experience - Spotify Miniplayer in FB
-date: 2024-09-01T03:48:04.531Z
-updated: 2024-09-02T03:48:04.531Z
+date: 2024-11-25T15:05:52.347Z
+updated: 2024-11-27T07:28:49.836Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/d0e21788f29958fdaba0fdac4398d13da91770825
 
  Facebook and Spotify have created a miniplayer and embedded it into the social media app to allow users to stream Spotify content through the Facebook app.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Enjoy Your Favorite Spotify Content on the Facebook App
 
  Before the rollout of this new miniplayer, it was already possible to share Spotify songs on Facebook with friends and family. But whenever you wanted to listen to them, you were automatically redirected to the Spotify app or website.
@@ -26,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/d0e21788f29958fdaba0fdac4398d13da91770825
  Now, you can enjoy your favorite tunes without ever leaving the Facebook app.
 
 ![Facebook Spotify music player](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/spotify-miniplayer.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
@@ -47,7 +55,15 @@ thumbnail: https://thmb.techidaily.com/d0e21788f29958fdaba0fdac4398d13da91770825
 
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -56,22 +72,20 @@ Close
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## More Audio Features Are Coming Soon
 
  To better compete with Clubhouse and its many copycats, Facebook has decided to implement other audio features such as[Live Audio Rooms and Soundbites](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) . These should arrive in the summer of 2021.
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,4 +94,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-ultimate-guide-to-3d-text-design-in-ps/"><u>[Updated] 2024 Approved The Ultimate Guide to 3D Text Design in PS</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-strategic-sharpening-for-pixel-perfect-photos/"><u>[Updated] Strategic Sharpening for Pixel-Perfect Photos</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-unlock-on-apple-iphone-13-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock On Apple iPhone 13? How to Fix it?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-samsung-galaxy-xcover-7-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Samsung Galaxy XCover 7 to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-spotify-on-the-facebook-platform/"><u>Mastering Spotify on the Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-the-maze-delete-your-facebook-on-android/"><u>Navigate The Maze: Delete Your Facebook On Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-age-of-swipes-and-likes-whats-new-with-facebook-dating/"><u>The Age of Swipes and Likes: What's New with Facebook Dating?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-ultimate-guide-to-never-ending-snapstreaks-for-2024/"><u>The Ultimate Guide to Never-Ending Snapstreaks for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracking-down-users-excluded-from-your-fb-circle/"><u>Tracking Down Users Excluded From Your FB Circle</u></a></li>
+<li><a href="https://extra-information.techidaily.com/twitch-reversion-made-simple-top-ten-instructions-at-hand/"><u>Twitch Reversion Made Simple Top Ten Instructions at Hand</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-can-we-learn-from-sheryl-sandbergs-time-at-facebook/"><u>What Can We Learn From Sheryl Sandberg's Time at Facebook?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Revolutionize Your Social Media Routine - Best Fb Configs
-date: 2024-11-16T17:10:36.020Z
-updated: 2024-11-17T16:52:12.102Z
+date: 2024-11-24T22:31:17.859Z
+updated: 2024-11-27T09:56:31.678Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,25 @@ thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab7
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Customize Your Facebook Shortcut Bar
 
 ![Settings Highlighted Under Settings and Privacy in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Settings-Highlighted-Under-Settings-and-Privacy-in-the-Facebook-App.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Shortcut Settings Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Shortcut-Settings-Highlighted-in-the-Facebook-App.jpg)
 
 ![Shortcut Bar and Notification Dots Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Shortcut-Bar-and-Notification-Dots-Settings-in-the-Facebook-App.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -62,18 +74,15 @@ Close
 
 ![See Your Time Options in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/See-Your-Time-Options-in-the-Facebook-App-Settings.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  Facebook allows you to[review your screen time on the Facebook app](https://www.makeuseof.com/tag/time-spent-facebook-instagram/) , which helps you manage your usage routine and habits. You can get a weekly report to see how you spend your time on Facebook and view your activity log, such as your posts, comments, and reactions.
 
  To access the screen time report, go to **Settings & Privacy > Settings > Preferences > Your Time on Facebook > See Your Time** . Here you’ll see an app usage graph, and you can toggle on the**Weekly Update** option to receive automated weekly updates.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Turn On the Quiet Mode and Daily Time Reminders
 
@@ -82,19 +91,13 @@ Close
 ![Your Time on Facebook Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Your-Time-on-Facebook-Settings-in-the-Facebook-App.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Manage Your Time Options in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Manage-Your-Time-Options-in-the-Facebook-App-Settings.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -111,6 +114,10 @@ Close
 
 ![Dark Mode Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Dark-Mode-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Dark Mode Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Dark-Mode-Settings-in-the-Facebook-App.jpeg)
 
 Close
@@ -125,6 +132,10 @@ Close
 
 ![Continuous Contacts Upload Setting in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Continuous-Contacts-Upload-Setting-in-the-Facebook-App.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  As you know, Facebook allows you to connect with your friends, colleagues, and family. And to find someone, you have to search for their name. However, some people don’t use their real names, and there might be instances where you might find tons of people with the same name.
@@ -133,25 +144,19 @@ Close
 
  You can turn this feature on or off by going to **Settings & Privacy > Settings > Permissions > Upload Contacts** . Once you turn it on, it takes you to the screen where you upload your contacts for the first time to find your friends. If you want to stop sharing this information with Facebook, toggle it off instead.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Data Saver on Mobile Network
 
 ![Media-Settings-Highlighted-in-the-Facebook-App-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Media-Settings-Highlighted-in-the-Facebook-App-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Data Saver Setting Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Data-Saver-Setting-Highlighted-in-the-Facebook-App.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -164,13 +169,6 @@ Close
 ![Media-Settings-Highlighted-in-the-Facebook-App-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Media-Settings-Highlighted-in-the-Facebook-App-2.jpg)
 
 ![Links Open Externally Setting Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Links-Open-Externally-Setting-Highlighted-in-the-Facebook-App.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -186,13 +184,6 @@ Close
 
 ![Cellular Network Information in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Cellular-Network-Information-in-the-Facebook-App.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
 
  If you go to **Settings & Privacy > Wi-Fi & Cellular Performance** , you’ll find some useful information about your internet connection and the available public Wi-Fi connections.
@@ -206,19 +197,6 @@ Close
 ![Reels Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Reels-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
 ![Reels Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Reels-Settings-in-the-Facebook-App.jpeg)
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -245,24 +223,15 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-engage-entertain-and-captivate-adopting-two-point-of-view-in-your-next-youtube-reaction-video-2-pov-method/"><u>[Updated] In 2024, Engage, Entertain and Captivate – Adopting Two-Point of View in Your Next YouTube Reaction Video (2 POV Method)</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-ultimate-charger-systems-for-black-gopro-hero5-official-sources/"><u>[Updated] Ultimate Charger Systems for Black GoPro Hero5 Official Sources</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-subtitle-making-from-compressed-file-extraction/"><u>2024 Approved Subtitle Making From Compressed File Extraction</u></a></li>
-<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Lava Blaze 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-redesigned-interface/"><u>Decoding Facebook's Redesigned Interface</u></a></li>
-<li><a href="https://facebook.techidaily.com/determining-facebook-uptime-methods-and-timelines/"><u>Determining Facebook Uptime: Methods and Timelines</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-drought-six-hours-of-no-facebookwhatsappinstagram/"><u>Digital Drought: Six Hours of No Facebook/WhatsApp/Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dwelling-pinpointing-the-top-20-social-media-havens/"><u>Digital Dwelling: Pinpointing the Top 20 Social Media Havens</u></a></li>
-<li><a href="https://facebook.techidaily.com/disconnecting-facebooks-impact-analysis/"><u>Disconnecting: Facebook's Impact Analysis</u></a></li>
-<li><a href="https://facebook.techidaily.com/diversifying-digital-dialogue-not-just-messenger/"><u>Diversifying Digital Dialogue: Not Just Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/do-smartphones-unwittingly-broadcast-your-preferences/"><u>Do Smartphones Unwittingly Broadcast Your Preferences?</u></a></li>
-<li><a href="https://facebook.techidaily.com/echoes-of-friendship-retrospective-on-fb-connections/"><u>Echoes of Friendship: Retrospective on FB Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-tactics-removing-distasteful-pages-from-your-facebook-hub/"><u>Effective Tactics: Removing Distasteful Pages From Your Facebook Hub</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/essential-key-finder-products-to-watch/"><u>Essential Key Finder Products to Watch</u></a></li>
-<li><a href="https://fox-access.techidaily.com/exclusive-discoveries-prime-websites-and-methods-to-download-tamil-ringtone-files-for-2024/"><u>Exclusive Discoveries Prime Websites & Methods to Download Tamil Ringtone Files for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/exploring-the-differences-cat5-vs-cat6-network-wires/"><u>Exploring the Differences: Cat5 vs Cat6 Network Wires</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-oppo-reno-9a-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Oppo Reno 9A to iPhone | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Itel P40? | Dr.fone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/transform-your-livestreaming-game-with-manycam-top-features-of-a-professional-virtual-webcam-solution/"><u>Transform Your Livestreaming Game with ManyCam: Top Features of a Professional Virtual Webcam Solution</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-mastering-social-media-key-apps-for-professional-ig-videographers/"><u>[Updated] 2024 Approved Mastering Social Media Key Apps for Professional IG Videographers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-simplified-ratio-changes-on-web-dev-platforms/"><u>[Updated] Simplified Ratio Changes on Web Dev Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-watch-reveals-two-cameras-option-in-question/"><u>Facebook Watch Reveals, Two Cameras Option in Question</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-easy-to-follow-steps-crafting-animated-gifs-from-youtube-content-pcmobile/"><u>In 2024, Easy-to-Follow Steps Crafting Animated GIFs From YouTube Content (PC/Mobile)</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-vivo-y36-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Vivo Y36 Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unleashing-imagination-creating-motion-pictures-with-windows-movie-maker/"><u>In 2024, Unleashing Imagination Creating Motion Pictures with Windows Movie Maker</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-access-regaining-control-of-a-missing-facebook-code/"><u>Mastering Access: Regaining Control of a Missing Facebook Code</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-the-art-of-influential-hashtags-on-ig-for-2024/"><u>Mastering the Art of Influential Hashtags on IG for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/national-sentiment-on-sns-detriments-outweigh-advantages/"><u>National Sentiment on SNS: Detriments Outweigh Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/scaling-up-social-reach-by-targeting-various-fb-clusters/"><u>Scaling Up Social Reach by Targeting Various FB Clusters</u></a></li>
 </ul></div>
 

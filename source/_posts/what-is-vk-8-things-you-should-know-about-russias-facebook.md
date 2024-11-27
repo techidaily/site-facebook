@@ -1,7 +1,7 @@
 ---
 title: What Is VK? 8 Things You Should Know About Russia's Facebook
-date: 2024-09-01T03:47:18.115Z
-updated: 2024-09-02T03:47:18.115Z
+date: 2024-11-23T14:04:40.501Z
+updated: 2024-11-26T21:25:54.733Z
 tags:
   - facebook
 categories:
@@ -23,11 +23,19 @@ thumbnail: https://thmb.techidaily.com/34983eeb01d46447a2aa80e2d1b0eee6f876f5349
 
 ![VK is the most popular social media site in Russia.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit:[Statista](https://www.statista.com/statistics/284447/russia-social-network-penetration/)
 
  With Facebook coming in at number four (behind VK and other popular social media sites Odnoklassniki and Instagram), VK actually has its closest competitor beat by nearly twofold in terms of monthly messages and posts exchanged between users.
 
  According to[Alexa](https://www.alexa.com/topsites/countries/RU) , VK is the third most-visited site in Russia, right behind Google and YouTube; the site's daily mobile audience peaks at nearly 45 million visitors on average.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. VK is More Popular With Young Users
 
@@ -43,9 +51,6 @@ Some potential explanations for this difference include:
 * The site's tendency to encourage users to expand their social circles, as opposed to remaining only in the ones that they are already a part of.
 * The popularity of the social media site Odnoklassniki with older Russian adults.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. VK Offers a Lot In Terms of Profile Creation
 
  Facebook as a company tends to encourage users to populate their timelines with the latest on their lives, as opposed to creating an extremely specific profile of general information about themselves.
@@ -54,18 +59,12 @@ Some potential explanations for this difference include:
 
 ![Creating a profile on VK.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk-social-media.png)
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
  To name one example, the sign-up process asks that you add your education to your profile. I expected to drop my university's name in and move on.
 
  This website actually continued to show me a list of the individual schools and colleges within my university; some of these were departments that even I had never heard of. After that, it asked me my major and even went on to specify which emphasis I chose for my degree.
 
  This level of detail carries over to nearly every part of your profile. By collecting data in this way, VK can unite me not only with others in my graduating class currently living in my city, but with those who participated in my program of study specifically.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. VK Has a Complicated Political History
 
  Just like Facebook, VK was created by a young person, fresh out of college. Pavel Durov enjoyed a lot of success before running into trouble with the law in 2012.
@@ -75,8 +74,9 @@ Some potential explanations for this difference include:
  Needless to say, things got complicated. Durov was eventually coerced into forfeiting his stake in the company in 2014\. Everything went to Alisher Usmanov, the richest man in Russia at the time.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Russian Users Believe VK is Better than Facebook
 
  Call it a healthy sense of nationalism or simply a matter of convenience, most Russians simply prefer VK to Facebook. Sorry, Mark Zuckerberg.
@@ -85,14 +85,15 @@ Some potential explanations for this difference include:
 
  Related:[The Top 20 Social Media Apps and Sites in 202](https://www.makeuseof.com/tag/top-social-media-apps-sites/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. VK Has Suffered Major Security Breaches
 
  In June 2016, VK actually experienced a significant[security breach](https://www.makeuseof.com/historic-data-breaches/) , exposing the data of over 171 million users.
 
  Included in the spoils: names, email addresses, passwords, and other sensitive contact information, all found being sold on the dark web shortly after. VK isn't the first, nor the last. Still, it makes you think. We should always be careful about what we share online, even on a website as huge as this one.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. The Most Common Password on VK is "123456"
 
@@ -107,8 +108,9 @@ Some potential explanations for this difference include:
 ![The VK sign-up page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vkontakte.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  In fact, based on VK's current website design, you might assume you were on Facebook a few years ago.
 
  Related:[How to Get the Old Facebook Layout Back... It's Easy!](https://www.makeuseof.com/how-to-get-old-facebook-layout-back/)
@@ -125,14 +127,11 @@ Some potential explanations for this difference include:
 
  If you've got friends in Russia or Ukraine, this site is a great way to connect. Even if you don't, the brand's legacy offers westerners an uncanny glimpse through the looking glass. We could have sworn that we were staring at a circa 2014 Facebook splash page immediately after logging on.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,4 +140,26 @@ Some potential explanations for this difference include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-mastering-the-art-of-srt-postings-a-guide-for-platform-specific-strategies-for-2024/"><u>[New] Mastering the Art of SRT Postings A Guide for Platform-Specific Strategies for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-create-magic-download-premium-soundscapes-now/"><u>[Updated] Create Magic Download Premium Soundscapes Now!</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-best-no-pressure-pc-games-guide/"><u>2024 Approved Best No-Pressure PC Games Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-downside-how-social-sites-affect-us/"><u>Exploring the Downside: How Social Sites Affect Us</u></a></li>
+<li><a href="https://fox-info.techidaily.com/for-the-curious-young-and-novice-pilot-the-10-best-drones/"><u>For the Curious Young and Novice Pilot - The 10 Best Drones</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-gone-but-not-forgotten-archiving-and-eventually-removing-your-fb-page/"><u>Guide to Gone But Not Forgotten: Archiving and Eventually Removing Your FB Page</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-samsung-galaxy-m14-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Samsung Galaxy M14 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/improve-visual-output-update-hp-graphics-in-windows-11/"><u>Improve Visual Output: Update HP Graphics in Windows 11</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-capture-live-camera-feed-in-vlc-media-player/"><u>In 2024, Capture Live Camera Feed in VLC Media Player</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-motorola-edge-40-pro-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Motorola Edge 40 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/mapping-out-your-journey-redefining-online-identifiers-on-facebook/"><u>Mapping Out Your Journey: Redefining Online Identifiers on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-social-media-impact-elevating-shares-on-fb/"><u>Maximizing Social Media Impact: Elevating Shares on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-access-facebook-login-failures/"><u>Regaining Access: Facebook Login Failures</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-profile-against-scam-artists-on-facebook/"><u>Securing Your Profile Against Scam Artists on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-crackdown-on-unreliable-information-spreaders/"><u>Social Media Crackdown on Unreliable Information Spreaders</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-great-debate-unveiling-differences-between-ipad-pro-and-macbook-pro-models/"><u>The Great Debate: Unveiling Differences Between IPad Pro & MacBook Pro Models</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-services-provided-by-facebook-help-center/"><u>Unlocking Services Provided by Facebook Help Center</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/unveiling-the-art-of-quiet-video-capture-methods/"><u>Unveiling the Art of Quiet Video Capture Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-vk-essential-facts-on-russias-social-network/"><u>What Is VK?: Essential Facts on Russia’s Social Network</u></a></li>
+</ul></div>
 

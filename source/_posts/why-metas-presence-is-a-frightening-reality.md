@@ -1,7 +1,7 @@
 ---
 title: Why Meta's Presence Is a Frightening Reality
-date: 2024-11-10T16:16:27.423Z
-updated: 2024-11-17T16:02:42.663Z
+date: 2024-11-23T10:28:24.174Z
+updated: 2024-11-26T20:35:11.890Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. An Entrapping Social Media Monopoly
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
@@ -48,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
 
 ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  With great monopoly comes great power. Meta's powers are enormous. Only a few private companies can measure up to its global influence. The company controls some of the world's most important digital communication tools. With over a quarter of the world's population using their apps, Meta holds a rare power over how the world communicates.
 
  Perhaps much more concerning is the fact that a disproportionate amount of this power rests on one individual—Mark Zuckerberg. According to this[SEC document](https://www.sec.gov/Archives/edgar/data/1326801/000132680118000022/facebook2018definitiveprox.htm) , Zuckerberg controls around 60% of Meta's voting power, effectively bestowing on him dictatorial powers over the billions of people that use Meta's product.
@@ -56,22 +64,13 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
 
  As evidenced in the buildup to the last two US presidential elections, filtered information can positively or negatively influence global outcomes. Consequently, Meta can easily influence global culture by controlling the kind of information billions of people have access to. That much power, if unchecked, is potentially dangerous.
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. A Privacy Dilemma
 
 ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
 
@@ -82,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
  If you use Facebook services, Meta has a complete history of where you've been for at least the last year. Once you've signed up with any of Meta's products, you become tracked indefinitely. Facebook, for instance, tracks you even when you're not actively using any of its products. It does this through data-sharing agreements with hundreds of tech companies whose apps you're likely using as well.
 
 ![Off Facebook Activity lets you view and control what facebook knows about you through third party websites and apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/05/facebook-privacy-off-facebook-activity.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ​​​​​​
 
@@ -98,20 +101,10 @@ Not convinced?
 ![Screenshot_20211223-204847](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204847.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
 
@@ -120,13 +113,6 @@ Close
  You might be surprised just how much information Meta is getting on you.
 
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the[New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Stay Conscious of Meta's Influence
 
@@ -151,18 +137,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-recording-games-like-a-pro-discover-the-best-of-windows-11-methods/"><u>[New] 2024 Approved Recording Games Like a Pro Discover the Best of Windows 11 Methods</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-best-beams-microphones-for-education-for-2024/"><u>[New] Best Beams Microphones for Education for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/embrace-music-anywhere-spotify-miniplayer-within-the-facebook-app/"><u>Embrace Music Anywhere: Spotify Miniplayer Within the Facebook App</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/expert-guide-to-overcoming-realtek-alc887-hd-audio-driver-challenges-on-pcs/"><u>Expert Guide to Overcoming Realtek ALC887 HD Audio Driver Challenges on PCs</u></a></li>
-<li><a href="https://facebook.techidaily.com/mysterious-mingle-fb-friends-veil-techniques/"><u>Mysterious Mingle: FB Friends Veil Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-users-whatsapp-clashes-with-government-law/"><u>Protecting Users, WhatsApp Clashes with Government Law</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolved-writing-failure-in-the-referenced-0xmemory-address/"><u>Resolved: Writing Failure in the Referenced 0xMemory Address</u></a></li>
-<li><a href="https://win11.techidaily.com/resolving-usb-recognition-failures-on-windows-11/"><u>Resolving USB Recognition Failures on Windows 11</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solved-overcoming-silent-screens-fixing-audio-glitches-in-discord-sharing-feature/"><u>Solved! Overcoming Silent Screens: Fixing Audio Glitches in Discord Sharing Feature</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/tailored-techniques-to-cut-off-unwanted-youtube-content-on-devices-for-2024/"><u>Tailored Techniques to Cut Off Unwanted YouTube Content on Devices for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-essential-studio-handbook-xvideo-studio-guide/"><u>The Essential Studio Handbook XVideo Studio Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/to-connect-or-not-the-pros-and-cons-of-facebook-powered-account-access/"><u>To Connect or Not: The Pros & Cons of Facebook-Powered Account Access</u></a></li>
-<li><a href="https://article-tips.techidaily.com/top-tips-for-efficient-macos-sierra-system-updates-for-2024/"><u>Top Tips for Efficient macOS Sierra System Updates for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-futures-canvas-unveiling-6-pioneers-of-nft-artistry/"><u>[Updated] In 2024, The Future's Canvas Unveiling 6 Pioneers of NFT Artistry</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/capability-meets-durability-in-the-radpower-radcity-5plus-review-an-electric-bike-that-packs-a-punch-and-weighs-more-than-you-expect/"><u>Capability Meets Durability in the RadPower RadCity 5+ Review: An Electric Bike That Packs a Punch and Weighs More Than You Expect</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/comprehensive-tutorial-how-to-edit-gif-images-with-text-on-various-platforms-including-windows-macos-mobile-devices-and-online-tools/"><u>Comprehensive Tutorial: How to Edit GIF Images with Text on Various Platforms Including Windows, macOS, Mobile Devices, and Online Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-personal-brand-through-engagement/"><u>Elevating Personal Brand Through Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-audience-peak-time-to-review/"><u>Facebook's Audience Peak: Time to Review?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/leading-the-way-in-personal-trail-tracking-drone-innovation-for-2024/"><u>Leading the Way in Personal Trail-Tracking Drone Innovation for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-mindful-choices-on-your-internet-usage-plan/"><u>Making Mindful Choices on Your Internet Usage Plan</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/navigating-the-world-of-hulu-recordings-windowsmaciosandroid-for-2024/"><u>Navigating the World of Hulu Recordings Windows/Mac/iOS/Android for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/photographic-renaissance-through-stellars-new-softwares/"><u>Photographic Renaissance Through Stellar's New Softwares</u></a></li>
+<li><a href="https://facebook.techidaily.com/pro-and-con-analysis-using-facebook-as-a-hub-for-events/"><u>Pro and Con Analysis: Using Facebook as a Hub for Events</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/solving-common-issues-a-step-by-step-guide-to-successful-windows-10-installation/"><u>Solving Common Issues: A Step-by-Step Guide to Successful Windows 10 Installation</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthening-bonds-learn-more-from-friendly-chatting-games/"><u>Strengthening Bonds: Learn More From Friendly Chatting Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-free-transformation-why-you-should-abandon-facebooks-online-world/"><u>Tech-Free Transformation: Why You Should Abandon Facebook's Online World</u></a></li>
+<li><a href="https://win-trending.techidaily.com/techniken-zur-reparatur-defekter-partitionen-in-windows-11-professionelle-tipps-und-tricks/"><u>Techniken Zur Reparatur Defekter Partitionen in Windows 11: Professionelle Tipps Und Tricks</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-updated-method-to-bypass-poco-frp-by-drfone-android/"><u>The Updated Method to Bypass Poco FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiny-player-big-impact-spotify-on-the-go-with-facebook/"><u>Tiny Player Big Impact: Spotify on the Go with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-digital-identity-an-in-depth-study-of-your-fb-interactions/"><u>Unmasking Digital Identity: An In-Depth Study of Your FB Interactions</u></a></li>
 </ul></div>
 

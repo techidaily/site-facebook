@@ -1,7 +1,7 @@
 ---
 title: The Road Ahead for Silicon Valley After Antitrust Overhaul
-date: 2024-11-15T17:38:19.268Z
-updated: 2024-11-17T17:53:28.279Z
+date: 2024-11-24T11:46:16.136Z
+updated: 2024-11-27T00:26:37.391Z
 tags:
   - facebook
 categories:
@@ -30,16 +30,13 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What Are the Five Antitrust Bills?
 
@@ -48,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -60,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
  In short, this antitrust bill will ban companies from preferring their own products or services unfairly on their marketplace platforms. "Choosing" winners or losers will become a thing of the past.
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
@@ -83,13 +88,6 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
 In essence: leave the selling to the sellers.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -101,10 +99,7 @@ In essence: leave the selling to the sellers.
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
@@ -112,10 +107,7 @@ In essence: leave the selling to the sellers.
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
@@ -151,18 +143,24 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-redefining-cinematic-exploration-via-vr/"><u>[New] In 2024, Redefining Cinematic Exploration via VR</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-dive-into-digital-friendship-start-your-facebook-journey-for-2024/"><u>[Updated] Dive Into Digital Friendship Start Your Facebook Journey for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-concealed-expressions-in-messenger-correspondence/"><u>Deciphering Concealed Expressions in Messenger Correspondence</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-social-medias-sustainability-the-case-for-fb/"><u>Deciphering Social Media’s Sustainability: The Case for FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-facebooks-revenue-sharing-for-melodies/"><u>Demystifying Facebook’s Revenue Sharing for Melodies</u></a></li>
-<li><a href="https://facebook.techidaily.com/differentiating-between-profile-and-username-ids-on-networks/"><u>Differentiating Between Profile and Username IDs on Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/download-private-fb-memories-without-breaking-rules/"><u>Download Private FB Memories Without Breaking Rules</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-strategies-to-connect-with-clients-on-facebook-professionally/"><u>Effective Strategies to Connect with Clients on Facebook Professionally</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Vivo V30 Pro? | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/inquiring-into-the-unconventional-choices-in-nw-ws623/"><u>Inquiring Into the Unconventional Choices in NW-WS623</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/telefonfunktion-nach-ios-16-update-ist-ihr-iphone-noch-funktionsfahig/"><u>Telefonfunktion Nach iOS 16-Update: Ist Ihr iPhone Noch Funktionsfähig?</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/universal-approach-how-to-record-any-youtube-stream-on-different-devices-for-2024/"><u>Universal Approach How To Record Any YouTube Stream on Different Devices for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/zipped-source-sorted-srt-converting-with-ease/"><u>Zipped Source, Sorted Srt Converting with Ease</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-ultimate-video-mastery-for-professional-vimeo-users-for-2024/"><u>[Updated] Ultimate Video Mastery for Professional Vimeo Users for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-ultimate-selection-the-10-best-apps-for-smartphone-video-calls/"><u>2024 Approved Ultimate Selection The 10 Best Apps for Smartphone Video Calls</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-which-screen-recorder-delivers-more-insights-into-bandicam-vs-camtasia/"><u>2024 Approved Which Screen Recorder Delivers More? Insights Into Bandicam vs Camtasia</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-home-a-breakdown-of-the-latest-ui-changes/"><u>Facebook's New Home: A Breakdown of the Latest UI Changes</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-screen-lock-pin-on-samsung-galaxy-s23plus-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Samsung Galaxy S23+ Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-smart-spending-on-action-cams-find-your-bargains-under-100/"><u>In 2024, Smart Spending on ACTION Cams Find Your Bargains Under $100</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovation-in-action-facebook-and-rust-collaborate-on-code-language/"><u>Innovation in Action: Facebook & Rust Collaborate on Code Language</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-enables-2fa-via-whatsapp-for-secure-access/"><u>Instagram Enables 2FA via WhatsApp for Secure Access</u></a></li>
+<li><a href="https://media-tips.techidaily.com/leading-hd-quality-audio-players-best-options-for-apple-and-pc-users/"><u>Leading HD Quality Audio Players: Best Options for Apple and PC Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-self-removal-from-facebook-photo-archives/"><u>Mastering Self-Removal From Facebook Photo Archives</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mohuleaf30tvantenna-the-ultimate-balance-of-cost-efficiency-and-reliable-performance-reviewed/"><u>MohuLeaf30TVAntenna - The Ultimate Balance of Cost-Efficiency and Reliable Performance Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/reposition-online-self-image-via-page-redesign/"><u>Reposition Online Self-Image via PAGE Redesign</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-privacy-for-passed-on-friends-on-social-media/"><u>Securing Privacy for Passed On Friends on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-details-for-your-youngsters-facebook-messenger/"><u>Streamlining Details for Your Youngster’s Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-making-of-moolah-the-essential-role-of-metrics-in-creative-earnings/"><u>The Making of Moolah: The Essential Role of Metrics in Creative Earnings</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/trending-picture-tales-history-revealed-for-2024/"><u>Trending Picture Tales History Revealed for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unleashing-the-power-of-voice-ms-words-speech-recognition-features/"><u>Unleashing the Power of Voice MS Word's Speech Recognition Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebook-truths-the-reality-behind-10-misconceptions/"><u>Unveiling Facebook Truths: The Reality Behind 10 Misconceptions</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/what-is-chatgpts-custom-instructions-feature-and-what-can-you-do-with-it/"><u>What Is ChatGPT's Custom Instructions Feature and What Can You Do With It?</u></a></li>
 </ul></div>
 

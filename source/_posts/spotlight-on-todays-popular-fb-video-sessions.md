@@ -1,7 +1,7 @@
 ---
 title: Spotlight on Today's Popular FB Video Sessions
-date: 2024-11-16T17:29:11.294Z
-updated: 2024-11-17T17:50:28.053Z
+date: 2024-11-25T21:17:57.182Z
+updated: 2024-11-26T23:48:00.930Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/95c7607cc85834758f594e36f86b8274633568f32
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Recently Watched Facebook Videos on the Web
 
  Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to[find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
@@ -37,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/95c7607cc85834758f594e36f86b8274633568f32
 4. Select the**Videos you've watched** option.  
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 That's it. Here you will find all the recently watched videos.
 
  You can also delete a video from the history. To delete an individual video from the history, click on the**three dots** next to the video's thumbnail and choose**Delete** .
@@ -44,13 +52,6 @@ That's it. Here you will find all the recently watched videos.
 ![Delete option to delete individual video from FB watch history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Delete-option.jpg)
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Filter Facebook Watched Videos by Date on the Web
 
@@ -61,16 +62,13 @@ That's it. Here you will find all the recently watched videos.
 ![Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date-option.jpg)
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to View Recently Watched Facebook Videos on Android and iOS
 
@@ -82,6 +80,10 @@ That's it. Here you will find all the recently watched videos.
 
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
 1. Launch the Facebook app on your iOS or Android device and log in to your account.
@@ -92,13 +94,6 @@ Close
 6. On the Activity log page, slide the available activities to the left and choose the**Videos watched** option.
 
  You'll now see all the videos you recently watched on your Facebook app.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Filter Facebook Watched Videos by Date on Android and iOS
 
@@ -116,10 +111,7 @@ Close
 4. Enter the**Start** and**End** date. Then, click**Done** .
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
@@ -141,14 +133,15 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/uick-info-on-short-form-media-for-2024/"><u>[New] Quick Info on Short Form Media for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-from-concept-to-completion-the-artisans-guide-to-gifs/"><u>[Updated] 2024 Approved From Concept to Completion The Artisan's Guide to GIFs</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-easyshadecleanse-professionally-crafted-erase-software-for-2024/"><u>[Updated] EasyShadeCleanse Professionally Crafted Erase Software for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-economical-audience-expansion-buy-subscribers-not-time/"><u>[Updated] In 2024, Economical Audience Expansion Buy Subscribers, Not Time</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-under-fire-protests-lead-to-decrease-in-app-ratings/"><u>Facebook Under Fire: Protests Lead to Decrease in App Ratings</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-facebook-for-professional-engagement-and-growth/"><u>Leveraging Facebook for Professional Engagement & Growth</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-first-evade-these-3-spying-apps/"><u>Privacy First: Evade These 3 Spying Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-social-media-experience-with-smart-photo-descriptions/"><u>Transforming Social Media Experience with Smart Photo Descriptions</u></a></li>
-<li><a href="https://article-helps.techidaily.com/unveiling-professional-techniques-for-aps-hdr-creation-for-2024/"><u>Unveiling Professional Techniques for APS HDR Creation for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-boost-engagement-by-personalizing-your-twitter-videos-with-new-thumbnails/"><u>[New] 2024 Approved Boost Engagement by Personalizing Your Twitter Videos with New Thumbnails</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-transform-your-imagery-with-these-mobile-montage-leaders/"><u>[Updated] Transform Your Imagery with These Mobile Montage Leaders</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-10-premier-choices-for-no-cost-screen-recording-tools/"><u>2024 Approved 10 Premier Choices for No-Cost Screen Recording Tools</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/guia-paso-a-paso-para-recuperar-una-particion-efi-eliminada-en-windows-10-con-dos-soluciones-practicas/"><u>Guía Paso a Paso Para Recuperar Una Partición EFI Eliminada en Windows 10 Con Dos Soluciones Prácticas</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-listen-to-spotify-without-leaving-the-facebook-app/"><u>How to Listen to Spotify Without Leaving the Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/nbafire-up-on-both-platforms-this-year/"><u>NBAFire Up on Both Platforms This Year</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/optimizing-your-creative-process-windows-movie-maker-on-windows-8-unveiled/"><u>Optimizing Your Creative Process Windows Movie Maker on Windows 8 Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-login-process-with-whatsapps-instagram-2fa-code-support/"><u>Streamline Login Process with WhatsApp's Instagram 2FA Code Support</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-the-missing-d3dx9e933dll-issue/"><u>Troubleshooting the Missing d3dx9_e9_33.dll Issue</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-not-facebook-the-perspective-on-longevity/"><u>Why Not Facebook: The Perspective on Longevity</u></a></li>
 </ul></div>
 

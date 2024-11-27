@@ -1,7 +1,7 @@
 ---
 title: Present Investors in Facebook
-date: 2024-09-01T03:43:17.493Z
-updated: 2024-09-02T03:43:17.493Z
+date: 2024-11-25T00:03:37.018Z
+updated: 2024-11-27T02:20:22.448Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/270179364474a44da1eaeda7613c10f10260fff7a
 
  The rebranding raises a number of intriguing questions, such as who now owns Facebook? We'll answer that question in this article, while taking a quick trip down memory lane to figure out how we got here.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## From The Facebook To Meta
 
  In 2004, Mark Zuckerberg, Eduardo Saverin, Dustin Moskovitz, and Chris Hughes, all Harvard students, founded Facebook. Facebook's popularity grew quickly, and by the end of 2004, it had surpassed one million active users.
@@ -29,9 +33,17 @@ thumbnail: https://thmb.techidaily.com/270179364474a44da1eaeda7613c10f10260fff7a
 
  Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Who Owns Facebook Now?
 
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
 
@@ -44,9 +56,9 @@ thumbnail: https://thmb.techidaily.com/270179364474a44da1eaeda7613c10f10260fff7a
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Did Facebook Rebrand to Meta?
 
  Facebook's rebrand happened because the brand outgrew the identity that it had come to be known for.
@@ -56,22 +68,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Zuckerberg Still (Largely) Owns Meta
 
  The governing structure of Facebook, or Meta as it is now called, remains unchanged despite the rebranding. Zuckerberg, with his Class B share majority, still maintains his iron grip on Facebook.
 
  Zuckerberg will remain in charge of Facebook until he sells his shares or the shares' power gets diluted. The Meta rebrand is a change in name but not much else.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,4 +90,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/updated-fanfare-gaming-patch/"><u>[Updated] Fanfare Gaming Patch</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-the-spectacular-journey-of-q500s-4k/"><u>2024 Approved The Spectacular Journey of Q500's 4K</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/apple-leads-in-customer-happiness-rankings-as-samsung-closes-distance-insights-from-zdnet/"><u>Apple Leads in Customer Happiness Rankings, as Samsung Closes Distance – Insights From ZDNet</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/detailed-analysis-comparing-oando-diskimage-with-acronis-true-image-for-optimal-data-protection/"><u>Detailed Analysis: Comparing O&O DiskImage with Acronis True Image for Optimal Data Protection</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/expert-insights-streamlining-your-searches-with-google-gemini/"><u>Expert Insights: Streamlining Your Searches with Google Gemini</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-events-on-facebook/"><u>How to Create Events on Facebook</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-art-of-package-revelation-amplifying-initial-impressions/"><u>In 2024, The Art of Package Revelation Amplifying Initial Impressions</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-hiatus-recommended-by-social-networking-giant/"><u>Instagram Hiatus Recommended by Social Networking Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-increase-of-crypto-on-fb-and-ig-ads/"><u>Navigating the Increase of Crypto on FB & IG Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-tech-regulations-questioned-by-whatsapp-in-court-case/"><u>New Tech Regulations Questioned by WhatsApp in Court Case</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/snappy-solution-seconds-for-ssgnature-bg-purge-for-2024/"><u>Snappy Solution Seconds for Ssgnature BG Purge for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-10-best-text-plugins-for-ae-users-for-2024/"><u>Top 10 Best Text Plugins for AE Users for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-social-media-potential-with-imagery/"><u>Unlocking Social Media Potential with Imagery</u></a></li>
+<li><a href="https://facebook.techidaily.com/updating-group-standards-for-effective-community-engagement/"><u>Updating Group Standards for Effective Community Engagement</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/winning-against-windowss-0x80070490-update-error-comprehensive-fix-strategies/"><u>Winning Against Windows's 0X80070490 Update Error: Comprehensive Fix Strategies</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Identifying Your Facebook Followers
-date: 2024-11-12T16:20:39.685Z
-updated: 2024-11-17T16:06:35.410Z
+date: 2024-11-22T01:33:44.961Z
+updated: 2024-11-27T07:09:20.891Z
 tags:
   - facebook
 categories:
@@ -30,9 +30,17 @@ thumbnail: https://thmb.techidaily.com/e8207335add140aa41173bc907c1a473d602bd8fa
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook profile followers section](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile-followers-section-1.jpeg)
 
 ![Facebook number of followers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/-Facebook-number-of-followers.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -42,6 +50,10 @@ Close
 2. In the profile menu, tap**See Your About Info** .
 3. Scroll to the bottom of the page. Then under**Followers** , tap**See all** to load a list of all your Facebook followers.
 4. Look to the top-right corner of the page (opposite**Followers**) to see the number of people that follow you on Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to See Your Followers on Facebook on a Desktop Browser
 
@@ -56,10 +68,7 @@ Close
 3. From the dropdown list, select**Followers** to view all your Facebook followers.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can't See Your Facebook Followers? Here's Why
@@ -71,13 +80,6 @@ Close
  You may also not get this option if your Facebook account is new, as you likely don't have any followers yet. Or you might need to[switch to a different Facebook account](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) .
 
  Another possible reason is your current account privacy setting might not allow people to follow you on Facebook—we'll explain how to change this below.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Allow People to Follow You on Facebook
 
@@ -95,21 +97,11 @@ To do this on the desktop browser:
 ![Facebook homepage profile icon settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-homepage-profile-icon-settings.jpg)
 4. From the left sidebar of the Settings menu, click**Privacy** .  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook profile settings privacy option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-settings-privacy-option.jpg)
 5. Select**Public Posts** from the left sidebar.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 6. Look to the right of the**Who Can Follow Me** option and click the**Friends** dropdown.
@@ -119,6 +111,10 @@ To do this on the desktop browser:
 To change your followers' preference on the Facebook mobile app:
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile-2.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-settings-menu.jpeg)
 
@@ -152,21 +148,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-fast-film-techniques-taking-screens-on-a-dell/"><u>[New] Fast Film Techniques Taking Screens on a Dell</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-enhancing-visuals-iphone-magnification-hacks/"><u>[Updated] In 2024, Enhancing Visuals IPhone Magnification Hacks</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-fb-ad-videos-made-easy-utilize-free-video-making-kit/"><u>[Updated] In 2024, FB Ad Videos Made Easy Utilize Free Video-Making Kit</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-room-and-pc-readiness-for-immersive-vr-with-oculus/"><u>[Updated] Room & PC Readiness for Immersive VR with Oculus</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-inside-look-fundamentals-of-asmr-videos/"><u>2024 Approved Inside Look Fundamentals of ASMR Videos</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/awaken-your-inner-warrior-with-these-films/"><u>Awaken Your Inner Warrior with These Films</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/boosting-sales-the-top-20-words-and-phrases-in-marketing/"><u>Boosting Sales The Top 20 Words and Phrases in Marketing</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-recover-deleted-facebook-posts/"><u>How to Recover Deleted Facebook Posts</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Motorola Moto E13 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/join-facebooks-metaverse-creation-seeking-10k-talents/"><u>Join Facebook's Metaverse Creation - Seeking 10K Talents!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/making-your-channels-subscribe-button-pop/"><u>Making Your Channel's Subscribe Button Pop</u></a></li>
-<li><a href="https://facebook.techidaily.com/post-away-from-pics-lessons-learned-in-disconnecting/"><u>Post Away From Pics: Lessons Learned in Disconnecting</u></a></li>
-<li><a href="https://facebook.techidaily.com/sheryl-sandbergs-tech-empire-expansion-beginnings/"><u>Sheryl Sandberg’s Tech Empire Expansion Beginnings</u></a></li>
-<li><a href="https://facebook.techidaily.com/tapping-into-personal-memories-on-facebook-today/"><u>Tapping Into Personal Memories on Facebook Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/testing-marketing-potential-sticker-ads-in-story-formats-on-fbinsta/"><u>Testing Marketing Potential: Sticker Ads in Story Formats on FB/Insta</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-covert-concept-of-acceptance-on-fb-networks/"><u>The Covert Concept of Acceptance on FB Networks</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solved-how-to-uninstall-amd-driver-to-fix-problem-in-windows/"><u>[Solved] How to Uninstall AMD Driver to Fix Problem in Windows</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solved-microsoft-teams-mic-not-working-on-windows-1110/"><u>[SOLVED] Microsoft Teams Mic Not Working on Windows 11/10</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-jumpstart-with-vrecorder-easy-installation-walkthrough/"><u>[Updated] 2024 Approved Jumpstart with VRecorder Easy Installation Walkthrough</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-crafting-news-end-credits-a-step-by-step-guide/"><u>[Updated] Crafting News End Credits A Step-by-Step Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-striking-14-text-animation-illustrations-for-2024/"><u>[Updated] Striking 14 Text Animation Illustrations for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/empower-yourself-learn-ai-at-no-cost-through-15-customized-self-paced-webinars-by-lifewire/"><u>Empower Yourself: Learn AI at No Cost Through 15 Customized Self-Paced Webinars by Lifewire</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-connection-the-perks-of-social-groupings-online/"><u>Enhancing Connection: The Perks of Social Groupings Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-profile-change-your-significant-date-quickly/"><u>FB Profile - Change Your Significant Date Quickly</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/file-format-and-extension-of-filename-dont-match-in-excel-2000-file-stellar-by-stellar-guide/"><u>File Format and Extension of filename dont Match in Excel 2000 File | Stellar</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-iphone-6s-plus-system-issues-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iPhone 6s Plus System Issues? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-pioneers-next-level-personalized-simulations/"><u>Oculus Pioneers Next Level Personalized Simulations</u></a></li>
+<li><a href="https://facebook.techidaily.com/perfecting-facebook-profile-altering-significant-personal-date/"><u>Perfecting Facebook Profile: Altering Significant Personal Date</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinstating-facebook-login-in-the-wake-of-code-loss/"><u>Reinstating Facebook Login in the Wake of Code Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-social-trading-key-strategies-for-online-safety-on-fb/"><u>Secure Social Trading: Key Strategies for Online Safety on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-clearing-frozen-fb-alerts-and-posts/"><u>Strategies for Clearing Frozen FB Alerts and Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-control-of-your-online-sessions-via-facebook-alerts/"><u>Taking Control of Your Online Sessions via Facebook Alerts</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/taming-hp-screen-glitches-and-flickers/"><u>Taming HP Screen Glitches and Flickers</u></a></li>
 </ul></div>
 

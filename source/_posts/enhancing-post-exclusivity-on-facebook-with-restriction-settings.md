@@ -1,7 +1,7 @@
 ---
 title: Enhancing Post Exclusivity on Facebook with Restriction Settings
-date: 2024-11-16T17:03:11.347Z
-updated: 2024-11-17T16:17:55.042Z
+date: 2024-11-26T06:04:03.846Z
+updated: 2024-11-27T09:20:39.985Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is a Restricted List on Facebook?
 
  The Restricted list is a place for you to add your Facebook friends that you don't want to share updates with. You'll still be friends with anyone you add to the list, but they won't see your status updates or any other content you mark as being for friends only. Only posts you set as**Public** , which non-friends can already see, are visible to those on this list. They'll also be able to see any[Facebook posts you tag](https://www.makeuseof.com/tag/3-important-ways-tag-someone-facebook/) them in.
@@ -33,10 +37,7 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
  Keep in mind that adding someone to your Restricted list is not the same as[blocking them on Facebook](https://www.makeuseof.com/how-to-block-facebook/) . Blocking someone prevents them from interacting with you at all; the Restricted list only hides your posts from them.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to See Your Restricted List on Facebook
@@ -48,10 +49,7 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Restricted List](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-restricted-list-2023.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You can also add a friend to the Restricted list on their Facebook page. Visit a profile on Facebook, click the**Friends** button, and click**Edit Friend List** . Here, check the**Restricted** box to accomplish the same goal.
@@ -59,19 +57,13 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Add to Restricted list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-add-to-restricted.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  People won't get an alert when you add them to your Restricted list. But if they're knowledgeable about how Facebook works (and depending on how much you post), they might notice that they don't see as much content from you anymore. Because of this, you may wish to add someone to your Restricted list right after friending them.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Keep Your Friends at a Safe Distance
@@ -95,16 +87,19 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/decoding-facebook-follows-and-unfollows-tips-for-effective-use/"><u>Decoding Facebook Follows and Unfollows: Tips for Effective Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-fb-picture-visibility-options/"><u>Decoding FB Picture Visibility Options</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-deception-how-design-undermines-privacy/"><u>Digital Deception: How Design Undermines Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-the-benefits-of-facebooks-touch-features/"><u>Discovering the Benefits of Facebook's Touch Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-strategies-reactivating-locked-out-fb-accounts/"><u>Effective Strategies: Reactivating Locked-Out Fb Accounts</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722971370458-get-your-free-techkey-bluetooth-drivers-for-win-10-7-and-8-instant-download/"><u>Get Your Free Techkey Bluetooth Drivers for Win 10, 7 & 8 - Instant Download!</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-to-create-content-that-goes-viral-on-instagram-top-tips/"><u>How to Create Content that Goes Viral on Instagram (Top Tips)</u></a></li>
-<li><a href="https://fox-that.techidaily.com/immediate-remedies-to-reactivate-emoji-prediction-feature-on-ios-devices/"><u>Immediate Remedies to Reactivate Emoji Prediction Feature on iOS Devices</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Honor Play 7T | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Motorola Moto G84 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/top-30-free-mac-speech-to-text-software-youve-missed/"><u>Top 30 Free Mac Speech-to-Text Software You've Missed</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-crafting-audio-narratives-best-backdrop-tunes/"><u>[New] Crafting Audio Narratives Best Backdrop Tunes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-enhancing-youtube-popularity-editing-and-optimizing-content-metadata/"><u>[New] In 2024, Enhancing YouTube Popularity Editing & Optimizing Content Metadata</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-asus-rog-phone-8-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-uptime-understanding-and-tracking-status/"><u>Facebook Uptime: Understanding and Tracking Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/future-of-technology-firms-with-new-american-regulations/"><u>Future of Technology Firms with New American Regulations</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/hp-m506-laserjet-driver-installation-guide-and-update-options/"><u>HP M506 LaserJet Driver Installation Guide & Update Options</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/live-and-record-flawlessly-find-the-best-conference-tech-today/"><u>Live and Record Flawlessly - Find the Best Conference Tech Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/make-friends-start-conversations-crafting-an-avatar-themed-cover-for-facebook/"><u>Make Friends, Start Conversations: Crafting an Avatar-Themed Cover for Facebook</u></a></li>
+<li><a href="https://video-capture.techidaily.com/professional-techniques-for-webcam-integration-and-capture/"><u>Professional Techniques for WebCam Integration & Capture</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quick-install-guide-to-hd-webcam-driver-logitech-c270-windows-1011/"><u>Quick-Install Guide to HD Webcam Driver - Logitech C270, Windows 10/11</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-access-when-facebook-fails-to-send-verification-codes/"><u>Regaining Access: When Facebook Fails to Send Verification Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/survey-shows-growing-doubt-towards-technology-leaders-facebook-noted/"><u>Survey Shows Growing Doubt Towards Technology Leaders, Facebook Noted</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-leading-edge-of-tablets-discover-how-the-2018-apple-ipad-pro-11-inch-outshines-competitors/"><u>The Leading Edge of Tablets: Discover How the 2018 Apple iPad Pro (11-Inch) Outshines Competitors</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/two-easy-approaches-to-enjoy-wav-music-files-on-your-apple-device/"><u>Two Easy Approaches to Enjoy WAV Music Files on Your Apple Device</u></a></li>
 </ul></div>
 

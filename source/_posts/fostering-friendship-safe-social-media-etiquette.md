@@ -1,7 +1,7 @@
 ---
 title: "Fostering Friendship: Safe Social Media Etiquette"
-date: 2024-09-01T03:43:09.891Z
-updated: 2024-09-02T03:43:09.891Z
+date: 2024-11-22T07:17:40.906Z
+updated: 2024-11-26T22:54:48.359Z
 tags:
   - facebook
 categories:
@@ -14,6 +14,10 @@ thumbnail: https://thmb.techidaily.com/9e326dc97d7b2a04840d4bac29152fee0a09ec2e5
 ---
 
 ## Fostering Friendship: Safe Social Media Etiquette
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -29,8 +33,9 @@ thumbnail: https://thmb.techidaily.com/9e326dc97d7b2a04840d4bac29152fee0a09ec2e5
  You may have thought poking was dead on Facebook. But it turns out the feature is still there and Facebook is even trying to revive it. Here's what you need to know about poking someone on Facebook and how you can still use the feature.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is Poking on Facebook?
 
  Those who used Facebook in its early days will remember the ability to "poke" someone on Facebook to get their attention. This would essentially send a notification to the person letting them know that you poked them. But the feature was eventually buried, with Facebook leaning towards post reactions and interactions instead.
@@ -43,16 +48,14 @@ Close
 
  You should also note that you can only use the feature with friends, so the button will not appear next to the names of people you're not Facebook friends with.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## How to Poke Someone on Facebook in 2024
 
 ![friends on facebook with poke button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/friends-on-facebook-with-poke-button.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  The easiest way to poke someone on Facebook is to use the Poke button. To access this button, search for your friend's name in the Facebook mobile app. Then select the**Poke** button. Once the action has been sent, the button will change to**Poked** .
 
  If you don't see this button, or you're using the Facebook website, you can still access the poke feature in a slightly more roundabout way.
@@ -64,39 +67,33 @@ To do this, follow these steps:
 
 ![facebook pokes feature on website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/facebook-pokes-feature.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
  From this page, you can also access the poke button to send pokes to friends. Facebook will provide a list of suggested users to poke, but you can also use the search bar to look for someone specific.
 
 ![list of friends to poke on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/list-of-friends-to-poke-on-facebook.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  When you poke someone, Facebook will send the person a notification to let them know that you used the feature.
 
 ![poke notification on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/poke-notification-on-facebook-web.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  If they click on the notification, Facebook will open the poke page for you where you can poke them back. You can choose whether to continue the cycle of nudges. While the feature is slightly buried, it's an entertaining tool like[seeing a friendship history on Facebook](https://www.makeuseof.com/tag/see-relationship-history-two-people-facebook/) .
 
  Facebook does not keep a history of people you have poked in the past, but you will be able to tell who you have poked based on whether the button is available when you search their name on the poke page. This prevents someone from spamming others with pokes. You don't want poking to end up being the reason you[block someone on Facebook](https://www.makeuseof.com/how-to-block-facebook/) , after all.
 
  So if you want to catch a friend's attention or just give the feature a try, check out the poke feature on Facebook for a sense of nostalgia or a new way to attract someone's notice.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,4 +102,21 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-comparative-analysis-of-ar-stickers-focusing-on-google/"><u>[Updated] 2024 Approved Comparative Analysis of AR Stickers, Focusing on Google</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-drone-innovation-reimagined-with-the-q500-typhoon-for-2024/"><u>[Updated] Drone Innovation Reimagined with the Q500 Typhoon for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-immediate-audience-monitoring-tools/"><u>[Updated] In 2024, Immediate Audience Monitoring Tools</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-ultimate-youtuber-wealth-wonders/"><u>2024 Approved Ultimate Youtuber Wealth Wonders</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-samsung-galaxy-z-fold-5-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Samsung Galaxy Z Fold 5 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/innovative-4-app-ideas-for-simplifying-everyones-dream-home-renovation-a-touch-up-at-your-fingertips/"><u>Innovative 4 App Ideas for Simplifying Everyone's Dream Home Renovation: A Touch-Up at Your Fingertips</u></a></li>
+<li><a href="https://facebook.techidaily.com/intimate-images-and-internet-metas-preventive-policies/"><u>Intimate Images and Internet: Meta's Preventive Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-career-path-through-social-networks/"><u>Mastering Your Career Path Through Social Networks</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/monitor-doesnt-recognize-full-screen-windows-11/"><u>Monitor Doesn't Recognize Full-Screen Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-sudden-disconnects-on-friendbook-and-its-fixes/"><u>Navigating Sudden Disconnects on Friendbook & Its Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-resurgence-of-a-social-media-phenomenon/"><u>The Resurgence of a Social Media Phenomenon</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-remains-when-fb-is-gone/"><u>What Remains When FB Is Gone?</u></a></li>
+</ul></div>
 

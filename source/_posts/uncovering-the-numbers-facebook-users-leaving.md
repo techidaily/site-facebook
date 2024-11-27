@@ -1,7 +1,7 @@
 ---
 title: "Uncovering the Numbers: Facebook Users Leaving"
-date: 2024-09-01T03:47:52.940Z
-updated: 2024-09-02T03:47:52.940Z
+date: 2024-11-24T20:55:49.605Z
+updated: 2024-11-27T10:59:36.145Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/2453bc5c0249af0de921ee166f14d8e128b375913
 
  For a company that has grown so rapidly since its inception, this might come as a shock. But, what's more important is the number of users that Facebook has actually lost and if this is something they should worry about.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## So How Many Users Have Facebook Lost?
 
  The[2021 Q4 earnings report of Meta](https://app.quotemedia.com/data/downloadFiling?webmasterId=90423&ref=116418952&type=PDF&symbol=FB&companyName=Meta+Platforms+Inc.&formType=10-K&formDescription=Annual+report+pursuant+to+Section+13+or+15%28d%29&dateFiled=2022-02-03&CK=1326801) showed that Facebook’s daily active users (DAUs) have shrunk from 1.930 billion to around 1.929 billion. This means that Facebook lost between 500,000 and one million users, depending on the news source.
@@ -33,9 +37,17 @@ thumbnail: https://thmb.techidaily.com/2453bc5c0249af0de921ee166f14d8e128b375913
 
  Talking about other metrics, the monthly active users saw a rise of two million—which is again negligible. Meta’s revenue grew from $29.01 billion in Q3 2021 to $33.67 billion in the next quarter. But the lower-than-expected net income and forecast caused Meta's share price to plunge.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Mark Zuckerberg's Statement on Losing Users
 
 ![mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Credits:[Anthony Quintano via Flickr](https://www.flickr.com/photos/quintanomedia/47774197691)
 
@@ -46,19 +58,13 @@ thumbnail: https://thmb.techidaily.com/2453bc5c0249af0de921ee166f14d8e128b375913
  But TikTok is not the only[reason for Facebook's declining users](https://www.makeuseof.com/why-facebook-is-losing-users/) . Lack of interest among the younger population, no markets to expand into, and its controversial privacy and tracking policies have all contributed to this trend.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Facebook’s End Near?
 
 ![facebook logo fallen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-logo-fallen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
  A negligibly-small drop in the number of daily users, and that too for the first time, doesn’t mean that Facebook will fade away anytime soon. The Meta’s expansion into the metaverse will definitely help its flagship product, Facebook.
 
  The reason for declining users is perhaps a graver issue for the site than the drop itself. This slight dip will surely set off alarm bells within the company. Combined with pressure from authorities, the public, and competitors, Facebook might actually reconsider the policies that have brought it under scrutiny and contributed to the drop in users.
@@ -70,8 +76,9 @@ No advertising on the website.
  As it aggressively promotes Horizon Worlds, VR devices, and Reels, Facebook might regain the interest of young adults—a step which is essential to increase its user base. Moreover, a change in its privacy program and ads infrastructure can also help the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook's User Loss Is Not as Big as It Seems
 
  Losing half a million daily users, and that too for the first time in 18 years, is surely not a good sign for Facebook. But, thanks to its giant user base, this decline is only a drop in the ocean.
@@ -80,14 +87,11 @@ No advertising on the website.
 
  But only time will tell if Facebook succeeds in regaining its lost users and the interest among the younger generation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -96,4 +100,20 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-navigating-mac-screenshot-file-type-changes/"><u>[New] In 2024, Navigating Mac Screenshot File Type Changes</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-filmoras-quick-start-approach-for-youtube-trailers/"><u>[Updated] Filmora's Quick-Start Approach for YouTube Trailers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/becoming-a-true-connoisseur-of-srt-text-creation/"><u>Becoming a True Connoisseur of SRT Text Creation</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/boost-your-instagram-presence-optimal-tracking-tools-revealed-for-2024/"><u>Boost Your Instagram Presence Optimal Tracking Tools Revealed for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/deciphering-facebook-activity-understanding-your-digital-footprint/"><u>Deciphering Facebook Activity Understanding Your Digital Footprint</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/invasion-of-privacy-detecting-unauthorized-fb-access/"><u>Invasion of Privacy? Detecting Unauthorized FB Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-memories-alive-not-social-media-presence-post-death-options/"><u>Keeping Memories Alive, Not Social Media Presence - Post-Death Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-engagement-for-discreet-facebook-groups/"><u>Masked Engagement for Discreet Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-info-paradox-how-much-can-you-really-share/"><u>Personal Info Paradox: How Much Can You Really Share?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/resolving-itunes-backup-failure-issues-innovative-fixes-and-strategies/"><u>Resolving 'iTunes Backup Failure Issues: Innovative Fixes and Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-strict-rules-to-govern-online-communities/"><u>Setting Strict Rules to Govern Online Communities</u></a></li>
+<li><a href="https://win11.techidaily.com/1719347016533-unlock-your-computers-print-command-solutions-for-faulty-wwinplusp-operations/"><u>Unlock Your Computer's Print Command: Solutions for Faulty WWin+P Operations.</u></a></li>
+</ul></div>
 

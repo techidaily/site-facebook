@@ -1,7 +1,7 @@
 ---
 title: Strategies to Set Up a Supportive Social Space on FB
-date: 2024-11-13T16:25:28.614Z
-updated: 2024-11-17T18:09:53.831Z
+date: 2024-11-22T10:36:00.026Z
+updated: 2024-11-26T19:33:02.783Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,25 @@ thumbnail: https://thmb.techidaily.com/ef542613ecfd778273a563914315ea95552a0c901
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Steps to Make a Group on Facebook
 
 ![Facebook app menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318180626_1305065376700688_893057211392699849_n.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook app menu showing groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318097009_540592084597722_6156826463203386396_n.jpg)
 
 ![Facebook app add group page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318166381_2214654402059587_9156416634789261192_n.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -41,13 +53,6 @@ Close
 3. You'll get to a screen which will show you groups that are recommended to you based on the groups you follow, and you'll be able to view Your Groups from the top tabs.
 4. You'll see a**blue circle** with a cross through it on the bottom left-hand corner of the screen.
 5. Tap it and select**Create Group** .
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Customize Your Facebook Group
 
@@ -60,10 +65,7 @@ Close
  When you're finished, click**Create Group** at the bottom of the screen. You'll then be taken to a page that will allow you to invite members from your Facebook friends.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Go Live With Your Facebook Group
@@ -72,25 +74,15 @@ Close
 
 ![Choose group options when creating a group on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318477258_939639773675965_2846710644227593590_n.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Add a cover photo to a group page option on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318289485_906496730348611_983213840070343513_n.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  After that, you will be able to add a cover photo, a description, and choose from a list of goals that best describe the purpose of your group. After this, you can create your first post and look for[ways to make your Facebook group popular](https://www.makeuseof.com/tag/facebook-group-popular-weekly-facebook-tips/) .
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Making a Facebook Group Is Easy
 
@@ -111,17 +103,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-a-comprehensive-guide-to-remove-images-background-in-canva/"><u>[New] In 2024, A Comprehensive Guide to Remove Image’s Background In Canva</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-realities-await-3-concerns-of-facebooks-metaverse/"><u>Digital Realities Await - 3 Concerns of Facebook's Metaverse</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/discover-frames-top-online-resources-for-picture-edits/"><u>Discover Frames Top Online Resources for Picture Edits</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/dissecting-ai-opportunities-vs-threats-to-humanity/"><u>Dissecting AI: Opportunities vs Threats to Humanity</u></a></li>
-<li><a href="https://facebook.techidaily.com/double-tap-deception-verifying-profiles-authenticity/"><u>Double-Tap Deception: Verifying Profiles' Authenticity</u></a></li>
-<li><a href="https://facebook.techidaily.com/earn-prestige-point-paid-metas-badge/"><u>Earn Prestige Point: Paid Metas Badge</u></a></li>
-<li><a href="https://facebook.techidaily.com/effortless-integration-of-new-users-in-fb-chat/"><u>Effortless Integration of New Users in FB Chat</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-oppo-a58-4g-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Oppo A58 4G? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Methods to Change GPS Location On Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-potion-powered-pronunciation-can-voice-changer-apps-be-real-magic-search-for-other-ways/"><u>In 2024, Potion-Powered Pronunciation Can Voice Changer Apps Be Real Magic? Search for Other Ways</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/maximize-efficiency-with-wmp-for-audio-conversion/"><u>Maximize Efficiency with WMP for Audio Conversion</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/optimal-6-secure-virtual-communication-tools-for-smbs-for-2024/"><u>Optimal 6 Secure Virtual Communication Tools for SMBs for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-gotomeeting-precision-capture-across-all-platforms/"><u>[New] 2024 Approved GoToMeeting Precision Capture Across All Platforms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-professional-filming-techniques-via-youtube-studio-editor/"><u>[New] 2024 Approved Professional Filming Techniques via YouTube Studio Editor</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-crafting-unique-thumbnails-for-youtube-content/"><u>[Updated] In 2024, Crafting Unique Thumbnails for YouTube Content</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-craftsmanship-in-action-macs-5-elite-snipping-applications/"><u>2024 Approved Craftsmanship in Action Mac's 5 Elite Snipping Applications</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/comprehensive-guide-for-reinstalling-and-upgrading-intelamd-cpu-drivers-on-windows/"><u>Comprehensive Guide for Reinstalling & Upgrading Intel/AMD CPU Drivers on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbtwitters-new-sports-showcase-feature/"><u>FB/Twitter's New Sports Showcase Feature</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-boosting-user-interaction-mastering-hashtag-use-on-instagram/"><u>In 2024, Boosting User Interaction Mastering Hashtag Use on Instagram</u></a></li>
+<li><a href="https://techtrends.techidaily.com/quick-fixes-for-synchronizing-your-playstation-4-controller/"><u>Quick Fixes for Synchronizing Your PlayStation 4 Controller</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-facebook-fan-count-privacy/"><u>Securing Your Facebook Fan Count Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/silence-in-the-friend-zone-ending-fb-connections/"><u>Silence in the Friend Zone: Ending FB Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/sync-up-sports-facebook-twitter-unite-for-the-league/"><u>Sync-Up Sports: Facebook, Twitter Unite for the League</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-a-leap-in-privacy-protection-facebook-unveils-stronger-security-for-instagram-dms-and-messenger-calls/"><u>Taking a Leap in Privacy Protection: Facebook Unveils Stronger Security for Instagram DMs and Messenger Calls.</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/unlocking-audio-potential-download-plus-install-guide-for-vrecorder/"><u>Unlocking Audio Potential - Download + Install Guide for VRecorder</u></a></li>
+<li><a href="https://media-tips.techidaily.com/upgrade-your-streaming-quality-with-h265-encoding-for-stunning-hd-content-in-full-4k-resolution/"><u>Upgrade Your Streaming Quality with H.265 Encoding for Stunning HD Content in Full 4K Resolution</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Three Warnings About the Social Media Universe
-date: 2024-11-15T16:59:46.620Z
-updated: 2024-11-17T16:53:34.840Z
+date: 2024-11-22T05:29:30.758Z
+updated: 2024-11-26T23:54:31.483Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  This heightens concerns that a few tech giants will monopolize the metaverse (just as they're doing with Web 2.0), rather than fulfilling the popular utopian[vision of a metaverse](https://www.makeuseof.com/what-is-the-metaverse/) powered by a decentralized ecosystem.
 
  Although the metaverse is still in its early days, it's important to highlight[the problems Big Tech poses](https://www.makeuseof.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up-/) before it becomes irreversible.
@@ -45,10 +49,7 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  Here are some reasons why a Meta-led metaverse is something we should be worried about.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. A Privacy Nightmare
@@ -67,16 +68,13 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Another Digital Addiction for Gen Z
 
 ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
 
@@ -90,22 +88,12 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
@@ -117,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  A Meta-dominated metaverse could also spell the death of independent innovation within the metaverse. Meta's business strategies are rooted in scaling and muscling out competitors. It acquired WhatsApp and Instagram, copied Snapchat features (after failing to buy it), and[launched Instagram Reels](https://www.makeuseof.com/tag/what-is-instagram-reels/) to put a check on TikTok.
 
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Meta's Vision of the Metaverse
 
@@ -141,22 +133,24 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-enhance-your-digital-diaries-for-free-extensions-and-mobile-edition/"><u>[New] 2024 Approved Enhance Your Digital Diaries for Free – Extensions & Mobile Edition</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unlock-the-power-of-podcasts-15-task-filled-activities-to-do-while-immersing-in-your-favorite-talk-shows/"><u>[Updated] Unlock the Power of Podcasts 15 Task-Filled Activities to Do While Immersing in Your Favorite Talk Shows</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-blueprint-for-personal-transformation-renaming-you-on-facebook/"><u>A Blueprint for Personal Transformation: Renaming You on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/amazon-accusations-focus-heat-on-facebook-group-administration/"><u>Amazon Accusations Focus Heat on Facebook Group Administration</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-misinformation-on-platforms-during-pandemic/"><u>Breaking Down Misinformation on Platforms During Pandemic</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-bonds-7-social-media-techniques-for-unity/"><u>Bridging Bonds: 7 Social Media Techniques for Unity</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-the-virtual-divide-combining-your-social-accounts-on-xbox/"><u>Bridging the Virtual Divide: Combining Your Social Accounts on Xbox</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/buying-secondhand-ipads-wisely-these-5-tips-will-guide-your-decision/"><u>Buying Secondhand iPads Wisely? These 5 Tips Will Guide Your Decision</u></a></li>
-<li><a href="https://facebook.techidaily.com/communicative-chambers-a-newbies-ultimate-guide/"><u>Communicative Chambers: A Newbie’s Ultimate Guide</u></a></li>
-<li><a href="https://fox-within.techidaily.com/creative-tims-reactive-ui-suite-with-bootstrap-4-and-react-get-the-free-paper-kit-bundle-now/"><u>Creative Tim's Reactive UI Suite with Bootstrap 4 and React - Get the Free Paper Kit Bundle Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/cultivating-secure-teenage-habits-for-facebook-usage/"><u>Cultivating Secure Teenage Habits for Facebook Usage</u></a></li>
-<li><a href="https://facebook.techidaily.com/curtail-highly-focused-marketing-on-interactive-websites/"><u>Curtail Highly-Focused Marketing on Interactive Websites</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/eliminating-background-haze-on-your-youtube-greenscreen/"><u>Eliminating Background Haze on Your YouTube Greenscreen</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-missing-d3dx939dll-errors-on-your-pc-with-easy-fixes/"><u>Fixing Missing d3dX9_39.dll Errors on Your PC with Easy Fixes</u></a></li>
-<li><a href="https://win-premium.techidaily.com/how-to-restore-a-crashed-illustrator-file-recovery-steps-and-tips/"><u>How to Restore a Crashed Illustrator File - Recovery Steps & Tips</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-streamlining-revenue-adsense-tips-for-youtubers/"><u>In 2024, Streamlining Revenue AdSense Tips for YouTubers</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/introducing-the-new-and-improved-data-recovery-software-by-stellar-a-leap-towards-seamless-consumer-usability/"><u>Introducing the New and Improved Data Recovery Software by Stellar: A Leap Towards Seamless Consumer Usability</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-timeless-thread-triumphs-reddits-all-time-fave-list-top-10/"><u>[New] Timeless Thread Triumphs Reddit’s All-Time Fave List (Top 10)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-precision-zoom-youtube-video-expansion/"><u>[Updated] 2024 Approved Precision Zoom YouTube Video Expansion</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-essential-checklist-for-using-zoom-on-your-windows-pc/"><u>[Updated] The Essential Checklist for Using Zoom on Your Windows PC</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/comprehensive-strategies-to-troubleshoot-and-solve-the-500-error-code/"><u>Comprehensive Strategies to Troubleshoot and Solve the 500 Error Code</u></a></li>
+<li><a href="https://facebook.techidaily.com/expecting-facebooks-next-update-inclusion-of-reels-and-rooms-in-stories/"><u>Expecting Facebook's Next Update: Inclusion of Reels & Rooms in Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-foresees-fresh-approach-towards-teen-instagram-habits/"><u>Facebook Foresees Fresh Approach Towards Teen Instagram Habits</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/guide-rapide-pour-recuperer-des-textes-sectionnes-sur-votre-ordinateur/"><u>Guide Rapide Pour Récupérer Des Textes Sectionnés Sur Votre Ordinateur.</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/how-to-use-vlc-as-converter-to-convert-mp4-and-other-formats/"><u>How to Use VLC as Converter to Convert Mp4 and Other Formats</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-ways-to-unlock-apple-iphone-xs-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Apple iPhone XS without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-xiaomi-redmi-note-13-pro-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Xiaomi Redmi Note 13 Pro 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-quest-for-new-digital-connections-on-facebook/"><u>Mastering the Quest for New Digital Connections on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-sharing-with-technology-automatic-image-descriptors-on-fb/"><u>Seamless Sharing with Technology: Automatic Image Descriptors on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-operations-uncover-8-crowdflower-capabilities/"><u>Streamlining Operations: Uncover 8 CrowdFlower Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-12-catalysts-of-covid-19-misinformation/"><u>The 12 Catalysts of Covid-19 Misinformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-9-indicators-when-your-social-networks-are-compromised/"><u>Top 9 Indicators: When Your Social Networks Are Compromised</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlock-full-potential-of-streaming-with-dual-display-on-netflix-for-2024/"><u>Unlock Full Potential of Streaming with Dual Display on Netflix for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-calming-down-on-fb-numbers-benefits-us-all/"><u>Why Calming Down on FB Numbers Benefits Us All</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/winxdvd/"><u>WinXDVD 專業燒錄教程 - 最全面的使用手冊</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-use-meta-ai-on-instagram-and-facebook-but-should-you/"><u>You Can Now Use Meta AI on Instagram and Facebook, but Should You?</u></a></li>
 </ul></div>
 

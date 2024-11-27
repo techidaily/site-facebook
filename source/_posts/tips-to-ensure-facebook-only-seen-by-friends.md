@@ -1,7 +1,7 @@
 ---
 title: Tips to Ensure Facebook Only Seen by Friends
-date: 2024-11-14T16:03:00.880Z
-updated: 2024-11-17T16:27:46.061Z
+date: 2024-11-25T08:27:54.206Z
+updated: 2024-11-27T15:06:18.550Z
 tags:
   - facebook
 categories:
@@ -37,13 +37,14 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 ![Facebook profile info settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-info-settings-on-desktop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Lock Your Facebook Profile Down
@@ -69,13 +70,6 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Change Your Facebook Profile Discovery Settings
 
  Everyone gets the odd invite from random people, like people you went to high school with or mutual friends you don't really want to connect with. You've probably ignored a few invites for so long that you barely notice them on your Facebook account anymore. But it doesn't have to be that way.
@@ -91,10 +85,11 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Change Your Facebook Post Settings
@@ -111,10 +106,7 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Keep a Low Profile on Facebook
@@ -138,17 +130,22 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-explore-the-ultimate-selection-of-transition-apps/"><u>[New] 2024 Approved Explore the Ultimate Selection of Transition Apps</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-how-to-find-your-niche-and-style-a-starters-guide-high-cpm/"><u>[New] How to Find Your Niche and Style - a Starter's Guide [High CPM]</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-understanding-and-assessing-cloud-cost-variability/"><u>[New] Understanding & Assessing Cloud Cost Variability</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-freeze-the-action-find-these-top-9-gif-recipes-on-windows-pc/"><u>2024 Approved Freeze the Action! Find These Top 9 GIF Recipes on Windows PC</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/adding-movies-to-your-playlist-an-intuitive-process-for-youtube-users/"><u>Adding Movies to Your Playlist An Intuitive Process for YouTube Users</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-samsung-galaxy-s24-ultra-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Samsung Galaxy S24 Ultra Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/making-your-photos-secret-facebooks-privacy-haven/"><u>Making Your Photos Secret: Facebook's Privacy Haven</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-discretion-in-social-media-building-an-exclusive-fb-group/"><u>Mastering Discretion in Social Media: Building an Exclusive FB Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-hidden-values-of-virtual-networks-top-9-findings/"><u>The Hidden Values of Virtual Networks: Top 9 Findings</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-storm-ahead-for-facebook-news/"><u>The Storm Ahead for Facebook News</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-8-essential-crowdflower-tools-for-effective-marketing/"><u>Top 8 Essential CrowdFlower Tools for Effective Marketing</u></a></li>
-<li><a href="https://howto.techidaily.com/why-does-my-itel-p55-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Itel P55 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/1715860403365-updated-engaging-recorders-within-huawei-mate-and-p-series-for-video-capture/"><u>[Updated] Engaging Recorders Within Huawei Mate and P-Series for Video Capture.</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/1728475056888-windows-11hddssd/"><u>如何在Windows 11下有效地从HDD到SSD转移数据:利用安全启动的技巧</u></a></li>
+<li><a href="https://win11.techidaily.com/adjust-desktop-presence-embedding-this-pc-icons/"><u>Adjust Desktop Presence: Embedding 'This PC' Icons</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-text-plugins-for-after-effects/"><u>Best Text Plugins For After Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-to-clean-up-your-facebook-profile/"><u>Essential Steps to Clean Up Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-rationale-behind-fbs-recommended-content/"><u>Examining the Rationale Behind FB's Recommended Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanding-your-conversation-realm-with-messenger/"><u>Expanding Your Conversation Realm with Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-clarifies-laugh-worthy-limits/"><u>Facebook Clarifies Laugh-Worthy Limits</u></a></li>
+<li><a href="https://win-forum.techidaily.com/fastboot-tips-enhancing-windows-11-startup-efficiency-with-revouninstaller/"><u>FastBoot Tips: Enhancing Windows 11 Startup Efficiency with RevoUninstaller</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/from-zero-to-hero-youtube-intro-wonders-with-imovie-for-2024/"><u>From Zero to Hero YouTube Intro Wonders with iMovie for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/get-notified-about-hidden-screenshots-messenger-style/"><u>Get Notified About Hidden Screenshots, Messenger Style</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/encing-factors-for-popular-youtube-videos/"><u>Influencing Factors for Popular YouTube Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/radiate-on-screen-quicker-ways-to-brighten-iphone-media-for-2024/"><u>Radiate on Screen Quicker Ways to Brighten iPhone Media for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-hosted-network-startup-error-in-windows-10-expert-tips-and-tricks/"><u>Resolving 'Hosted Network Startup Error' In Windows 10: Expert Tips & Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-giants-face-public-doubt-focus-on-facebook/"><u>Tech Giants Face Public Doubt: Focus on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-fbcta-mean-for-you-online/"><u>What Does FBCTA Mean for You Online?</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuck-reveals-naming-his-goat-after-digital-currency/"><u>Zuck Reveals: Naming His Goat After Digital Currency.</u></a></li>
 </ul></div>
 

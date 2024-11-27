@@ -1,7 +1,7 @@
 ---
 title: India's IT Decree Faces Stiff Legal Defense by WhatsApp
-date: 2024-11-15T17:55:40.320Z
-updated: 2024-11-17T18:01:55.016Z
+date: 2024-11-20T02:30:43.931Z
+updated: 2024-11-27T09:54:38.975Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## India's New IT Rules Threaten User Privacy
 
 [Reuters](https://www.reuters.com/world/india/exclusive-whatsapp-sues-india-govt-says-new-media-rules-mean-end-privacy-sources-2021-05-26) reports that Facebook-owned WhatsApp has issues with one of the new IT regulations in India, which states that social media platforms must identify the "first originator of information" when requested by government authorities.
@@ -31,10 +35,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
  This basically means that WhatsApp should provide details on the origins of a message, i.e., the sender if requested by the government. WhatsApp claims in its lawsuit that this rule is unconstitutional.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Indian Government Wants to Regulate Social Media Content
@@ -46,10 +47,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![Close-up of the WhatsApp logo on a phone being held up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/India-Not-Backing-Down-WhatsApp-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A WhatsApp spokesperson issued the following statement to[The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
@@ -69,10 +67,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![WhatsApp](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fix-whatsapp-notifications-windows-10-featured.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  WhatsApp's move against the Indian government comes at a time when it has itself been[subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned[WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
@@ -80,16 +75,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
  Related:[Best WhatsApp Alternatives That Don’t Share Your Data With Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## India Is One of WhatsApp's Key Markets
@@ -113,19 +99,22 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/xploring-the-economic-value-of-a-million-youtube-followers/"><u>[New] Exploring the Economic Value of a Million YouTube Followers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitter-jokes-made-accessible-with-3-simple-steps-pc/"><u>[Updated] Twitter Jokes Made Accessible with 3 Simple Steps (PC)</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-pinnacle-platforms-revolutionizing-business-marketing/"><u>5 Pinnacle Platforms Revolutionizing Business Marketing</u></a></li>
-<li><a href="https://facebook.techidaily.com/actions-to-take-when-facing-a-frozen-facebook-account/"><u>Actions to Take When Facing a Frozen Facebook Account</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-realme-gt-3-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Realme GT 3 Fingerprint Lock</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-buzzwords-deconstructing-social-harms-reality/"><u>Beyond Buzzwords: Deconstructing Social Harm's Reality</u></a></li>
-<li><a href="https://facebook.techidaily.com/charting-the-course-top-podcasts-reviewed-and-analyzed-for-22/"><u>Charting the Course: Top Podcasts Reviewed & Analyzed for '22</u></a></li>
-<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-monitoring-your-digital-activity-on-fb/"><u>Comprehensive Guide to Monitoring Your Digital Activity on FB</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1723862684696-dont-miss-out-high-performance-m3-macbook-air-laptop-16gb-ram-and-13-display-for-only-1149/"><u>Don't Miss Out: High-Performance M3 MacBook Air Laptop - 16GB RAM & 13 Display for Only $1,149</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/guide-pratique-pour-restaurer-les-donnees-dun-ssd-surchauffe-et-endommage/"><u>Guide Pratique Pour Restaurer Les Données D'un SSD Surchauffé Et Endommagé</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Infinix Hot 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/sdwindows-10/"><u>SDカードのデータ損失に対処:Windows 10環境での復元テクニック</u></a></li>
-<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/ultimate-guide-adding-the-rogue-one-add-on-to-your-kodi-matrix-with-ease/"><u>Ultimate Guide: Adding the Rogue One Add-On to Your Kodi Matrix with Ease</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-drone-racing-all-you-need-to-know-and-5-best-fpv-racing-drones/"><u>[New] Drone Racing All You Need to Know and 5 Best FPV Racing Drones</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-hands-on-crafting-unique-movie-closures-for-pennies/"><u>[New] Hands-On Crafting Unique Movie Closures for Pennies</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-modify-twitter-video-capture-image/"><u>[Updated] Modify Twitter Video Capture Image</u></a></li>
+<li><a href="https://win-able.techidaily.com/bug-free-gaming-enshrouded-game-now-stable-and-crash-resistant-for-windows-users/"><u>Bug-Free Gaming - Enshrouded Game Now Stable and Crash-Resistant for Windows Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-respectful-communication-before-exiting-groups/"><u>Ensuring Respectful Communication Before Exiting Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-invisibility-in-digital-chat-services/"><u>Exploring Invisibility in Digital Chat Services</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-persistent-lag-solutions-to-prevent-valheims-freeze-stutter-issues-on-desktop/"><u>Fixing Persistent Lag: Solutions to Prevent Valheim's Freeze-Stutter Issues on Desktop</u></a></li>
+<li><a href="https://facebook.techidaily.com/hide-discussion-trails-how-to-block-responses-on-fb/"><u>Hide Discussion Trails: How to Block Responses on FB</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/innovative-pdf-solutions-chatgpts-fastest-plugin-choices/"><u>Innovative PDF Solutions: ChatGPT's Fastest Plugin Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-data-safe-a-guide-to-privacy-controls-in-fb/"><u>Keep Your Data Safe: A Guide to Privacy Controls in FB</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resetting-made-easy-a-comprehensive-walkthrough-for-samsung-soundbar-users/"><u>Resetting Made Easy: A Comprehensive Walkthrough For Samsung Soundbar Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/selective-engagement-cutting-down-on-social-media-noise/"><u>Selective Engagement: Cutting Down on Social Media Noise</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/skjermbilde-med-lydopptagelse-under-windows-njunten-veien-til-4-forskjellige-metoder/"><u>Skjermbilde Med Lydopptagelse Under Windows Njunten - Veien Til 4 Forskjellige Metoder</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-artful-exit-removing-a-page-with-minimal-fuss-and-notice/"><u>The Artful Exit: Removing a Page with Minimal Fuss and Notice</u></a></li>
+<li><a href="https://facebook.techidaily.com/waiting-game-facebooks-board-takes-time-to-decide/"><u>Waiting Game: Facebook's Board Takes Time to Decide</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-fb-insta-inactivity-a-six-hour-hiccup/"><u>WhatsApp, FB, Insta Inactivity: A Six-Hour Hiccup</u></a></li>
 </ul></div>
 

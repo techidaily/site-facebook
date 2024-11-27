@@ -1,7 +1,7 @@
 ---
 title: Retrieve Lost Facebook Sign In Methods Easily
-date: 2024-09-01T03:45:53.552Z
-updated: 2024-09-02T03:45:53.552Z
+date: 2024-11-20T05:00:51.533Z
+updated: 2024-11-27T00:51:15.794Z
 tags:
   - facebook
 categories:
@@ -17,11 +17,19 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
  You can access Facebook without a confirmation or reset code. When Facebook retired its in-app Code Generator, many users may have been left hung out to dry.We'll show you how to log into your account using alternatives to receiving a Facebook confirmation code.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Do You Need a Facebook Confirmation Code?
 
  Once you enable[Facebook's two-factor authentication](https://accountscenter.facebook.com/password%5Fand%5Fsecurity/two%5Ffactor) , Facebook will ask you for a security or confirmation code to log in from a new location or device. We strongly recommend[using two-factor authentication as a security method](http://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) . Without it, you only need your username or email address and password to log into your Facebook account.
 
  By enabling Facebook's two-factor authentication, you've added an extra layer of security, which can[protect your Facebook account from getting hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Where Can You Find a Facebook Confirmation Code?
 
@@ -35,18 +43,12 @@ You can obtain a Facebook login code in three different ways:
 
  Beyond codes, you can create a physical second-factor security key to log into Facebook through USB or NFC.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Lost Access to Code Generator or Your Authentication Tool?
 
  Code Generator used to be a convenient way to access two-factor authentication codes without a mobile number. While you may still see its remnants in the mobile app, Facebook has recently retired Code Generator.
 
  When you've set up your phone to be the key to your Facebook account, losing or breaking it could be a problem. Here's what you can do in the event that you lose access to Code Generator or your third-party authentication tool.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Let Facebook Text You a Confirmation Code
 
  Do you still have access to the mobile phone number you included under two-factor authentication? Maybe your provider could send you a new SIM with the same number. In that case, let Facebook text you a confirmation code.
@@ -57,9 +59,6 @@ You can obtain a Facebook login code in three different ways:
 
 ![Facebook Two-Factor Authentication Required screen upon trying to log in.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Two-Factor-Authentication-Required.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Use a Saved Recovery Code
 
  After setting up two-factor authentication, you had the chance to save a set of recovery codes as a backup. Maybe you printed the code, took a screenshot, or wrote it down and stored it in a safe location.
@@ -79,13 +78,18 @@ You can obtain a Facebook login code in three different ways:
  Try to access Facebook from a browser or app you've used previously. Maybe you're still logged in on an old laptop, your work computer, or your tablet. When you find a device where you can still access Facebook, you should see a notification asking you to approve the new login.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Confirm Your Identity
 
  Is none of this working? Submit a request to Facebook. In the menu that pops up after you select**Need another way to authenticate** (see option 1), select**Get More Help** , and let Facebook walk you through the steps to recover your account.
 
 ![Facebook Two-Factor Authentication Code Issues](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Ways-to-Authenticate-Login.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You'll have to enter an email address and upload a copy of your ID, which can be a passport, driver's license, national ID card, or other official documents. Once you have provided the requested information, Facebook will email you with further steps for account recovery.
 
@@ -95,23 +99,21 @@ You can obtain a Facebook login code in three different ways:
 
 ![Facebook Can't Get Your Code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Cant-Get-Your-Code.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  In the next screen, Facebook will tell you to log in from a known browser. If that isn't an option, click**Contact us** . Like above, you'll have to provide an email address, ideally one that was linked to your account, and upload your ID and a message to Facebook.
 
 ![Facebook Recovery Confirm Identity](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-recovery-confirm-identity.jpg)
 
  Did you manage to log back into Facebook? Remember to save recovery codes, set up a new authentication app, and update your other recovery options.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Back on Facebook, But Lost Your Mobile Device?
 
  To prevent access to your Facebook account from a lost phone or laptop, terminate the app's Facebook session. Head to Facebook's[Accounts Center](https://accountscenter.facebook.com/?entry%5Fpoint=app%5Fsettings) , under**Password and security** select**Where you're logged in** , choose your account, and log yourself out of your lost phone.
 
 ![Facebook Accounts Center Where You're Logged In Logging Out](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-accounts-center-where-you-re-logged-in-logging-out.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  At this point, you should**Remove** the number of the lost phone and update your Facebook password to be safe.
 
@@ -120,22 +122,20 @@ You can obtain a Facebook login code in three different ways:
  And in the future, always make sure at least one device, other than your laptop or phone, has an authorized login. It could be a home computer that you'll always have access to. Only ever let Facebook remember devices and locations that are private and safe. And frequently review your list of[**Authorized Logins**](https://www.facebook.com/settings?tab=security&section=authorized%5Flogins&view) and**Remove** outdated items.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Keep Your Facebook Account Safe
 
  Every day, we hear from people who have lost access to their Facebook account. Unfortunately, we can't help most of them because they failed to set up recovery options, had their passwords cracked, or their contact data was reset. In cases like that, you can only hope that Facebook will help you recover your account.
 
  So don't let it get that far. It only takes a few minutes to enable two-factor authentication and save Facebook recovery codes. While you're at it, update your email address and phone number linked to your Facebook account. If disaster strikes again, you will be able to recover your Facebook account.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,4 +144,26 @@ You can obtain a Facebook login code in three different ways:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-elevate-your-video-workflow-capturing-mov-files-on-windows-10/"><u>[New] Elevate Your Video Workflow Capturing MOV Files on Windows 10</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigating-the-world-of-sound-effects-in-youtube-videos/"><u>[Updated] Navigating the World of Sound Effects in YouTube Videos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-best-budget-friendly-hd-cameras-for-adrenaline-junkies/"><u>2024 Approved Best Budget-Friendly HD Cameras for Adrenaline Junkies</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/audio-layers-for-professional-videography-premiere-pro-edition/"><u>Audio Layers for Professional Videography Premiere Pro Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/endless-entertainment-from-kids-cams/"><u>Endless Entertainment From Kids' Cams</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-football-legends-excise-snapchat-twitter-for-mental-health/"><u>England's Football Legends Excise Snapchat, Twitter for Mental Health</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1723862721466-huge-sale-alert-get-the-2023-razer-blade-15-for-just-1000-off-record-low-pricing/"><u>Huge Sale Alert: Get the 2023 Razer Blade 15 for Just $1,000 Off - Record-Low Pricing</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-7-ways-to-lock-apps-on-apple-iphone-12-and-ipad-securely-by-drfone-ios/"><u>In 2024, 7 Ways to Lock Apps on Apple iPhone 12 and iPad Securely</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-chortle-calls-greatest-funny-ringtone-hubs/"><u>In 2024, Chortle Calls Greatest Funny Ringtone Hubs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-basics-to-brilliance-fullscreen-proficiency-in-premiere/"><u>In 2024, From Basics to Brilliance Fullscreen Proficiency in Premiere</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Oppo A38? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-ripl-for-high-engagement-smm-content/"><u>Leveraging Ripl for High-Engagement SMM Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-poll-shows-people-dont-trust-big-tech-but-especially-facebook/"><u>New Poll Shows People Don't Trust Big Tech, but Especially Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-platforms-for-older-peoples-connectivity/"><u>Prime Platforms for Older People's Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-instructions-revoking-a-social-media-post/"><u>Step-by-Step Instructions: Revoking a Social Media Post</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-privacy-to-the-next-level-facebooks-messenger-and-instagram-now-have-encrypted-conversations/"><u>Taking Privacy to the Next Level: Facebook's Messenger and Instagram Now Have Encrypted Conversations.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-justification-why-social-media-platforms-like-facebook-permit-dual-or-more-profiles-under-one-account/"><u>The Justification: Why Social Media Platforms Like Facebook Permit Dual or More Profiles Under One Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pillar-of-price-understanding-stablecoin-mechanisms/"><u>The Pillar of Price: Understanding Stablecoin Mechanisms</u></a></li>
+<li><a href="https://facebook.techidaily.com/together-towards-progress-facebook-and-rust-in-code-development/"><u>Together Towards Progress: Facebook & Rust in Code Development</u></a></li>
+</ul></div>
 

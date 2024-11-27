@@ -1,7 +1,7 @@
 ---
 title: Getting Your Hands on Pieces From Facebook’s Class-Action Money
-date: 2024-09-01T03:41:18.799Z
-updated: 2024-09-02T03:41:18.799Z
+date: 2024-11-23T12:15:52.853Z
+updated: 2024-11-27T13:45:53.409Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
 
  The social media giant finally eventually settled in December 2022 for a cool $725 million—and it's time for you to get a piece of that pie. Here's what to know about the lawsuit and how to get your payment.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Facebook Was Sued
 
  In April 2018, Facebook announced that data from up to 87 million “mostly US-based” accounts was improperly obtained and shared with the British political consultancy group Cambridge Analytica. The leaked data was used in various 2016 US political campaigns, most notably Donald Trump’s 2016 bid for the White House.
@@ -27,11 +31,19 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
 
  The testimony didn't exactly invoke confidence that Facebook and Zuckerberg at large were taking the leak seriously. This spawned the class-action lawsuit later that year, stretching for years until the settlement in December 2022 for $725 million.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Join the Class Action Settlement
 
  To send through a claim, head over to the[Facebook User Privacy Settlement site](https://www.facebookuserprivacysettlement.com/) . Select**Submit Claim** at the top of the homepage. If you need instructions, select**Click for General Instructions** .
 
 ![The Facebook settlement homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/wm/2023/04/facebook-settlement-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Fill out the form, ensuring that you add important information, such as the date you deleted your Facebook count if applicable. Be sure to add at least one email address, phone number, and username associated with your Facebook account. If it has been a while since you last logged into your Facebook account and you lost your credentials somewhere along the way, you'll need to[recover your Facebook account](http://www.makeuseof.com/tag/recover-facebook-account-longer-log/) to find your username before filing a claim.
 
@@ -47,17 +59,15 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
  Do keep in mind[how Zelle scams work](https://www.makeuseof.com/how-zelle-scams-work/) if you choose this payment option. It’s not out of the realm of possibility to suggest that bad actors could send fake emails encouraging you to “claim” your settlement via Zelle between now and when you receive your payout. Be vigilant, and know the[signs of a phishing scam](https://www.makeuseof.com/top-signs-phishing-scams/) .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Will Your Claim Be Settled?
 
 [The New York Times](https://www.nytimes.com/2023/04/20/business/facebook-settlement-apply.html) reports that users eligible for a cash settlement are assigned approximately one point for every month their Facebook account was activated (but not necessarily active). Even if you didn’t log into your Facebook account for years, as long as you didn't deactivate the account, one month still equals one point.
 
 ![An image of the Facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/wm/2023/04/facebook-homepage.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
  After the claim deadline has passed (August 25, 2023), the settlement administrator overseeing the class-action settlement will decide the monetary value of each point. They'll do this by:
 
 * Adding the total points to everyone that submitted a claim.
@@ -67,22 +77,20 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
  This final number will determine the monetary value for each point. The monetary value will then be multiplied by the number of points assigned to each user filing a claim, determining each individual user’s entitled compensation. For example, if one point is worth $1 and you didn't deactivate your Facebook account for the entire 15.5-year timeframe of the lawsuit, you would receive $186.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook May Owe You, but Don’t Expect Life Changing Cash
 
  The class-action lawsuit against Facebook is major, but don't expect to be swimming in an underground vault filled to the brim with gold coins like Scrooge McDuck if you're awarded a cash settlement. Still, you should submit a claim.
 
  Because let's be real about what happened. If you live in the US, chances are, Facebook unethically and irresponsibly leaked your data to third-parties without your consent. That's wrong —and you shouldn't feel complacent about your misused data in the biggest social media leak in history. Roll the proverbial dice, and see what you get.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -91,4 +99,18 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-the-beginners-guide-to-stunning-slow-motion-shooting-with-an-android/"><u>[New] The Beginner's Guide to Stunning Slow-Motion Shooting with an Android</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-enhance-your-fb-ads-reach-embrace-the-no-cost-kit-innovations/"><u>[Updated] In 2024, Enhance Your FB Ads Reach Embrace the No-Cost Kit Innovations</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-inspiration-ideas-for-engaging-channels-for-2024/"><u>[Updated] Unleashing Inspiration Ideas for Engaging Channels for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-insta-share-tips-for-posting-youtube-videos/"><u>2024 Approved Insta-Share Tips for Posting YouTube Videos</u></a></li>
+<li><a href="https://win11.techidaily.com/a-systematic-approach-to-rejuvenating-your-media-software/"><u>A Systematic Approach to Rejuvenating Your Media Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/forget-facebook-on-android-a-comprehensive-tutorial/"><u>Forget Facebook on Android: A Comprehensive Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-effectively-communicate-a-refund-request-on-facebook/"><u>How to Effectively Communicate a Refund Request on Facebook</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mastering-microsoft-excel-effortless-date-autocompletion-techniques/"><u>Mastering Microsoft Excel: Effortless Date Autocompletion Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-connectivity-configuring-your-facebook-portal-tv/"><u>Maximizing Connectivity: Configuring Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/unity-and-innovation-unveiled-facebooks-transition-to-the-meta-network/"><u>Unity and Innovation Unveiled: Facebook's Transition to the Meta Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-company-pages-triumph-over-self-ppages-in-marketing/"><u>Why Company Pages Triumph Over Self-Ppages in Marketing</u></a></li>
+</ul></div>
 

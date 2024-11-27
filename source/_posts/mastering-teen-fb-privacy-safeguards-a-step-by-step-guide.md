@@ -1,7 +1,7 @@
 ---
 title: "Mastering Teen FB Privacy Safeguards: A Step-by-Step Guide"
-date: 2024-11-10T17:02:31.733Z
-updated: 2024-11-17T16:26:22.336Z
+date: 2024-11-21T02:01:20.203Z
+updated: 2024-11-27T06:52:54.579Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is a Privacy Check on Facebook?
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
@@ -37,19 +41,13 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -57,13 +55,6 @@ Close
  When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Privacy Setting Basics
 
@@ -95,20 +86,11 @@ Close
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -117,6 +99,10 @@ Close
  To check the kinds of ads your teen can see on their news feed, you will need to go back to**Settings** . Scroll down to**Ads** and click on**Ad preferences** .
 
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Online Safety Is More Important Than Ever
 
@@ -139,19 +125,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-how-to-make-time-lapse-videos-with-gopro-studio/"><u>[Updated] In 2024, How to Make Time Lapse Videos With GoPro Studio</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-spark-your-spirit-a-collection-of-10-uplifting-movies/"><u>[Updated] In 2024, Spark Your Spirit A Collection of 10 Uplifting Movies</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-shift-twitter-video-preview-panel-for-2024/"><u>[Updated] Shift Twitter Video Preview Panel for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1-managing-screen-time-a-step-by-step-guide-to-setting-daily-app-restrictions-on-your-android-device/"><u>1. Managing Screen Time: A Step-by-Step Guide to Setting Daily App Restrictions on Your Android Device</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-samsung-galaxy-a25-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Samsung Galaxy A25 5G without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-access-rites-to-meta-social-network-governance/"><u>Deciphering Access Rites to Meta Social Network Governance</u></a></li>
-<li><a href="https://facebook.techidaily.com/determining-digital-picture-proprietorship/"><u>Determining Digital Picture Proprietorship</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-impact-of-touch-on-social-networking/"><u>Dissecting the Impact of Touch on Social Networking</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-ways-to-disconnect-from-facebook-android-style/"><u>Efficient Ways to Disconnect From Facebook, Android Style</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-profile-metas-paid-verification/"><u>Elevate Your Profile: Metas' Paid Verification</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-vivo-v27e-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Vivo V27e to PC? | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-a-look-at-the-future-of-windows-10s-evolution/"><u>In 2024, A Look at the Future of Windows 10'S Evolution</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-infinix-gt-10-pro-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Infinix GT 10 Pro to iPad | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/pinpointing-and-fixing-sound-issues-in-windows/"><u>Pinpointing and Fixing Sound Issues in Windows</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-mastering-footage-select-best-gimbals-and-handhelds-guide/"><u>[Updated] In 2024, Mastering Footage Select Best Gimbals & Handhelds Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-making-the-leap-set-up-a-sports-vlog-on-macos/"><u>[Updated] Making the Leap Set Up a Sports Vlog on macOS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-from-boredom-to-laughter-your-kinemaster-guide/"><u>2024 Approved From Boredom to Laughter Your KineMaster Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Realme C67 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-launchpad-gear-list-enhance-your-beginners-gopro-journey/"><u>In 2024, Launchpad Gear List - Enhance Your Beginner's GoPro Journey</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-fb-enabling-two-factor-security/"><u>Mastering FB: Enabling Two-Factor Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-change-facebook-staff-as-metamates/"><u>Navigating Change: Facebook Staff as Metamates</u></a></li>
+<li><a href="https://facebook.techidaily.com/rising-expectations-meet-delayed-oculus-quest-launch/"><u>Rising Expectations Meet Delayed Oculus Quest Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-era-of-content-tiktok-eats-into-facebooks-pieces/"><u>The New Era of Content: TikTok Eats Into Facebook’s Pieces</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-steps-for-your-surface-pros-wi-fi-connection-issues/"><u>Troubleshooting Steps for Your Surface Pro's Wi-Fi Connection Issues</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-split-trim-and-convert-avi-files-in-minutes-2023-edition-for-2024/"><u>Updated Split, Trim, and Convert AVI Files in Minutes 2023 Edition for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Invisible Interactions: Facebook Group Anonymous Posting"
-date: 2024-11-11T17:16:58.173Z
-updated: 2024-11-17T18:07:37.085Z
+date: 2024-11-24T00:38:47.774Z
+updated: 2024-11-26T18:30:40.393Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 
 ![An anonymous person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/01/teams-anonymous-update-featured.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit:[Shuttershock](https://www.shutterstock.com/image-photo/girl-holding-sheet-paper-question-mark-1673490064)
 
  The anonymous posting feature is only available for groups set as Parenting. So, if your group is set to another group type, you’d need to change this.
@@ -40,11 +44,23 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 
 ![facebook group homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-homepage.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![facebook group admin tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-admin-tools-page.jpg)
 
 ![facebook group settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-settings-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![facebook group type](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-type.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -61,10 +77,7 @@ Close
  All anonymous posts are subject to approval from admins and moderators, even if you don’t have post approval turned on for your group. As an admin, you’ll also be able to see the identity of users who wish to post anonymously on the pending posts page.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Might You Want to Enable Anonymous Posts on Facebook?
@@ -74,13 +87,6 @@ Close
  Related: [How Facebook Is Cracking Down on Groups Which Break the Rules](https://www.makeuseof.com/ways-facebook-cracking-down-on-groups-break-rules/)
 
  Enabling anonymous posts will encourage people who are shy or worried about expressing themselves publicly to share their thoughts with everyone else. This will increase your group engagement and reduce the chances of people[leaving the group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) .
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Should You Enable Anonymous Posting in Your Facebook Group?
 
@@ -103,24 +109,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ow-to-render-and-upload-your-youtube-video-faster/"><u>[New] How to Render and Upload Your YouTube Video Faster?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-channel-up-your-wealth-profit-from-effective-use-of-youtube-shorts-for-2024/"><u>[Updated] Channel Up Your Wealth Profit From Effective Use of YouTube Shorts for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-three-foundational-elements-for-powerful-facebook-ad-headlines-for-2024/"><u>[Updated] Three Foundational Elements for Powerful Facebook Ad Headlines for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-unmasked-story-watching-a-guide-to-anonymous-instagram-stories-accessibility-pcandroidios-for-2024/"><u>[Updated] Unmasked Story Watching A Guide to Anonymous Instagram Stories Accessibility [PC/Android/iOS] for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-music-from-lava-blaze-2-pro-by-fonelab-android-recover-music/"><u>Best Android Data Recovery - Undelete Lost Music from Lava Blaze 2 Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/deconstructing-giants-the-role-of-governments-in-dismantling-tech-titans/"><u>Deconstructing Giants: The Role of Governments in Dismantling Tech Titans</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-doves-cooing-for-unity-7-online-methods-to-bind/"><u>Digital Doves Cooing for Unity: 7 Online Methods to Bind</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-identity-on-instanfts/"><u>Digital Identity on InstaNFTs</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-the-dominant-digital-outlets-for-corporates/"><u>Discovering the Dominant Digital Outlets for Corporates</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-updated-language-within-facebook-pages-labels/"><u>Discovering Updated Language Within Facebook Pages Labels</u></a></li>
-<li><a href="https://facebook.techidaily.com/do-tweets-linger-forever-in-the-web/"><u>Do Tweets Linger Forever in the Web?</u></a></li>
-<li><a href="https://facebook.techidaily.com/earn-elite-marks-metas-pay-to-verify-option/"><u>Earn Elite Marks: Metas' Pay-to-Verify Option</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-techniques-for-language-diversity-in-fb-posts/"><u>Effective Techniques for Language Diversity in FB Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-management-assign-a-page-administrator/"><u>Elevate Management: Assign a Page Administrator</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Oppo Reno 11 5G | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/motorola-defy-2-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Motorola Defy 2 Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/resolve-your-apple-iphone-13-pro-max-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>Resolve Your Apple iPhone 13 Pro Max Keeps Asking for Outlook Password | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unveil-the-true-image-learn-background-removal-on-photopea/"><u>Unveil the True Image Learn Background Removal on Photopea</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-sony-camcorder-video-editing-tutorial-from-capture-to-masterpiece/"><u>Updated In 2024, Sony Camcorder Video Editing Tutorial From Capture to Masterpiece</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-unlocking-twitters-full-potential-the-ultimate-guide/"><u>[New] 2024 Approved Unlocking Twitter’s Full Potential The Ultimate Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/harting-a-course-youtubes-best-brands/"><u>[New] Charting a Course YouTube's Best Brands</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-prime-emulation-tools-sonys-ps1-classics-at-the-fingertips/"><u>[Updated] In 2024, Prime Emulation Tools Sony's PS1 Classics at the Fingertips</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-silent-blades-and-righteous-honor-your-next-game-adventure-awaits-in-2024/"><u>[Updated] Silent Blades & Righteous Honor Your Next Game Adventure Awaits, In 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-effortless-pc-sound-logging-with-x-recorder-software/"><u>2024 Approved Effortless PC Sound Logging with X-Recorder Software</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/expert-guide-to-overcoming-qualcomm-atheros-bluetooth-driver-failures-on-windows-11-systems/"><u>Expert Guide to Overcoming Qualcomm Atheros Bluetooth Driver Failures on Windows 11 Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-donating-5-million-to-the-whos-covid-19-fundraising-campaign/"><u>Facebook Is Donating $5 Million to the WHO's COVID-19 Fundraising Campaign</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-nokia-105-classic-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Nokia 105 Classic Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-user-id-setup-email-and-number-changes/"><u>New User ID Setup: Email & Number Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-relationships-the-birth-of-meta/"><u>Redefining Relationships : The Birth of Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/surveying-the-digital-community-for-news-feed-insights/"><u>Surveying the Digital Community for News Feed Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-setting-rules-in-virtual-gatherings-on-fb/"><u>The Art of Setting Rules in Virtual Gatherings on FB</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-reality-of-e-mobilitys-eco-friendliness-how-green-are-electric-cars/"><u>The Reality of E-Mobility's Eco-Friendliness: How 'Green' Are Electric Cars?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-iphone-15-plus-and-android-phones-by-drfone-ios/"><u>Top IMEI Unlokers for iPhone 15 Plus and Android Phones</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-spoke-out-about-facebooks-data-missteps/"><u>Who Spoke Out About Facebook's Data Missteps?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Telegram's Escalated Usage in the Face of Facebook Blackout
-date: 2024-11-11T18:10:36.679Z
-updated: 2024-11-17T17:22:05.125Z
+date: 2024-11-22T10:50:11.694Z
+updated: 2024-11-27T10:45:25.030Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e8
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Did Telegram Gain So Many Users in One Day?
 
  On Monday, October 4, the Facebook owned-triumvirate of apps—Facebook, Instagram, and WhatsApp—all[went offline simultaneously](https://www.makeuseof.com/why-facebook-whatsapp-instagram-offline-six-hours/) .
@@ -37,10 +41,7 @@ thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e8
 But why did Telegram benefit so much more than any of its rivals?
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Did People Choose Telegram When WhatsApp Went Down?
@@ -48,10 +49,7 @@ But why did Telegram benefit so much more than any of its rivals?
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
@@ -73,10 +71,7 @@ But why did Telegram benefit so much more than any of its rivals?
  It is arguably the first time that any WhatsApp competitor has been able to make that claim, and it suddenly makes the Facebook-owned app's hegemony look a lot less secure.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## It Wasn't All Perfect for Telegram
@@ -92,10 +87,7 @@ But why did Telegram benefit so much more than any of its rivals?
  Breaking WhatsApp's dominance is already a herculean task. If Telegram's app is not functioning when people need it, the progress it has been enjoying recently could be irrevocably damaged.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can Telegram Continue Its Momentous Rise?
@@ -119,20 +111,18 @@ But why did Telegram benefit so much more than any of its rivals?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-making-every-game-a-masterpiece-proven-methods-to-record-and-relish-your-sims-experiences/"><u>[New] In 2024, Making Every Game a Masterpiece Proven Methods to Record and Relish Your Sims’ Experiences</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-take-fullscreen-digital-canvas/"><u>[New] In 2024, Take Fullscreen Digital Canvas</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-top-ios-psp-games-and-emulators-revealed/"><u>[New] In 2024, Top iOS PSP Games & Emulators Revealed</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-spatial-symphony-with-mac-recording-for-2024/"><u>[New] Spatial Symphony with Mac Recording for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-novice-to-pro-your-step-by-step-guide-to-youtube-live-images/"><u>[Updated] In 2024, From Novice to Pro Your Step-by-Step Guide to YouTube Live Images</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-your-path-to-perfect-iphone-hdr-photos/"><u>[Updated] Your Path to Perfect iPhone HDR Photos</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-symbolic-meaning-in-fb-messages/"><u>Deciphering the Symbolic Meaning in FB Messages</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-vk-russias-answer-to-facebook-uncovered/"><u>Deciphering VK: Russia's Answer to Facebook Uncovered</u></a></li>
-<li><a href="https://facebook.techidaily.com/determining-the-credibility-of-facebooks-safety-email-(securityfbcom)/"><u>Determining the Credibility of Facebook's Safety Email: <security@fb.com></u></a></li>
-<li><a href="https://facebook.techidaily.com/discreet-discussion-archiving-for-private-online-space/"><u>Discreet Discussion: Archiving for Private Online Space</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-how-facebook-determines-allowed-media/"><u>Dissecting How Facebook Determines Allowed Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/dodging-digital-dangers-a-guide-to-fb-security/"><u>Dodging Digital Dangers: A Guide to FB Security</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-online-presence-3d-photos-on-fb/"><u>Elevate Your Online Presence: 3D Photos on FB</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-xiaomi-redmi-k70-pro-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Xiaomi Redmi K70 Pro to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-transform-your-videos-10-best-webm-to-mp4-converters-online-for-2024/"><u>New Transform Your Videos 10 Best WebM to MP4 Converters Online for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-authenticating-your-instagram-photos/"><u>[Updated] Authenticating Your Instagram Photos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-prime-low-cost-recording-software-tops/"><u>[Updated] In 2024, Prime Low-Cost Recording Software Tops</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-meta-ai-on-social-platforms-pros-and-cons/"><u>Embracing Meta AI on Social Platforms: Pros & Cons?</u></a></li>
+<li><a href="https://facebook.techidaily.com/google-facebook-twitter-face-presidential-censorship-suit/"><u>Google, Facebook, Twitter Face Presidential Censorship Suit</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-an-mp4-on-samsung-galaxy-a24-by-aiseesoft-video-converter-play-mp4-on-android/"><u>How to play an MP4 on Samsung Galaxy A24?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-facebook-two-factor-authentication-and-mobile-code-generator/"><u>How to Use Facebook Two-Factor Authentication and Mobile Code Generator</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-iphone-shots-the-ultimate-hdr-guide-for-2024/"><u>Mastering iPhone Shots The Ultimate HDR Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-unknown-with-facebook-headlines/"><u>Navigating the Unknown with Facebook Headlines</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/orm-power-play-which-one-dominates-vimeo-youtubeplusdailymotion/"><u>Platform Power Play Which One Dominates - Vimeo, YouTube+DailyMotion?</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/secure-your-deal-on-the-hp-victus-15-gaming-laptop-for-an-unbeatable-price-of-450-limited-time-offer-at-best-buy-prime-day-insights/"><u>Secure Your Deal on the HP Victus 15 Gaming Laptop for an Unbeatable Price of $450 - Limited Time Offer at Best Buy Prime Day | Insights</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-guide-to-stock-photo-memes-and-realities-for-2024/"><u>The Ultimate Guide to Stock Photo Memes & Realities for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unblocking-recovering-lost-facebook-credentials/"><u>Unblocking: Recovering Lost Facebook Credentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-directs-the-social-media-empire-now/"><u>Who Directs the Social Media Empire Now?</u></a></li>
 </ul></div>
 

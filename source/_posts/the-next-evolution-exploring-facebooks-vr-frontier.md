@@ -1,7 +1,7 @@
 ---
 title: "The Next Evolution: Exploring Facebook's VR Frontier"
-date: 2024-11-15T16:29:00.552Z
-updated: 2024-11-17T17:31:54.144Z
+date: 2024-11-23T03:51:39.482Z
+updated: 2024-11-27T08:08:33.960Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
 ![Facebook and Other Apps on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-and-Other-Apps-on-iPhone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Since its rebirth into a next-generation social media platform, Facebook has grown to unprecedented proportions. While Facebook is still synonymous with its ubiquitous social media platform, it has gone to acquire competitors, supporting services, and even hardware companies to join its ranks.
 
  Since its first acquisition in 2005, Facebook has spent over $23 billion to get a hold of social media platforms, messaging apps, and even virtual reality hardware. Over the last fifteen years alone, Facebook has acquired over 78 companies, with some of the biggest including Instagram, WhatsApp, and Oculus VR.
@@ -36,31 +40,15 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
  With most acquisitions done in private, it’s likely that this number is even higher. But why would Facebook want to spend so much to acquire companies from a variety of industries? While we don't know for sure, what we do know is that they can benefit from knowing customers, unlike other companies.
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Effects of a Granular Customer Profile
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
 
- You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
 
 ### Data Brokering and Targeted Ads
 
@@ -71,10 +59,7 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Algorithmic Biases
@@ -86,10 +71,7 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  When it comes to social media, it’s important to remember that access to information on a curated newsfeed always comes with an agenda, even if it wasn’t the original intention.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Security Risks of Granular Data
@@ -109,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  For this reason, the Facebook Metaverse is stepping up and expanding to other methods of data collection. It’s no longer enough to simply rely on the various data brokers it is affiliated with. As much as possible, Facebook wants to go head-to-head with the other giants in every sense of the word, especially because the war will be won by who can collect the most data from the customers and monetize it.
 
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Perils of Being an Ordinary Person
 
@@ -133,16 +119,21 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-vlc-guide-setting-up-screen-recordings/"><u>[New] In 2024, VLC Guide Setting Up Screen Recordings</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-homemade-guide-to-google-vr-headset-construction/"><u>2024 Approved Homemade Guide to Google VR Headset Construction</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-your-files-easily-simplified-steps-for-pc-file-movement/"><u>2024 Approved Your Files, Easily Simplified Steps for PC File Movement</u></a></li>
-<li><a href="https://facebook.techidaily.com/embrace-silence-streaming-on-instagram-live/"><u>Embrace Silence: Streaming on Instagram Live</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-create-engaging-social-media-posts-with-ripl/"><u>How to Create Engaging Social Media Posts With Ripl</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-realme-gt-3-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Realme GT 3?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-the-no-tripod-path-to-flawless-images/"><u>In 2024, The No-Tripod Path to Flawless Images</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/rewind-revolution-iphones-time-turning-ability-for-2024/"><u>Rewind Revolution IPhone's Time-Turning Ability for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/stay-secure-not-scammed-facebook-marketplace-safety-guide/"><u>Stay Secure, Not Scammed: Facebook Marketplace Safety Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-titans-takedown-unpacking-government-regulatory-actions/"><u>Tech Titans Takedown: Unpacking Government Regulatory Actions</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/voice-command-mastery-unlocking-the-top-5-methods-to-manage-chatgpt/"><u>Voice Command Mastery: Unlocking the Top 5 Methods to Manage ChatGPT</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-cutting-edge-strategies-for-transmitting-obs-livestreams-to-facebook/"><u>[New] In 2024, Cutting-Edge Strategies for Transmitting OBS Livestreams to Facebook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-inspirational-movies-fuel-for-the-soul-and-spirit/"><u>[New] In 2024, Inspirational Movies Fuel for the Soul and Spirit</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-navigating-gopro-lens-distortion-in-post-production/"><u>[New] In 2024, Navigating GoPro Lens Distortion in Post-Production</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/exploring-the-sky-satellite-internets-advantages-with-starlink/"><u>Exploring the Sky - Satellite Internet's Advantages with Starlink</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-vivo-s18-pro-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/highlighting-the-hottest-topics-discussed-in-22-podcasts/"><u>Highlighting the Hottest Topics Discussed in '22 Podcasts</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-nokia-c300-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Nokia C300 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-on-apple-iphone-14-pro-with-or-without-password-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID on Apple iPhone 14 Pro With or Without Password</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-start-shooting-smart-top-15-shot-techniques-for-beginners/"><u>In 2024, Start Shooting Smart Top 15 Shot Techniques for Beginners</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-demystified-digital-realms-and-reality/"><u>Metaverse Demystified: Digital Realms and Reality</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-pact-the-growing-symbiosis-of-fb-and-instagram/"><u>Platform Pact: The Growing Symbiosis of FB & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-guide-expand-your-messenger-circle/"><u>Quick Guide: Expand Your Messenger Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/smooth-social-media-transition-from-instagram-to-facebook-reels/"><u>Smooth Social Media Transition: From Instagram to Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/tread-the-path-to-metamorphic-hub-account-oversight-leverage/"><u>Tread the Path to Metamorphic Hub: Account Oversight Leverage</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-digital-images-and-their-laws/"><u>Understanding Digital Images and Their Laws</u></a></li>
 </ul></div>
 

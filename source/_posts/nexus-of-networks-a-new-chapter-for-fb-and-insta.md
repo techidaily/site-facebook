@@ -1,7 +1,7 @@
 ---
 title: "Nexus of Networks: A New Chapter for FB and Insta"
-date: 2024-11-12T16:30:26.157Z
-updated: 2024-11-17T16:38:58.779Z
+date: 2024-11-22T17:20:08.248Z
+updated: 2024-11-27T13:31:03.335Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/19ce8481b5575ff1faf6716113cc99f8aa092b92d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Meta Tests New Cross-Platform Account Center Features
 
  Meta announced the test of the new Accounts Center features in a[post on the Meta Newsroom](https://about.fb.com/news/2022/09/accounts-center-facebook-and-instagram/) . The new features will allow you to receive your notifications for Facebook and Instagram in one place, as well as create and link existing accounts.
@@ -41,10 +45,7 @@ Meta notes:
  If you want to[make your Instagram more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , or have concerns about Facebook data leaks, this may not be the feature for you.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Accounts Center May Expand to More Apps
@@ -56,10 +57,7 @@ Meta notes:
  In August 2022, Meta introduced Meta Accounts, a change to account structure for Oculus profiles and Meta Horizons.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Meta Continues to Bring its Apps Closer
@@ -81,24 +79,22 @@ Meta notes:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-journeying-together-on-the-big-screen-top-10-family-movies/"><u>[New] Journeying Together on the Big Screen Top 10 Family Movies</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-focus-on-the-details-with-videoleaps-zooming-feature/"><u>[Updated] In 2024, Focus on the Details with Videoleap's Zooming Feature</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-steps-for-effective-ipad-screen-casts/"><u>[Updated] Steps for Effective iPad Screen Casts</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-synthesize-vision-constructing-dynamic-photographic-ensembles/"><u>[Updated] Synthesize Vision Constructing Dynamic Photographic Ensembles</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-game-changing-ways-to-make-money-on-social-media/"><u>5 Game-Changing Ways to Make Money on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-comprehensive-approach-to-creating-engaging-facebook-events/"><u>A Comprehensive Approach to Creating Engaging Facebook Events</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-clickbait-the-real-costs-of-social-sharing/"><u>Beyond Clickbait: The Real Costs of Social Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-rumor-and-fiction-understanding-the-true-essence-of-fb-papers/"><u>Beyond Rumor and Fiction: Understanding the True Essence of FB Papers</u></a></li>
-<li><a href="https://facebook.techidaily.com/boost-your-social-media-fluency-shortcuts-mastery-guide/"><u>Boost Your Social Media Fluency: Shortcuts Mastery Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-streamlined-music-royalties-process/"><u>Breaking Down Facebook’s Streamlined Music Royalties Process</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-free-from-old-walls-renaming-yourself-on-fb/"><u>Breaking Free From Old Walls: Renaming Yourself on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/cleanse-your-feed-a-guide-to-page-de-selection/"><u>Cleanse Your Feed: A Guide to Page De-Selection</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/comprehensive-kinetic-insight-study/"><u>Comprehensive Kinetic Insight Study</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-private-online-presence-essential-tips-for-fb-users/"><u>Crafting a Private Online Presence: Essential Tips for FB Users</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/disabled-apple-iphone-15-how-to-unlock-a-disabled-apple-iphone-15-drfone-by-drfone-ios/"><u>Disabled Apple iPhone 15 How to Unlock a Disabled Apple iPhone 15? | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-the-frame-rate-drop-in-dying-light-an-ultimate-guide/"><u>Fixing the Frame Rate Drop in Dying Light: An Ultimate Guide</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/guia-rapida-como-recuperar-archivos-eliminados-en-windows-usando-la-herramienta-winfr-modo-sencillo/"><u>Guía Rápida: Cómo Recuperar Archivos Eliminados en Windows Usando La Herramienta Winfr (Modo Sencillo)</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solutions-for-iphones-when-alarms-fail-to-go-off/"><u>Solutions for iPhones When Alarms Fail to Go Off</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solve-the-problem-of-undetected-bluetooth-devices-in-windows-10-quickly/"><u>Solve the Problem of Undetected Bluetooth Devices in Windows 10 Quickly!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-streamlined-social-media-management-our-picks-of-the-best-8-planners/"><u>[New] 2024 Approved Streamlined Social Media Management Our Picks of the Best 8 Planners</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-deciphering-how-t-series-earns-via-youtube-for-2024/"><u>[New] Deciphering How T-Series Earns via Youtube for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solved-biomutant-crash-on-pc-2024-tips/"><u>[SOLVED] Biomutant Crash on PC - 2024 Tips</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-a-deep-dive-into-metaverse-gear-top-8-recommendations/"><u>[Updated] A Deep Dive Into Metaverse Gear Top 8 Recommendations</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-economics-of-video-promotion-platforms/"><u>2024 Approved The Economics of Video Promotion Platforms</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/aufklarung-und-behebung-von-fehler-0x80070141-das-gerat-kann-nicht-erreicht-werden/"><u>Aufklärung Und Behebung Von 'Fehler 0X80070141: Das Gerät Kann Nicht Erreicht Werden'</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/explore-the-enhanced-functionality-of-mozilla-thunderbird-update-52/"><u>Explore the Enhanced Functionality of Mozilla Thunderbird Update 52</u></a></li>
+<li><a href="https://facebook.techidaily.com/eyeing-the-horizon-facebooks-predicted-pressures/"><u>Eyeing the Horizon: Facebook's Predicted Pressures</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-ray-ban-stories-how-much-to-spend/"><u>Facebook Unveils Ray-Ban Stories - How Much to Spend?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-mark-reveals-upcoming-whatsapp-expansion/"><u>Facebook's Mark Reveals Upcoming WhatsApp Expansion</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-messenger-conceals-your-messages-temporarily/"><u>How Messenger Conceals Your Messages Temporarily</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-facebook-group/"><u>How to Create a Facebook Group</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-fix-startech-device-drivers-on-windows-11-8-and-7-complete-guide/"><u>How to Fix StarTech Device Drivers on Windows 11, 8 & 7 - Complete Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-with-these-favorite-fb-app-configs/"><u>Mastering Social Media with These Favorite FB App Configs</u></a></li>
+<li><a href="https://facebook.techidaily.com/reeling-in-users-facebooks-battle-with-tiktok-through-reels/"><u>Reeling in Users: Facebook’s Battle with TikTok Through Reels</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-reset-issues-for-windows-windows-11-fixing-errors-successfully/"><u>Troubleshooting Reset Issues for Windows 지원 [Windows 11]: Fixing Errors Successfully</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-prospect-of-a-social-network-backed-local-shopping-center/"><u>Unveiling the Prospect of a Social Network-Backed Local Shopping Center</u></a></li>
 </ul></div>
 

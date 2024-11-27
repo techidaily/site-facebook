@@ -1,7 +1,7 @@
 ---
 title: The End of FB's Face Recognition? Here’s Why Meta Cut Ties
-date: 2024-09-01T03:48:00.739Z
-updated: 2024-09-02T03:48:00.739Z
+date: 2024-11-22T09:24:02.159Z
+updated: 2024-11-27T09:08:15.898Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,17 @@ thumbnail: https://thmb.techidaily.com/f1107e3da6770974363fecbf7658ee04571722ec0
 
  Now, Meta is deleting all these profiles. Let us examine what this means and why Meta is doing it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Facial Recognition?
 
 ![Pixabay facial recognition image of man's face](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pixabay-facial-recognition.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facial recognition is a piece of software that recognizes a human face by mapping its features from a photograph or video. The most important features are the distance between the eyes and the distance from forehead to chin.
 
@@ -35,9 +43,17 @@ thumbnail: https://thmb.techidaily.com/f1107e3da6770974363fecbf7658ee04571722ec0
 
  Related:[How Dark Patterns Mislead You Into Making Bad Privacy Choices](https://www.makeuseof.com/tag/dark-patterns-bad-privacy-choices/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Is Meta Disabling Facial Recognition on Facebook?
 
 ![blonde woman taking photo with phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/blonde-woman-pixabay.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The official reason, given in a[Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
 
@@ -52,8 +68,9 @@ thumbnail: https://thmb.techidaily.com/f1107e3da6770974363fecbf7658ee04571722ec0
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Meta's Disabling of Facebook's Facial Recognition Enhance Privacy?
 
  Meta is not abandoning facial recognition. It will continue to use it, but under a narrower set of circumstances.
@@ -64,14 +81,11 @@ thumbnail: https://thmb.techidaily.com/f1107e3da6770974363fecbf7658ee04571722ec0
 
  Will users have full control of their biometric data in the Metaverse? Will they be requested to provide written consent for it to be used? Or will other forms of abuse that we haven't thought about arise in the Metaverse? It remains to be seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,4 +94,18 @@ thumbnail: https://thmb.techidaily.com/f1107e3da6770974363fecbf7658ee04571722ec0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-stepwise-quietening-routine-for-mixes/"><u>2024 Approved Stepwise Quietening Routine for Mixes</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/a-step-by-step-approach-to-documenting-every-exciting-moment-on-discord-for-2024/"><u>A Step-by-Step Approach to Documenting Every Exciting Moment on Discord for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-dialogue-utilizing-facebooks-updated-groups-management-system/"><u>Enhancing Dialogue: Utilizing Facebook's Updated Groups Management System</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-poco-x5-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Poco X5 Without Password | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-platform-synergy-posting-instagram-reels-on-facebook-timeline/"><u>Leveraging Platform Synergy: Posting Instagram Reels on Facebook Timeline</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/revive-your-task-managers-startup-items-effective-methods-for-restoration/"><u>Revive Your Task Manager's Startup Items: Effective Methods for Restoration</u></a></li>
+<li><a href="https://facebook.techidaily.com/secret-sharing-strategies-for-online-clubs/"><u>Secret Sharing Strategies for Online Clubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-alert-stay-safe-9-tips-for-secure-social-commerce/"><u>Stay Alert, Stay Safe: 9 Tips for Secure Social Commerce</u></a></li>
+<li><a href="https://facebook.techidaily.com/testing-ground-for-digital-art-meta-drops-on-insta-and-fb/"><u>Testing Ground for Digital Art: Meta Drops on Insta & FB</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-the-secrets-how-the-hidden-savings-on-apples-new-ipad-pro-make-it-an-irresistible-bargain-before-prime-day-insights-from-zdnet/"><u>Unlocking the Secrets: How the Hidden Savings on Apple's New iPad Pro Make It an Irresistible Bargain Before Prime Day - Insights From ZDNet</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/visionenhance-pro-high-fidelity-video-upgrade-for-2024/"><u>VisionEnhance Pro - High Fidelity Video Upgrade for 2024</u></a></li>
+</ul></div>
 

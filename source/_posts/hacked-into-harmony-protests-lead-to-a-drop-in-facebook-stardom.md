@@ -1,7 +1,7 @@
 ---
 title: Hacked Into Harmony? Protests Lead to a Drop in Facebook Stardom
-date: 2024-09-01T03:44:10.481Z
-updated: 2024-09-02T03:44:10.481Z
+date: 2024-11-21T18:41:10.036Z
+updated: 2024-11-27T12:37:16.541Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
  Facebook may be sitting at the top of the Social Networking category on Apple's App Store, but that doesn't necessarily mean that people are content with it—just that they're downloading it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook's Mobile App Rating Takes a Nosedive
 
  Pro-Palestinian activists are running a coordinated campaign to lower Facebook's mobile app rating on the Apple and Google app stores.
@@ -29,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
 ![Facebook open in a mobile browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-in-mobile-browser.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The team behind Facebook is reportedly taking this issue very seriously—they've marked it as "SEV1" or "severity 1," which is a descriptor used internally when there is a high-priority issue with the site.
 
  The only type of issue that would take higher priority than this is a "SEV0," which is used when site is down.
@@ -39,9 +47,17 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
  Apparently, Facebook also contacted Apple to have the negative reviews removed from the App Store, but its request was denied.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Under Fire, Again
 
 ![A close-up of a bunch of Facebook logo pin badges.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/Facebook-Launches-Transparency-Center-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Unfortunately, it's become pretty easy these days to find a reason to be frustrated with Facebook. For instance, despite its efforts to stop the spread of COVID-19 misinformation, the platform still allows the use of[anti-vax themed profile picture borders](https://www.makeuseof.com/facebook-anti-vax-profile-borders/) .
 
@@ -51,14 +67,11 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
  Facebook might be the prime example of the phrase "all publicity is good publicity." It's a platform that everyone seems to hate, and yet, we stay on it anyway.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -67,8 +80,20 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discover-data.techidaily.com/1-ultimate-guide-to-hdd-and-ssd-duplication-seamless-cloning-and-upgrading/"><u>1. Ultimate Guide to HDD & SSD Duplication: Seamless Cloning and Upgrading</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/access-immediate-professional-results-free-plus-purchased-luts-for-canon/"><u>Access Immediate Professional Results - FREE + Purchased LUTs for Canon</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-camouflage-your-fb-profile-from-anonymous-onlookers/"><u>How To Camouflage Your FB Profile From Anonymous Onlookers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-finding-a-way-to-download-fcp-free-of-charge/"><u>In 2024, Finding a Way to Download FCP Free-Of-Charge</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-global-iptv-connectivity-solutions/"><u>In 2024, Global IPTV Connectivity Solutions</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/innovate-your-cooking-routine-using-these-7-chatgpt-strategies/"><u>Innovate Your Cooking Routine Using These 7 ChatGPT Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-techniques-for-banishing-personal-updates-from-fb/"><u>Instant Techniques for Banishing Personal Updates From FB</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/master-class-on-top-digital-solutions-to-perfect-media-captions/"><u>Master Class on Top Digital Solutions to Perfect Media Captions</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-fb-memories-heres-how-to-delete-them-android/"><u>No More FB Memories? Here's How To Delete Them, Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/revitalizing-relationships-without-politics-in-sight/"><u>Revitalizing Relationships Without Politics in Sight</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthening-facebooks-defense-password-transformation-tips/"><u>Strengthening Facebook's Defense: Password Transformation Tips</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-revisiting-traditional-features-could-help-instagram/"><u>Why Revisiting Traditional Features Could Help Instagram</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

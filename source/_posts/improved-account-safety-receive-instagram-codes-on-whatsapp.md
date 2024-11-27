@@ -1,7 +1,7 @@
 ---
 title: "Improved Account Safety: Receive Instagram Codes on WhatsApp"
-date: 2024-09-01T03:41:43.765Z
-updated: 2024-09-02T03:41:43.765Z
+date: 2024-11-19T23:17:06.783Z
+updated: 2024-11-27T09:51:01.695Z
 tags:
   - facebook
 categories:
@@ -17,11 +17,19 @@ thumbnail: https://thmb.techidaily.com/f07aba0aa676c9e76b44feb60efd0a45624266536
 
  Facebook is working on a way for Instagram users to receive two-factor authentication (2FA) codes through WhatsApp as a new option augmenting its existing 2FA methods.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Instagram 2FA Codes via WhatsApp?
 
  While Instagram hasn't made the feature official as of yet, mobile developer and reverse engineer Alessandro Paluzzi was able to unearth evidence that Facebook is working on it.
 
  He also shared some screenshots on Twitter showing the user interface around this new optional feature in Instagram's app for iOS and Android. Instagram users will be able to opt-in when---and if, for that matter---Facebook rolls out this option to everyone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Using WhatsApp for Instagram 2FA Codes
 
@@ -36,8 +44,9 @@ thumbnail: https://thmb.techidaily.com/f07aba0aa676c9e76b44feb60efd0a45624266536
  For example,[Instagram is testing uploading post photos and videos via a web browser](https://www.makeuseof.com/instagram-web-posting-test/) , as well as accessing creator tools and creating stories using the web version of the service.
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Which Instagram 2FA Method Should I Use?
 
  2FA is an authentication method that adds an additional layer of security to accounts that support it. With 2FA, you establish access to an online account, device, or app by providing two different types of information: something you know, like a password, and something you have, like a device through which you receive one-time login codes.
@@ -54,14 +63,11 @@ thumbnail: https://thmb.techidaily.com/f07aba0aa676c9e76b44feb60efd0a45624266536
 
  Image Credit: Solen Feyissa/[Unsplash](https://unsplash.com/photos/KWZa42a1kds)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -70,4 +76,18 @@ thumbnail: https://thmb.techidaily.com/f07aba0aa676c9e76b44feb60efd0a45624266536
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-essential-techniques-for-perfecting-your-green-screen-shots/"><u>[New] 2024 Approved Essential Techniques for Perfecting Your Green-Screen Shots</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-convert-youtube-views-into-cash-through-ads/"><u>[New] 2024 Approved How to Convert YouTube Views Into Cash Through Ads</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/elite-windows-melody-makers/"><u>Elite Windows Melody Makers</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-dull-to-dynamic-amplifying-your-groups-charisma/"><u>From Dull to Dynamic: Amplifying Your Group's Charisma</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-apple-iphone-14-plus-by-drfone-ios/"><u>In 2024, Top 11 Free Apps to Check IMEI on Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-maven-ends-tenure-at-social-media-giant/"><u>Marketing Maven Ends Tenure at Social Media Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-reignites-trumps-fb-and-insta-access/"><u>Meta Reignites Trump’s FB & Insta Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synergy-achieved-upload-and-share-fb-stories-notebooks-to-top-sites/"><u>Social Synergy Achieved: Upload & Share FB Stories, Notebooks to Top Sites</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-evolutionary-story-of-ios-by-apple-unfolding-the-history-from-version-10-up-to-180/"><u>The Evolutionary Story of iOS by Apple: Unfolding the History From Version 1.0 up to 18.0</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-sides-of-social-networking-private-faces-on-fb/"><u>Unseen Sides of Social Networking: Private Faces on FB</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Ethics and Techniques in FB Obscurity
-date: 2024-09-01T03:41:46.362Z
-updated: 2024-09-02T03:41:46.362Z
+date: 2024-11-26T03:45:24.070Z
+updated: 2024-11-26T19:45:35.450Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/0c50e9701859daef27aa4fad4bc3c104584c3b31a
  But people have figured out how to tell if someone's Facebook is private, how to access locked Facebook profiles, as well as how to view a private Facebook profile.
 
  So, let's explore how to view private Facebook profiles to help you stay safe.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Is a Private Facebook Profile?
 
@@ -44,15 +48,13 @@ thumbnail: https://thmb.techidaily.com/0c50e9701859daef27aa4fad4bc3c104584c3b31a
  There are a few methods people will use to get into a locked Facebook profile. Here's what you need to watch out for because even if you know the techniques below, someone else may try to use them against you.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Fake Facebook Friends
 
 ![facebook logo with dislike thumbs surrounding](https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d6070583d2a1a451841876e1401.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
  Image Credit: TY Lim/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-10-2018-facebook-1065601421)
 
  The most straightforward method is via a fake friend. These are users who figure out how to see Facebook posts from non-friends.
@@ -68,9 +70,9 @@ thumbnail: https://thmb.techidaily.com/0c50e9701859daef27aa4fad4bc3c104584c3b31a
  You can[take control of your Facebook friend settings](https://www.makeuseof.com/tag/facebook-friend-requests-unwritten-rules-hidden-settings-weekly-facebook-tips/) , including hiding your Friends list and restricting who can send you a friend request.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Spyware Apps
 
  Once Facebook finally made it genuinely difficult to view a private Facebook profile, those desperate to view private Facebook profiles turned to more extreme options.
@@ -83,13 +85,14 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Check out our[complete malware removal guide](https://www.makeuseof.com/tag/download-operation-cleanup-complete-malware-removal-guide/) or the[steps you should take when you discover malware](https://www.makeuseof.com/tag/10-steps-to-take-when-you-discover-malware-on-your-computer/) . They will help you discover if your device is hiding any spyware or malware and explain how to remove it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Password Theft
 
 ![password entry image with padlock facebook color background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/password-entry-image-with-padlock-facebook-color-background.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
  The third method for accessing a private Facebook profile is straight-up password theft. Facebook password creation rules are decent enough. You need a minimum of eight characters, including upper and lowercase letters, numbers, and symbols.
 
  Even with that combination, users will contrive to create the easiest password possible to remember. If you have an easy password, it is also easy for someone to guess it. You might not even know that your[Facebook account has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) to begin with.
@@ -101,17 +104,15 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Otherwise, start using stronger passwords, possibly using one of these[online password generators](https://www.makeuseof.com/tag/5-websites-to-generate-a-safe-and-strong-password/) to get you started. Another thing you can do is take proactive steps before a breach happens. There are several ways you can[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , making it easier to get it back if it's breached.
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Phishing and Social Engineering
 
  Another last resort someone might use to access your private Facebook account is to socially engineer one of your friends into giving up their account. Sure, it sounds far-fetched, and like it would be a tremendous amount of effort just to view a private Facebook account. But if you're a high-worth individual or someone really wants to see what your cat looks like, they might go all the way and attempt to scam one of your friends to see your locked account.
 
  If you have friends that constantly seem to have their Facebook accounts breached, you might consider[adding them to a Facebook restriction list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) or[even blocking them entirely](https://www.makeuseof.com/how-to-block-facebook/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## What Is a Facebook Locked Profile Viewer?
 
  A Facebook locked profile viewer is as it sounds: a tool that promises to unlock any Facebook account and reveal its contents to you. While the idea of using a free online tool to unlock a private Facebook account sounds tempting, these websites are typically filled with all kinds of scams and other nasties, and you could end up doing real harm to your computer. The threat of malware is an issue, and you could lose more than your Facebook data in an attempt to see someone's locked Facebook profile.
@@ -126,14 +127,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  In general, Facebook is a security and privacy nightmare. So, yes, protect your Facebook account against people preying on your data. But consider protecting yourself against the platform itself too.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,4 +140,24 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/updated-engineering-engaging-media-excerpts/"><u>[Updated] Engineering Engaging Media Excerpts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-learning-to-utilize-burst-mode-for-high-speed-photography/"><u>2024 Approved Learning to Utilize Burst Mode for High-Speed Photography</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-itel-s23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211218275-9781803414799-developing-your-supernatural-awareness/"><u>Developing Your Supernatural Awareness | Free Book</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/steps-for-exporting-videos-from-youtube-to-dailymotion/"><u>Easy Steps for Exporting Videos From YouTube to Dailymotion</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/enhance-film-magic-with-final-cuts-top-10-effect-tools-for-2024/"><u>Enhance Film Magic with Final Cut's Top 10 Effect Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-flourishes-with-sustainable-renewable-power/"><u>Facebook Flourishes with Sustainable, Renewable Power</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-undercuts-apple-with-custom-subscription-links-heres-how-they-work/"><u>Facebook Undercuts Apple With Custom Subscription Links: Here's How They Work</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-facebooks-revamped-privacy-center-for-a-secure-social-media-journey/"><u>Harnessing Facebook's Revamped Privacy Center for a Secure Social Media Journey</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-comprehensive-directors-manual-powerdirector-24/"><u>In 2024, Comprehensive Directors' Manual - PowerDirector '24</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-top-7-shooter-games-you-must-play-today/"><u>In 2024, Top 7 Shooter Games You Must Play Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-balancing-act-optimizing-your-social-strategy-with-fb-events/"><u>The Balancing Act: Optimizing Your Social Strategy with FB Events</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-from-interns-to-digital-pioneers/"><u>The Evolution: From Interns to Digital Pioneers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-question-of-integration-is-meta-ai-on-instagramfacebook-right/"><u>The Question of Integration: Is Meta AI on Instagram/Facebook Right?</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/trusted-ai-driven-invoice-management-solutions-your-step-by-step-guide-in-an-ebook/"><u>Trusted AI-Driven Invoice Management Solutions - Your Step by Step Guide in an EBook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-efficiency-with-facebook-shortcut-settings/"><u>Unlocking Efficiency with Facebook Shortcut Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebook-wants-to-allow-users-to-have-multiple-profiles-on-one-account/"><u>Why Facebook Wants to Allow Users to Have Multiple Profiles on One Account</u></a></li>
+</ul></div>
 

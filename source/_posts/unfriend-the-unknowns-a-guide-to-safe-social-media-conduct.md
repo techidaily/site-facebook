@@ -1,7 +1,7 @@
 ---
 title: "Unfriend the Unknowns: A Guide to Safe Social Media Conduct"
-date: 2024-11-10T17:57:08.279Z
-updated: 2024-11-17T16:05:56.847Z
+date: 2024-11-21T22:38:57.203Z
+updated: 2024-11-26T22:48:57.759Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Risk of Identity Theft
 
 ![Man showing an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-showing-an-image.jpg)
@@ -35,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  When someone collects personal data and uses it for their own benefits, it's called identity theft. This is how scammers and internet thieves steal your identity online.
 
  It becomes hard to accuse one person of committing a crime with unknown people in the profile. You can bypass these scams by avoiding anonymous requests or people you don't trust.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Impairment of the Privacy of Your Friends
 
@@ -55,10 +63,7 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  Unless the links you receive are from people you know, there is no point in clicking them.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Personal Safety at Risk
@@ -69,22 +74,13 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
  Consistently updating locations on the map has led to multiple robbery and stalking crimes. If you only keep trustworthy people in your profile, it will eliminate the risk of getting stalked, mugged, or robbed from home.
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Become Habitual of Isolation From Family
 
 ![Using Facebook on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Using-Facebook-on-smartphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Talking to strangers online can be fascinating, especially if you get in touch with some nice ones. This simple app can become your whole life.
 
@@ -100,23 +96,9 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
  Lack of engagement on your Facebook profile gives the impression of being dull and not an exciting person.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7\. Risk of Emotional Damage
 
 ![Man in emotional stress](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-in-emotional-stress.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  When you talk to people who know you in real life, there is an emotional connection and bonding. However, this is not the case with short-term online relations. These people are just there for fun or scams.
 
@@ -143,10 +125,7 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  Even if you add people on Facebook, be very hesitant to share your money and other resources.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Avoiding Strangers on Facebook Might Be a Good Idea
@@ -170,18 +149,18 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-no-1-chart-conversion-software/"><u>[New] 2024 Approved No. 1 Chart Conversion Software</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-bridge-gaps-in-generations-of-viewers-6-interactive-tests-to-find-your-youtube-match/"><u>[New] Bridge Gaps in Generations of Viewers 6 Interactive Tests to Find Your YouTube Match</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-masterful-designers-top-insta-hlv-page-builders/"><u>[Updated] 2024 Approved Masterful Designers Top Insta HLV Page Builders</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-the-soundscape-strategy-incorporating-melodies-into-vimeo-videos/"><u>[Updated] 2024 Approved The Soundscape Strategy Incorporating Melodies Into Vimeo Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-tricks-and-tips-to-bypass-hidden-video-barriers/"><u>2024 Approved Tricks and Tips to Bypass Hidden Video Barriers</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-the-best-6-food-diary-apps-on-your-phone/"><u>Discover the Best 6 Food Diary Apps on Your Phone!</u></a></li>
-<li><a href="https://win-blog.techidaily.com/effective-strategies-for-cross-referencing-values-in-multiple-excel-sheets/"><u>Effective Strategies for Cross-Referencing Values in Multiple Excel Sheets</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-changes-not-accepted-unchanged-whatsapp-features/"><u>Privacy Changes Not Accepted: Unchanged WhatsApp Features</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/professional-tips-top-10-text-effects/"><u>Professional Tips Top 10 Text Effects</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-fixing-your-keyboard-by-restoring-factory-settings/"><u>Step-by-Step Guide: Fixing Your Keyboard by Restoring Factory Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-major-tech-blunders-of-last-year-a-roundup/"><u>The Major Tech Blunders of Last Year: A Roundup</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-rise-of-tiktok-eclipsing-facebooks-growth-and-profits/"><u>The Rise of TikTok Eclipsing Facebook's Growth and Profits</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-facebook-blueprint/"><u>What Is Facebook Blueprint?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-superior-streaming-made-simple-enabling-av1-in-youtube/"><u>[New] In 2024, Superior Streaming Made Simple Enabling AV1 in YouTube</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-optimal-team-call-aesthetics-pre-call-and-post-call-tweaks-for-2024/"><u>[New] Optimal Team Call Aesthetics Pre-Call & Post-Call Tweaks for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-youtube-editing-made-simple-step-by-step-time-stamp-implementation/"><u>[Updated] 2024 Approved YouTube Editing Made Simple Step-by-Step Time Stamp Implementation</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-internal-recorder-usage-for-capturing-screens-on-mate-series-and-p-series-mate-1020-p2010-for-2024/"><u>[Updated] Internal Recorder Usage for Capturing Screens on Mate Series & P Series (Mate 10/20; P20/10) for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/does-ai-limit-response-length-characterswords/"><u>Does AI Limit Response Length: Characters/Words?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/kids-financial-flight-a-10-year-olds-path-to-prosperity/"><u>Kaji Kid’s Financial Flight A 10-Year-Old’s Path to Prosperity</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneaky-social-media-impersonation-warning/"><u>Sneaky Social Media: Impersonation Warning</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-why-and-how-of-deleting-your-facebook-watch-logs/"><u>The Why and How of Deleting Your Facebook Watch Logs</u></a></li>
+<li><a href="https://media-tips.techidaily.com/top-4-methods-to-seamlessly-transform-your-m2ts-files-into-ipad-compatible-videos/"><u>Top 4 Methods to Seamlessly Transform Your M2TS Files Into iPad-Compatible Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/transform-your-images-on-android-our-picks-for-the-5-best-editors/"><u>Transform Your Images on Android Our Picks for the 5 Best Editors</u></a></li>
+<li><a href="https://windows11.techidaily.com/troubleshooting-xp709-on-windows/"><u>Troubleshooting XP709 on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-fb-photo-access-restrictions/"><u>Understanding FB Photo Access Restrictions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-potential-of-social-networking-through-neighborhoods/"><u>Unlocking the Potential of Social Networking Through Neighborhoods</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Concealed Count: How Many More Are Leaving?"
-date: 2024-11-12T17:18:22.383Z
-updated: 2024-11-17T17:11:20.577Z
+date: 2024-11-21T07:27:12.592Z
+updated: 2024-11-27T07:24:35.372Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## So How Many Users Have Facebook Lost?
 
  The[2021 Q4 earnings report of Meta](https://app.quotemedia.com/data/downloadFiling?webmasterId=90423&ref=116418952&type=PDF&symbol=FB&companyName=Meta+Platforms+Inc.&formType=10-K&formDescription=Annual+report+pursuant+to+Section+13+or+15%28d%29&dateFiled=2022-02-03&CK=1326801) showed that Facebook’s daily active users (DAUs) have shrunk from 1.930 billion to around 1.929 billion. This means that Facebook lost between 500,000 and one million users, depending on the news source.
@@ -39,15 +43,16 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
  Talking about other metrics, the monthly active users saw a rise of two million—which is again negligible. Meta’s revenue grew from $29.01 billion in Q3 2021 to $33.67 billion in the next quarter. But the lower-than-expected net income and forecast caused Meta's share price to plunge.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Mark Zuckerberg's Statement on Losing Users
 
 ![mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Credits:[Anthony Quintano via Flickr](https://www.flickr.com/photos/quintanomedia/47774197691)
 
@@ -58,22 +63,12 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
  But TikTok is not the only[reason for Facebook's declining users](https://www.makeuseof.com/why-facebook-is-losing-users/) . Lack of interest among the younger population, no markets to expand into, and its controversial privacy and tracking policies have all contributed to this trend.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Facebook’s End Near?
 
 ![facebook logo fallen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-logo-fallen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  A negligibly-small drop in the number of daily users, and that too for the first time, doesn’t mean that Facebook will fade away anytime soon. The Meta’s expansion into the metaverse will definitely help its flagship product, Facebook.
 
@@ -86,10 +81,7 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
  As it aggressively promotes Horizon Worlds, VR devices, and Reels, Facebook might regain the interest of young adults—a step which is essential to increase its user base. Moreover, a change in its privacy program and ads infrastructure can also help the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's User Loss Is Not as Big as It Seems
@@ -115,16 +107,18 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-quick-guide-to-crafting-realistic-motion-blur-effect-in-ps-for-2024/"><u>[New] Quick Guide to Crafting Realistic Motion Blur Effect in PS for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-ultimate-combination-discover-5-advanced-webcams-for-clear-sound-for-2024/"><u>[New] Ultimate Combination Discover 5 Advanced Webcams for Clear Sound for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-premium-web-audio-solutions-guidebook-top-7-2023/"><u>2024 Approved Premium Web Audio Solutions Guidebook Top 7 2023</u></a></li>
-<li><a href="https://facebook.techidaily.com/deepen-connections-with-interest-based-chat-games/"><u>Deepen Connections with Interest-Based Chat Games</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-delight-top-9-uplifting-aspects-of-your-screen-time/"><u>Digital Delight: Top 9 Uplifting Aspects of Your Screen Time</u></a></li>
-<li><a href="https://facebook.techidaily.com/disconnect-intentions-unfriending-a-personality-page/"><u>Disconnect Intentions: Unfriending a Personality Page</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-facebooks-core-design-ethos/"><u>Discovering Facebook's Core Design Ethos</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-essentials-top-10-fast-android-apps/"><u>Efficient Essentials: Top 10 Fast Android Apps</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Poco M6 5G | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-full-assessment-razers-hd-webcam/"><u>[New] 2024 Approved Full Assessment Razer's HD Webcam</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-strategies-to-mute-facebook-ads-on-videos/"><u>[New] In 2024, Strategies to Mute Facebook Ads on Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-seamless-integration-free-text-animations-both-ways/"><u>2024 Approved Seamless Integration Free Text Animations Both Ways</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unveiling-the-magic-of-moving-texts-a-guide-for-insta-pros/"><u>2024 Approved Unveiling the Magic of Moving Texts A Guide for Insta Pros</u></a></li>
+<li><a href="https://games-able.techidaily.com/boundaries-blurred-windows-and-steamos-living-side-by-side/"><u>Boundaries Blurred: Windows and SteamOS Living Side By Side</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-oversight-board-will-soon-announce-ruling-on-trumps-ban/"><u>Facebook's Oversight Board Will Soon Announce Ruling on Trump's Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-facebook-cover-photo-using-your-avatar/"><u>How to Create a Facebook Cover Photo Using Your Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/igniting-the-digital-conversation-12-revolutionary-strategies-for-engagement/"><u>Igniting the Digital Conversation: 12 Revolutionary Strategies for Engagement</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-ultima-designs-analysis-pinnacle-suite-studio-2023-overview/"><u>In 2024, Ultima Designs Analysis Pinnacle Suite Studio, 2023 Overview</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-nft-trends-with-meta-drops-short-term-support-test/"><u>Pioneering NFT Trends with Meta Drop's Short-Term Support Test</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solved-troubleshooting-guide-for-star-wars-jedi-fallen-order-on-your-desktop-computer/"><u>Solved! Troubleshooting Guide for Star Wars Jedi: Fallen Order on Your Desktop Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-tale-of-a-million-facebook-groups-amazon-vs-admins/"><u>The Tale of a Million Facebook Groups: Amazon Vs. Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-list-9-social-media-compromise-clues/"><u>The Ultimate List: 9 Social Media Compromise Clues</u></a></li>
 </ul></div>
 

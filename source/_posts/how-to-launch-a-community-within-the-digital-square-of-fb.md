@@ -1,7 +1,7 @@
 ---
 title: How to Launch a Community Within the Digital Square of FB
-date: 2024-09-01T03:48:13.620Z
-updated: 2024-09-02T03:48:13.620Z
+date: 2024-11-20T05:03:17.109Z
+updated: 2024-11-26T23:20:24.799Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,17 @@ thumbnail: https://thmb.techidaily.com/5a6b81e19407a604be22bf69df443b0f8b7b5bc4d
 
 ![Facebook app menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318180626_1305065376700688_893057211392699849_n.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook app menu showing groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318097009_540592084597722_6156826463203386396_n.jpg)
 
 ![Facebook app add group page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318166381_2214654402059587_9156416634789261192_n.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -37,6 +45,10 @@ Close
 4. You'll see a**blue circle** with a cross through it on the bottom left-hand corner of the screen.
 5. Tap it and select**Create Group** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Customize Your Facebook Group
 
  Before you create your group, you'll need to select some options from a menu which will enable you to customize it for your purposes.
@@ -47,45 +59,35 @@ Close
 
  When you're finished, click**Create Group** at the bottom of the screen. You'll then be taken to a page that will allow you to invite members from your Facebook friends.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Go Live With Your Facebook Group
 
 ![Create group page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318217881_894969165206821_5445276175446551093_n.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Choose group options when creating a group on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318477258_939639773675965_2846710644227593590_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Add a cover photo to a group page option on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318289485_906496730348611_983213840070343513_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
  After that, you will be able to add a cover photo, a description, and choose from a list of goals that best describe the purpose of your group. After this, you can create your first post and look for[ways to make your Facebook group popular](https://www.makeuseof.com/tag/facebook-group-popular-weekly-facebook-tips/) .
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Making a Facebook Group Is Easy
 
  Anyone with a Facebook account can create a group. It doesn't matter whether your group will attract the likes of thousands of members or only a handful of people; if you want to build a group where people can come discuss and share their interests, it's time to test it out.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -94,4 +96,17 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-building-impressive-pixelated-photo-combinations/"><u>[New] 2024 Approved Building Impressive Pixelated Photo Combinations</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-hosting-and-joining-google-meet-your-free-comprehensive-guidebook/"><u>[New] Hosting and Joining Google Meet Your Free, Comprehensive Guidebook</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-x-recorder-your-pcs-audio-capture-companion-for-2024/"><u>[New] X-Recorder Your PC's Audio Capture Companion for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-frontier-gadgets-galore-top-10-vr-accessories/"><u>[Updated] Frontier Gadgets Galore Top 10 VR Accessories</u></a></li>
+<li><a href="https://video-capture.techidaily.com/from-novice-to-expert-a-comprehensive-guide-to-macscreencasting-for-2024/"><u>From Novice to Expert A Comprehensive Guide to MacScreencasting for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/paving-the-path-for-creativity-turning-gifs-to-stickers-on-all-social-platforms/"><u>Paving the Path for Creativity Turning GIFS to Stickers on All Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-in-the-metaverse-is-it-superior-to-facebooks-rift-2/"><u>Privacy in the Metaverse: Is It Superior to Facebook's Rift 2</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-content-circulation-facebook-listens-to-user-voices/"><u>Rethinking Content Circulation: Facebook Listens to User Voices</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pros-and-cons-of-joining-an-expat-group-on-facebook/"><u>The Pros and Cons of Joining an Expat Group on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-puzzle-societys-scorn-towards-online-friendship-groups/"><u>The Puzzle: Society's Scorn Towards Online Friendship Groups</u></a></li>
+</ul></div>
 

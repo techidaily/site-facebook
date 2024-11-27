@@ -1,7 +1,7 @@
 ---
 title: Steering Clear of Unwanted Facebook Screenshots
-date: 2024-11-14T18:02:15.490Z
-updated: 2024-11-17T17:42:36.170Z
+date: 2024-11-25T18:27:52.313Z
+updated: 2024-11-27T00:02:53.730Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Photo Privacy Is More Important Than You Think
 
  Keeping your photographs private—or at least[restricted to a small group of friends](https://www.makeuseof.com/tag/4-ways-share-photos-videos-privately-family/) —is more important than you might think. And it's not just because a creep from your old high school is still liking everything you post.
@@ -41,23 +45,9 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Inline Privacy Controls
 
 ![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Let's start at the very beginning. Even if the privacy of your old photos is a mess, it's time to turn over a new leaf. So let's make sure the privacy is correct for all your new photos going forward.
 
@@ -68,10 +58,7 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Old Photos
@@ -81,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  Luckily, it is possible to change the privacy level of your old snaps. You have three methods open to you:
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
@@ -106,13 +97,6 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Photos You're Tagged In
 
  Great, so that covers everything you've uploaded yourself, but what about photos of you that other people have uploaded? How can you make those private?
@@ -125,9 +109,17 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
  If you feel the image is abusive, you click on the**Report** link to let Facebook know. If the company agrees, it will remove the photo.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tag Suggestions
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
@@ -152,24 +144,20 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-breaking-down-tseries-income-strategy-on-youtube-platform/"><u>[New] Breaking Down TSeries' Income Strategy on YouTube Platform</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-innovative-approaches-5-techniques-for-recording-sounds-on-windows-11-for-2024/"><u>[New] Innovative Approaches 5 Techniques for Recording Sounds on Windows 11 for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-achieving-asmr-bliss-selecting-the-right-mic/"><u>[Updated] 2024 Approved Achieving ASMR Bliss Selecting the Right Mic</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-charting-your-course-in-youtubing-dodge-these-top-8-common-missteps/"><u>[Updated] Charting Your Course in YouTubing Dodge These Top 8 Common Missteps!</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-the-5-key-moves-to-double-your-channels-traffic/"><u>[Updated] The 5 Key Moves to Double Your Channel's Traffic</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-million-from-fb-aims-to-disrupt-journalism-on-substack/"><u>$5 Million From FB Aims to Disrupt Journalism on Substack</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-the-smudge-free-sequence-eliminating-gopro-fog/"><u>2024 Approved The Smudge-Free Sequence Eliminating GoPro Fog</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-virtual-verification-blueprint-to-spot-fraudulence/"><u>A Virtual Verification Blueprint to Spot Fraudulence</u></a></li>
-<li><a href="https://facebook.techidaily.com/adapting-with-ease-the-persistent-benefits-of-facebooks-innovations/"><u>Adapting with Ease: The Persistent Benefits of Facebook's Innovations</u></a></li>
-<li><a href="https://facebook.techidaily.com/archery-associations-escape-social-spotlight/"><u>Archery Associations Escape Social Spotlight</u></a></li>
-<li><a href="https://facebook.techidaily.com/assault-frequency-on-digital-user-accounts/"><u>Assault Frequency on Digital User Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/blending-realms-what-is-the-emergent-metaverse/"><u>Blending Realms: What Is the Emergent Metaverse?</u></a></li>
-<li><a href="https://facebook.techidaily.com/carrying-on-without-carolyn-facebooks-ad-head/"><u>Carrying On Without Carolyn, Facebook's Ad Head</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719152087466-enhanced-confidentiality-facebook-announces-new-secure-messaging-features-on-platforms/"><u>Enhanced Confidentiality: Facebook Announces New Secure Messaging Features on Platforms.</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-step-by-step-guide-to-adding-subtitles-in-wmp/"><u>In 2024, Step-by-Step Guide to Adding Subtitles in WMP</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-lava-yuva-3-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Lava Yuva 3 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/infusing-energy-youtube-music-in-film-and-media-projects/"><u>Infusing Energy YouTube Music in Film and Media Projects</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ate-online-video-snatcher-download-favorites-instantly/"><u>Ultimate Online Video Snatcher Download Favorites Instantly</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719148914218-ushering-in-a-new-era-of-private-online-discussions-with-end-to-end-encryption-by-facebook/"><u>Ushering in a New Era of Private Online Discussions with End-to-End Encryption by Facebook</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-determining-peak-listener-engagement-days/"><u>[New] 2024 Approved Determining Peak Listener Engagement Days</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-online-tips-creating-title-magic/"><u>[New] Top Online Tips Creating Title Magic</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-mergecombinejoin-youtube-flv-videos/"><u>[Updated] 2024 Approved How to Merge/Combine/Join YouTube (FLV) Videos</u></a></li>
+<li><a href="https://review-topics.techidaily.com/59-for-musical-mastery-embrace-the-world-of-open-source-with-tulips-micropython-driven-computer-designed-for-musicians/"><u>$59 for Musical Mastery: Embrace the World of Open Source with Tulip's MicroPython-Driven Computer Designed for Musicians.</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-vivo-v30-lite-5g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Vivo V30 Lite 5G Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581584502-efficient-bokmaal-learning-quick-10-minute-fixes/"><u>Efficient Bokmaal Learning, Quick 10-Minute Fixes!</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disable-broadcast-message-everyone/"><u>How to Disable Broadcast Message (@Everyone)</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disable-the-people-you-may-know-feature-on-facebook/"><u>How to Disable the People You May Know Feature on Facebook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-how-to-utilize-obs-studio-android-solutions/"><u>In 2024, How to Utilize OBS Studio Android Solutions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/navigating-the-world-of-smartwatches-google-pixel-watch-versus-apple-series-9-showdown-zdnets-expert-take/"><u>Navigating the World of Smartwatches: Google Pixel Watch Versus Apple Series 9 Showdown | ZDNET's Expert Take</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-release-dates-oculus-quest-iii-postponed/"><u>Rethinking Release Dates: Oculus Quest III Postponed</u></a></li>
+<li><a href="https://facebook.techidaily.com/stabilizing-your-digital-footprint-after-erratic-snapchat-sign-offs/"><u>Stabilizing Your Digital Footprint After Erratic Snapchat Sign-Offs</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-big-tech-and-americas-new-regulatory-framework/"><u>The Future of Big Tech and America's New Regulatory Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-outages-in-tech-giants-platforms/"><u>Tracing Outages in Tech Giants' Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-instagram-wants-you-to-take-a-break-from-social-media/"><u>Why Instagram Wants You to Take a Break From Social Media</u></a></li>
 </ul></div>
 

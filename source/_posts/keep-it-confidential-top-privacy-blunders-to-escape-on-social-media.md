@@ -1,7 +1,7 @@
 ---
 title: Keep It Confidential! Top Privacy Blunders to Escape on Social Media
-date: 2024-11-15T17:29:09.871Z
-updated: 2024-11-17T17:09:02.419Z
+date: 2024-11-24T05:08:20.288Z
+updated: 2024-11-26T21:25:22.645Z
 tags:
   - facebook
 categories:
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Don't share your travel plans or photos while on a trip to avoid advertising that you're away from home and potentially inviting theft.
@@ -29,10 +33,7 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Travel Plans
@@ -82,10 +83,7 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Expensive New Purchases
@@ -96,29 +94,19 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
  Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7\. Personal Advice
 
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
  The key point is that you simply don't (and can't) know all the facts. If someone is sick or in trouble, they should seek professional help. This also applies to advice on exercise, weight loss, diet, finance, relationships, and other sensitive topics. You're not going to get the whole picture from a social post.
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Scammy Giveaways and Contests
 
@@ -145,10 +133,7 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What You Shouldn't Share Online
@@ -172,19 +157,20 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-image-interpretation-illumination-ideal-photo-to-cartoony-tools/"><u>[New] 2024 Approved Image Interpretation Illumination Ideal Photo-to-Cartoony Tools</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-unveiling-voice-memo-creation-on-ios-devices/"><u>[Updated] 2024 Approved Unveiling Voice Memo Creation on iOS Devices</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-a-comprehensive-review-of-9-iphone-photo-watermark-apps/"><u>[Updated] A Comprehensive Review of 9 iPhone Photo Watermark Apps</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-create-captivating-yt-thumbnails-fast-for-2024/"><u>[Updated] Create Captivating YT Thumbnails Fast for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-mechanics-of-facebooks-artist-compensation/"><u>Exploring the Mechanics of Facebook's Artist Compensation</u></a></li>
-<li><a href="https://games-able.techidaily.com/game-not-up-to-par-get-your-cash-back-from-xbox/"><u>Game Not Up to Par? Get Your Cash Back From Xbox</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-restore-brightness-control-on-your-windows-11-system/"><u>How To Restore Brightness Control on Your Windows 11 System</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/1728507979378-illustrator/"><u>Illustratorドキュメントを再構築＆修復するための究極のテクニック</u></a></li>
-<li><a href="https://facebook.techidaily.com/revamp-your-profile-by-clearing-fb-watch-history/"><u>Revamp Your Profile by Clearing FB Watch History</u></a></li>
-<li><a href="https://facebook.techidaily.com/telegram-the-unforeseen-beneficiary-of-social-media-disruptions/"><u>Telegram: The Unforeseen Beneficiary of Social Media Disruptions</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-view-count-into-meaningful-engagement-with-fb-tactics/"><u>Transforming View Count Into Meaningful Engagement with FB Tactics</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-contacts-from-samsung-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Samsung .</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-power-of-the-120-minute-blade-blh4100-rtf-an-outdoor-rc-helicopter-reviewed/"><u>Unveiling the Power of the 120-Minute Blade BLH4100 RTF: An Outdoor RC Helicopter Reviewed!</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-neighborhood-nexus-a-facebook-feature-overview/"><u>Virtual Neighborhood Nexus: A Facebook Feature Overview</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-streamlining-game-recording-techniques/"><u>[New] 2024 Approved Streamlining Game Recording Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-instant-download-fb-music-library/"><u>[Updated] In 2024, Instant Download FB Music Library</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-deciphering-instagram-stories-what-youre-not-seeing-as-a-viewer/"><u>2024 Approved Deciphering Instagram Stories What You're Not Seeing as a Viewer</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/affordable-and-high-speed-the-compact-sandisk-usb-drive-reviewed-by-tech-experts-at-zdnet/"><u>Affordable & High-Speed: The Compact SanDisk USB Drive Reviewed by Tech Experts at ZDNet</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effortlessly-transfer-and-enjoy-your-steam-dvd-titles-on-an-apple-tv-with-these-simple-tips/"><u>Effortlessly Transfer and Enjoy Your Steam DVD Titles on an Apple TV with These Simple Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/english-clubs-shun-social-networking-initiate-platform-strike/"><u>English Clubs Shun Social Networking, Initiate Platform Strike</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reactivate-after-forgetting-facebook-password/"><u>How to Reactivate After Forgetting Facebook Password</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-vivo-y100-5g-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Vivo Y100 5G Unlock Without Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-unveils-enhanced-personalizable-virtual-characters/"><u>Oculus Unveils Enhanced, Personalizable Virtual Characters</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-language-options-on-facebook-profile-and-pages/"><u>Simplifying Language Options on Facebook Profile and Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-duplicating-your-posts-on-multiple-fb-groups/"><u>Tips for Duplicating Your Posts on Multiple FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-automatic-broadcast-notifications/"><u>Turn Off Automatic Broadcast Notifications</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-exploring-the-essence-of-digital-audio-studios-debunking-myths-about-daw-technology/"><u>Updated 2024 Approved Exploring the Essence of Digital Audio Studios Debunking Myths About DAW Technology</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-flv-photo-slideshow-with-music/"><u>Updated How to Make a FLV Photo Slideshow with Music</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-your-privacy-matters-more-than-ever-with-facebooks-update/"><u>Why Your Privacy Matters More Than Ever with Facebook's Update</u></a></li>
 </ul></div>
 

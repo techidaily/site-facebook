@@ -1,7 +1,7 @@
 ---
 title: "Social Connectivity’s Surprising Benevolence: 7 Aspects"
-date: 2024-11-15T16:53:30.972Z
-updated: 2024-11-17T16:09:05.223Z
+date: 2024-11-20T08:16:15.753Z
+updated: 2024-11-26T21:22:39.896Z
 tags:
   - facebook
 categories:
@@ -38,16 +38,13 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
 **Social media can help you make and keep friends.**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Social Media Fosters Empathy
 
 ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
 
@@ -75,13 +72,6 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
  **Social media allows you to live a life unhindered by small talk.**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Social Media Makes the World Seem Smaller
 
 ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
@@ -97,28 +87,12 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 **Social media has made the world a much smaller place.**
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Social Media Helps You Build Relationships
 
 ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Image Credit: Katie Tegtmeyer/[Flickr](https://www.flickr.com/photos/katietegtmeyer/124315323/)
 
@@ -130,9 +104,17 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
  **Social media can help foster friendships and more besides.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Social Media Helps News Travel Faster
 
 ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
@@ -150,6 +132,10 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
 ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
 
  As previously mentioned,[social networking sites](https://www.makeuseof.com/tag/top-social-media-apps-sites/) can help you find people you share interests with. Facebook, for example, asks you to list who and what you are interested in right from the start. This makes it much easier to find common ground with other users.
@@ -159,13 +145,6 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
  This does require the sharing of information and giving up a certain amount of privacy. Which is enough for some people to reject social networking outright. Keeping personal information private is necessary, but sharing your likes and dislikes can actually contribute to an open society.
 
  **Social networking sites make fitting in easier, as long as you open up a little.**
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## So, Is Social Media Good for Society?
 
@@ -186,16 +165,18 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/avigating-hashtags-for-a-6-figure-view-spike-on-youtube/"><u>[New] Navigating Hashtags for a 6-Figure View Spike on YouTube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-decoding-the-route-to-achieving-facebook-verification/"><u>[Updated] Decoding the Route to Achieving Facebook Verification</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-expert-secrets-to-exceptional-tiktok-videos-for-2024/"><u>[Updated] Expert Secrets to Exceptional TikTok Videos for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/fixing-network-card-drivers-on-windows-7-step-by-step-solution-walkthrough/"><u>Fixing Network Card Drivers on Windows 7 – Step-by-Step Solution Walkthrough</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-capture-and-conquer-instagram-photos/"><u>In 2024, Capture and Conquer Instagram Photos</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-expands-reels-with-advertising-facebook-explores-stickers/"><u>Instagram Expands Reels with Advertising, Facebook Explores Stickers</u></a></li>
-<li><a href="https://facebook.techidaily.com/parental-control-updates-on-childs-messenger-details/"><u>Parental Control Updates on Child's Messenger Details</u></a></li>
-<li><a href="https://facebook.techidaily.com/peering-into-facebooks-content-regulation-entities/"><u>Peering Into Facebook’s Content Regulation Entities</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-social-networks-identifying-fb-intrusions/"><u>Secure Your Social Networks: Identifying FB Intrusions</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/steps-to-activate-windows-11-hdr-automatically-for-2024/"><u>Steps to Activate Windows 11 HDR Automatically for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-top-12-free-animation-tools-for-windows-and-macos/"><u>Updated Top 12 Free Animation Tools for Windows and macOS</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-stabilize-your-camera-without-buying-a-tripod-in-2024/"><u>[New] How to Stabilize Your Camera without Buying a Tripod, In 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-turning-tides-in-photographic-history-retrieval-on-facebook/"><u>[New] In 2024, Turning Tides in Photographic History Retrieval on Facebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-from-passive-to-active-earnings-with-instagram-expertise/"><u>[Updated] 2024 Approved From Passive to Active Earnings with Instagram Expertise</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/boost-efficiency-with-10-leading-chatgpt-plugins/"><u>Boost Efficiency with 10 Leading ChatGPT Plugins</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/going-viral-made-simple-discover-10-ingenious-hacks-for-insta-success/"><u>Going Viral Made Simple: Discover 10 Ingenious Hacks for Insta Success</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Honor 70 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/inspiration-in-frames-top-20-creative-instagrams/"><u>Inspiration in Frames Top 20 Creative Instagrams</u></a></li>
+<li><a href="https://facebook.techidaily.com/managing-direct-linking-to-facebook-site/"><u>Managing Direct Linking to Facebook Site</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-photobooks-creating-collages-for-social-sharing/"><u>Mastering Photobooks: Creating Collages for Social Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-feed-essential-mobile-setting-tweaks-in-fb-app/"><u>Mastery Over Feed: Essential Mobile Setting Tweaks in FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/reduce-user-specific-promotional-messages-online/"><u>Reduce User-Specific Promotional Messages Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-sanctions-justifiable-trump-halt-not-eternal/"><u>Social Media Sanctions: Justifiable Trump Halt, Not Eternal</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-next-step-for-connectivity-might-fb-open-stores-locally-soon/"><u>The Next Step for Connectivity: Might FB Open Stores Locally Soon?</u></a></li>
 </ul></div>
 

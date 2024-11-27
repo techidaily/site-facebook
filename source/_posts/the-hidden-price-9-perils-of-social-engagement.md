@@ -1,7 +1,7 @@
 ---
 title: "The Hidden Price: 9 Perils of Social Engagement"
-date: 2024-11-10T16:07:22.695Z
-updated: 2024-11-17T16:00:40.586Z
+date: 2024-11-21T00:35:56.908Z
+updated: 2024-11-27T03:08:45.381Z
 tags:
   - facebook
 categories:
@@ -24,18 +24,15 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Social Media Is Bad for You
 
  You might be surprised to learn that the negative effects of social media are both physical and mental. They can change your perception of the world and yourself. While[social media does have some positive effects](https://www.makeuseof.com/tag/positive-impact-social-networking-sites-society-opinion/) , and there are certainly[positive social media stories](https://www.makeuseof.com/positive-social-media-stories/) , it also has a lot in the drawback column.
 
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 1\. Depression and Anxiety
 
@@ -98,10 +95,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  Surround yourself with people who love you for who you are, and you won't have to stress about fake Instagram beauty.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Unhealthy Sleep Patterns
@@ -115,15 +109,16 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. General Addiction
 
 ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
@@ -134,10 +129,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our[guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Handle the Negative Effects of Social Media
@@ -161,17 +153,24 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-from-live-action-to-youtube-recording-your-device-display-for-2024/"><u>[New] From Live Action to YouTube Recording Your Device Display for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-seamless-speech-recognition-the-pinnacle-of-googles-translation-for-2024/"><u>[New] Seamless Speech Recognition The Pinnacle of Google's Translation for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-unlocking-video-treasures-securely-capturing-igtv-videos-on-windows-and-macos/"><u>[Updated] Unlocking Video Treasures Securely Capturing IGTV Videos on Windows & MacOS</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-youtube-video-trailers-with-filmoras-guide/"><u>2024 Approved Crafting YouTube Video Trailers with Filmora's Guide</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Tecno Spark 20 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-hack-frequency-on-platforms/"><u>Analyzing Hack Frequency on Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-gaps-facebook-and-instagram-now-tighter-linked/"><u>Bridging Gaps: Facebook & Instagram Now Tighter Linked</u></a></li>
-<li><a href="https://facebook.techidaily.com/converting-virtual-memories-a-step-by-step-for-fb-download/"><u>Converting Virtual Memories: A Step-by-Step for FB Download</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-content-that-resonates-increasing-fb-interactions/"><u>Crafting Content That Resonates: Increasing FB Interactions</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-activate-directx-11-features-if-your-gpu-does-not-support-them-initially/"><u>How to Activate DirectX 11 Features if Your GPU Does Not Support Them Initially</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Xiaomi 14 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-your-own-emoji-in-2-ways-step-by-step-guide/"><u>Updated How to Make Your Own Emoji in 2 Ways Step-By Step Guide</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-epson-l3110-driver-for-windows-11107/"><u>[Download] Epson L3110 Driver for Windows 11/10/7</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-inspire-business-identity-utilize-free-logo-templates-and-modify-endlessly/"><u>2024 Approved Inspire Business Identity Utilize Free Logo Templates & Modify Endlessly</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/best-10-text-presets-for-after-effects-for-2024/"><u>Best 10 Text Presets for After Effects for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-facebook-traits-boosting-collaboration-in-teams/"><u>Essential Facebook Traits Boosting Collaboration in Teams</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-freeze-unfreezing-the-frozen-features/"><u>Facebook Freeze: Unfreezing the Frozen Features</u></a></li>
+<li><a href="https://blog-min.techidaily.com/flvgifmovavi/"><u>FLV到GIF自由转换：Movavi移动版网络工具</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-adolescent-security-in-the-world-of-social-media/"><u>Fortifying Adolescent Security in the World of Social Media</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-latest-kyocera-printer-drivers-compatible-with-windows-systems/"><u>Get the Latest KYOCERA Printer Drivers - Compatible With Windows Systems</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-oppo-reno-8t-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Oppo Reno 8T Phone that is Locked?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-fresh-start-strategy-budget-channels-to-purchase/"><u>In 2024, Fresh Start Strategy Budget Channels to Purchase</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-vivo-y78-5g-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Vivo Y78 5G Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-to-detect-facebook-banned-friends/"><u>Navigating to Detect Facebook Banned Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-profile-a-streamlined-approach/"><u>Optimize Your Profile: A Streamlined Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-identity-update-made-simple/"><u>Social Media Identity Update Made Simple</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-marking-self-as-safe-on-fb/"><u>Steps for Marking Self as Safe on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-beginners-blueprint-to-master-message-spaces/"><u>The Beginner's Blueprint to Master Message Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/theories-on-the-impending-shift-in-facebooks-name/"><u>Theories on the Impending Shift in Facebook’s Name</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-free-video-compression-tools-best-options-for-windows-and-mac-users/"><u>Top Free Video Compression Tools : Best Options for Windows and Mac Users</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/uncover-three-methods-for-checking-the-power-remaining-on-your-kindle/"><u>Uncover Three Methods for Checking the Power Remaining on Your Kindle</u></a></li>
 </ul></div>
 

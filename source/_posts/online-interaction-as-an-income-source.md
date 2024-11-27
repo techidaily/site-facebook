@@ -1,7 +1,7 @@
 ---
 title: Online Interaction as an Income Source
-date: 2024-11-12T17:07:35.850Z
-updated: 2024-11-17T16:14:03.930Z
+date: 2024-11-26T02:33:58.520Z
+updated: 2024-11-27T09:53:37.522Z
 tags:
   - facebook
 categories:
@@ -24,22 +24,23 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Venture Capital
 
 ![plant growing from glass full of money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/plant-growing-from-glass-full-of-money.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Venture capital is a form of private financing and it's how a lot of social media companies get their start.
 
  Venture capital is when an investor, such as a wealthy individual or investment bank, believes that a start-up business has potential. They then invest money (or sometimes their time and expertise), usually in return for a share of the business. The larger their share in the business, the more influence they have over its decisions. The hope for the investors is that they make their money back and more when the business is larger and becomes profitable.
 
  Sites like Facebook and Twitter have received hundreds of millions of dollars in venture capital. Nowadays, with hindsight, we can say that those investors made intelligent choices, but venture capital is a risky game and investments don't always pay off. Would you have invested in Facebook when it was called "Thefacebook" and only available to Harvard students?
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 2\. Advertising
 
@@ -59,19 +60,6 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
 ![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Image Credit:[Facebook](https://www.facebook.com/about/ads)
 
  Another big source of income for social media platforms, and a controversial one, is through collecting and selling user data.
@@ -83,22 +71,12 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
  Another example is Facebook, which has often been under the spotlight thanks to things like the Cambridge Analytica scandal. Despite the uproar, Facebook isn't purposely giving other companies your data—it wants to keep it for itself. However, Facebook monitors your usage, such as the pages you like, and uses this to put you in a category so that advertisers can pay to target that group.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Premium Memberships
 
 ![Reddit Premium promo image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/06/whats-reddit-premium.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  All the popular social media sites let you make your account for free. However, some of them lock additional features behind a paywall in the hopes that you will pay for these premium memberships.
 
@@ -108,9 +86,17 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
  The majority of users won't pay for these premium memberships, which is one of the reasons that the base account is free. However, for those people who are willing to pay, it makes for a good income stream for the social networks.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Transaction Fees and Virtual Products
 
 ![facebook fundraisers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-fundraisers.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Some social networks offer services for other people to sell or raise money through them. The social network will collect a transaction fee on this.
 
@@ -147,19 +133,17 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/updated-a-simple-guide-changing-your-voice-in-online-battles-pubg/"><u>[Updated] A Simple Guide Changing Your Voice in Online Battles (PUBG)</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-bold-bio-brilliance-groundbreaking-ideas-for-increasing-follower-count-on-tiktok-through-filmora/"><u>[Updated] Bold Bio Brilliance Groundbreaking Ideas for Increasing Follower Count on TikTok Through Filmora</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-cutting-edge-camera-technology-for-youtube-stars-for-2024/"><u>[Updated] Cutting-Edge Camera Technology For YouTube Stars for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-mastering-sound-communication-on-whatsapp/"><u>[Updated] Mastering Sound Communication on WhatsApp</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/anti-fog-gear-for-clear-shot-capture-in-cold-weather-for-2024/"><u>Anti-Fog Gear for Clear Shot Capture in Cold Weather for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-social-scene-expat-groups-on-facebook/"><u>Decoding the Social Scene: Expat Groups on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/delete-prep-navigate-your-facebook-break-with-ease/"><u>Delete Prep: Navigate Your Facebook Break With Ease</u></a></li>
-<li><a href="https://facebook.techidaily.com/detaching-the-social-fabric-separate-insta-fb/"><u>Detaching the Social Fabric: Separate Insta-FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/determining-if-(securityfbcom)-is-a-secure-and-legitimate-mail-service-from-fb/"><u>Determining if <security@fb.com> Is a Secure and Legitimate Mail Service From FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-intellectual-property-in-online-pics/"><u>Dissecting Intellectual Property in Online Pics</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-memory-sanctity-fb-block-strategies/"><u>Elevate Memory Sanctity: FB Block Strategies</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/ranking-the-top-8-apps-to-increase-popularity-on-facebook-for-2024/"><u>Ranking the Top 8 Apps to Increase Popularity on Facebook for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-ultimate-guide-to-efficiently-using-look-up-tables-luts-for-2024/"><u>The Ultimate Guide to Efficiently Using Look-Up Tables (LUTs) for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/top-tips-to-overcome-lag-enhancing-frame-rates-in-pc-games/"><u>Top Tips to Overcome Lag: Enhancing Frame Rates in PC Games</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-boosting-your-youtube-with-partner-videos/"><u>[New] Boosting Your YouTube with Partner Videos</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-realme-12-proplus-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/emerging-us-antitrust-legislation-taming-giants-in-tech/"><u>Emerging US Antitrust Legislation: Taming Giants in Tech</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/essential-tools-for-every-mac-user-free-screen-recorder-guide-for-2024/"><u>Essential Tools for Every Mac User – Free Screen Recorder Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-legitimacy-of-facebooks-safety-mail-service-securityfb/"><u>Examining the Legitimacy of Facebook's Safety Mail Service @Security@fb</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-surviving-in-mc-6-home-ideas/"><u>In 2024, Surviving in MC 6 Home Ideas</u></a></li>
+<li><a href="https://games-able.techidaily.com/leveraging-community-channels-for-starfield-testers/"><u>Leveraging Community Channels for Starfield Testers</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/maximizing-your-viewing-experience-with-the-affordable-hisense-50h8f-4k-tv-expert-review/"><u>Maximizing Your Viewing Experience with the Affordable Hisense 50H8F 4K TV - Expert Review</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/realistic-or-risky-vrs-hidden-dangers-for-2024/"><u>Realistic or Risky? VR's Hidden Dangers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/renaming-and-redesigning-your-social-media-hub/"><u>Renaming and Redesigning Your Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-platform-takes-legal-action-against-indian-information-rules/"><u>Tech Platform Takes Legal Action Against Indian Information Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-metaverse-vs-virtual-reality-6-key-differences/"><u>The Metaverse Vs. Virtual Reality: 6 Key Differences</u></a></li>
 </ul></div>
 

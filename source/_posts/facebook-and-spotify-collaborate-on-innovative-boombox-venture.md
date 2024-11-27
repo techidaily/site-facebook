@@ -1,7 +1,7 @@
 ---
 title: Facebook & Spotify Collaborate on Innovative Boombox Venture
-date: 2024-11-11T16:04:25.013Z
-updated: 2024-11-17T17:51:14.185Z
+date: 2024-11-21T09:00:35.915Z
+updated: 2024-11-27T06:54:30.354Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook and Spotify Team up on Project Boombox
 
 [Facebook announced several upcoming audio-based features](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) , including Live Audio Rooms and Soundbites, both of which will help Facebook keep up with Clubhouse. But those aren't the only audio experiences that Facebook is bringing to the table—a report by[CNBC](https://www.cnbc.com/2021/04/19/mark-zuckerberg-announces-facebook-is-working-on-a-clubhouse-clone.html) revealed a partnership between Facebook and Spotify.
@@ -37,10 +41,7 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Audio Is Exploding, But Is It Here to Stay?
@@ -66,17 +67,24 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-harness-the-full-power-of-google-photos/"><u>[New] Harness the Full Power of Google Photos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-top-15-youtube-playlists-catering-to-musicians/"><u>[New] Top 15 YouTube Playlists Catering to Musicians</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-does-youtube-offer-regular-viewers-money/"><u>[Updated] 2024 Approved Does YouTube Offer Regular Viewers Money?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/cutting-edge-srt-modifications-for-modern-computers/"><u>Cutting-Edge SRT Modifications for Modern Computers</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Tecno Phantom V Flip | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Itel A60s | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-concerns-removing-facial-recognition-data-effects-on-users/"><u>Privacy Concerns: Removing Facial Recognition Data Effects on Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-to-regain-facebook-acces-after-sign-out/"><u>Strategies to Regain Facebook Acces After Sign-Out</u></a></li>
-<li><a href="https://win11.techidaily.com/troubleshooting-data-transfer-failures-from-usb-devices/"><u>Troubleshooting Data Transfer Failures From USB Devices</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshooting-tips-swiftly-repair-your-iphoneipad-widget-problems-with-these-essential-fixes/"><u>Troubleshooting Tips: Swiftly Repair Your iPhone/iPad Widget Problems with These Essential Fixes</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebook-networks-finding-page-and-profile-links/"><u>Unveiling Facebook Networks: Finding Page & Profile Links</u></a></li>
-<li><a href="https://facebook.techidaily.com/vague-narratives-explored-a-digital-phenomenons-analysis/"><u>Vague Narratives Explored: A Digital Phenomenon's Analysis</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-this-video-will-get-you-100000-views-on-youtube/"><u>[New] 2024 Approved This Video Will Get You 100000 Views on YouTube</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-cutting-edge-tips-for-quicker-windows-images/"><u>[Updated] 2024 Approved Cutting-Edge Tips for Quicker Windows Images</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-innovations-in-captivating-fb-ad-creation/"><u>[Updated] 2024 Approved Innovations in Captivating FB Ad Creation</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-prioritize-savings-with-the-best-6-affordable-camera-brands/"><u>[Updated] Prioritize Savings with the Best 6 Affordable Camera Brands</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-sharing-tactics-igtv-for-a-larger-fb-audience-for-2024/"><u>[Updated] Sharing Tactics IGTV for a Larger FB Audience for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-unleash-social-potential-transitioning-from-twitter-videos-to-whatsapp-for-2024/"><u>[Updated] Unleash Social Potential Transitioning From Twitter Videos to WhatsApp for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-archive-your-art-innovative-cost-effective-photo-storage-platforms/"><u>2024 Approved Archive Your Art Innovative, Cost-Effective Photo Storage Platforms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-swift-transfer-tweets-as-vids-on-whatsapp-platform/"><u>2024 Approved Swift Transfer Tweets as Vids on WhatsApp Platform</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/5-gratuitos-passos-de-fiscalizacao-em-nuvem-do-pc-no-win-10-e-win-11-aula-completa/"><u>5 Gratuitos Passos De Fiscalização Em Nuvem Do PC No Win 10 E Win 11 - Aula Completa</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-clarity-in-facebook-posts-across-languages/"><u>Ensuring Clarity in Facebook Posts Across Languages</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-blueprint-for-social-connectivity-redesign/"><u>Facebook's Blueprint for Social Connectivity Redesign</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-privacy-dilemma-the-ios-145-twist/"><u>Facebook's Privacy Dilemma: The iOS 14.5 Twist</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-meizu-21-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Meizu 21 to New Phone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-fb-messengers-privacy-viable/"><u>Is FB Messenger's Privacy Viable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-with-facts-amidst-covid-19-chaos/"><u>Navigating Social Media with Facts Amidst COVID-19 Chaos</u></a></li>
+<li><a href="https://facebook.techidaily.com/podcasting-meets-social-media-facebooks-audiovisual-hub/"><u>Podcasting Meets Social Media: Facebook's Audiovisual Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-the-digital-future-apple-vs-metaverse/"><u>Rethinking the Digital Future: Apple Vs. Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-social-networks-the-effect-of-faceprint-deletion-on-security/"><u>Safeguarding Social Networks: The Effect of Faceprint Deletion on Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-identity-shifts-a-guide-to-facebooks-naming-convention/"><u>Unmasking Identity Shifts: A Guide to Facebook's Naming Convention</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2024-11-10T17:30:40.816Z
-updated: 2024-11-17T16:07:03.145Z
+date: 2024-11-22T14:28:06.004Z
+updated: 2024-11-27T14:13:10.854Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Beloved Programming Language
 
  In a[statement](https://developers.facebook.com/blog/post/2021/04/29/facebook-joins-rust-foundation/) , Ashley Williams, Interim Executive Director of the Rust Foundation, said that:
@@ -35,10 +39,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -60,22 +61,20 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-step-by-step-grab-facebook-videos-on-both-oses/"><u>[New] In 2024, Step-by-Step Grab Facebook Videos on Both OSes</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-optimal-visual-snatchers-for-videos/"><u>[Updated] 2024 Approved Optimal Visual Snatchers for Videos</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-tiktok-gaming-top-10-gaming-tiktokers/"><u>[Updated] In 2024, Tiktok Gaming | Top 10 Gaming Tiktokers</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024s-8-must-have-iphone-selfie-enhancers/"><u>2024'S #8 Must-Have iPhone Selfie Enhancers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/crucial-aspects-to-evaluate-before-purchasing-vr-tech/"><u>Crucial Aspects to Evaluate Before Purchasing VR Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/deconstructing-public-sentiments-towards-sites-of-virtual-interaction/"><u>Deconstructing Public Sentiments Towards Sites of Virtual Interaction</u></a></li>
-<li><a href="https://facebook.techidaily.com/delay-in-actions-by-facebooks-regulatory-authority/"><u>Delay in Actions by Facebook's Regulatory Authority</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-docks-top-20-platforms-for-people-connecting-online/"><u>Digital Docks: Top 20 Platforms for People Connecting Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/disabling-general-member-notifications-fb/"><u>Disabling General Member Notifications: FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-why-apple-prefers-originality-over-virtual-realms/"><u>Discover Why Apple Prefers Originality over Virtual Realms</u></a></li>
-<li><a href="https://facebook.techidaily.com/dismissing-automated-public-post-alerts/"><u>Dismissing Automated Public Post Alerts</u></a></li>
-<li><a href="https://facebook.techidaily.com/effortlessly-add-context-to-your-fb-images-via-ai/"><u>Effortlessly Add Context to Your FB Images via AI</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-campaigns-8-crowdfire-features-worth-mastering/"><u>Elevate Your Campaigns: 8 Crowdfire Features Worth Mastering</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>How to Change Spotify Location After Moving to Another Country On Apple iPhone XS Max | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-iphone-13-pro-max-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock on iPhone 13 Pro Max or iPad?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-xiaomi-13t-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Xiaomi 13T Pro without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/winxdvd-remboursement-logiciel-politique-and-conditions-de-refaction-digiart/"><u>WinXDVD Remboursement Logiciel : Politique & Conditions De Réfaction | DigiArt</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-vivo-x-fold-2-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/1719974211832-easily-update-intel-graphics-3000-windows-11-style/"><u>Easily Update Intel Graphics 3000, Windows 11 Style!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/effortless-conversion-turning-flv-files-into-wav-format-seamlessly/"><u>Effortless Conversion: Turning FLV Files Into WAV Format Seamlessly</u></a></li>
+<li><a href="https://video-capture.techidaily.com/elevate-your-audio-experience-with-audacity-on-the-mac/"><u>Elevate Your Audio Experience with Audacity on the Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-how-fbs-adjudicative-panel-operates/"><u>Examining How FB's Adjudicative Panel Operates</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-huawei-nova-y71-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Huawei Nova Y71 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-onedrive-sync-with-windows-live-id/"><u>Mastering OneDrive Sync with Windows Live ID</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-hevc-h-265-on-xiaomi-redmi-12-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on Xiaomi Redmi 12, is it possible?</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-revolution-facebook-unveils-end-to-end-encryption-for-direct-and-call-messages/"><u>Privacy Revolution: Facebook Unveils End-to-End Encryption for Direct and Call Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-online-leadership-new-admin-resources-by-fb/"><u>Redefining Online Leadership: New Admin Resources by FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-the-virtual-world-social-medias-new-heroes/"><u>Revolutionizing the Virtual World: Social Media's New Heroes</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-timing-for-rebranding-your-fb-persona/"><u>Strategic Timing for Rebranding Your Fb Persona</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-best-apps-for-erasing-past-facebook-faux-pas/"><u>The Best Apps for Erasing Past Facebook Faux Pas</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncover-disappearing-images-from-online-discussions/"><u>Uncover Disappearing Images From Online Discussions</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-the-effect-of-apple-pay-later-loans-on-your-experian-credit-report-a-comprehensive-guide-news/"><u>Understanding the Effect of Apple Pay Later Loans on Your Experian Credit Report: A Comprehensive Guide News</u></a></li>
 </ul></div>
 

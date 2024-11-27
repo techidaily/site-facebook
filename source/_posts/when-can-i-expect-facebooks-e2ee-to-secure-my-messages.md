@@ -1,7 +1,7 @@
 ---
 title: When Can I Expect Facebook's E2EE to Secure My Messages?
-date: 2024-11-13T17:32:49.573Z
-updated: 2024-11-17T16:36:46.983Z
+date: 2024-11-21T14:38:17.047Z
+updated: 2024-11-27T11:48:28.589Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/abdb55c9eafa10fcd1e5b6b8bcacd5ae781a152c8
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## When Will Facebook Messenger Offer End-to-End Encryption?
 
  Facebook has announced plans to [bring default end-to-end encryption to Messenger](https://www.makeuseof.com/facebook-messenger-instagram-direct-chats-wont-encrypted-until-2022/) .
@@ -33,10 +37,7 @@ thumbnail: https://thmb.techidaily.com/abdb55c9eafa10fcd1e5b6b8bcacd5ae781a152c8
  However, Kent added that the work was a long-term project. At the earliest, users should expect the feature to be released in 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Facebook Messenger Chats Are Yet to Be Encrypted
@@ -44,10 +45,7 @@ thumbnail: https://thmb.techidaily.com/abdb55c9eafa10fcd1e5b6b8bcacd5ae781a152c8
 ![Photo of the Facebook Messenger app logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-messenger-logo.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  One thing all Facebook users can attest to is how easy Messenger is to access; you can easily log into your account from any device with an internet connection. Facebook even allows you to log into your account on multiple devices simultaneously.
@@ -61,10 +59,7 @@ thumbnail: https://thmb.techidaily.com/abdb55c9eafa10fcd1e5b6b8bcacd5ae781a152c8
  Facebook’s drive to keep the platform easily accessible is why it is yet to offer end-to-end encryption by default on Messenger.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Should You Be Worried About the Privacy of Your Messenger Chats?
@@ -88,20 +83,24 @@ thumbnail: https://thmb.techidaily.com/abdb55c9eafa10fcd1e5b6b8bcacd5ae781a152c8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-facesavedownloader-suite-mobile-pc/"><u>[New] 2024 Approved FaceSaveDownloader Suite (Mobile, PC)</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-digital-storytelling-with-facebook-slideshow-creation/"><u>[New] Digital Storytelling with Facebook SlideShow Creation</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-art-of-leading-lines-in-iphone-visual-storytelling/"><u>[New] The Art of Leading Lines in iPhone Visual Storytelling</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mastering-network-live-broadcasts-via-vlc/"><u>[Updated] Mastering Network Live Broadcasts via VLC</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-boosting-vividness-in-iphone-videos-three-keys-unveiled/"><u>2024 Approved Boosting Vividness in iPhone Videos – Three Keys Unveiled</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/choosing-the-best-picture-quality-crystal-uhd-vs-qled-in-samsung-tvs-detailed-review-by-techsavvy/"><u>Choosing the Best Picture Quality: Crystal UHD Vs. QLED in Samsung TVs - Detailed Review by TechSavvy</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensuring-accurate-info-on-your-childs-messenger-profile/"><u>Ensuring Accurate Info on Your Child’s Messenger Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-your-secrets-safe-bypass-these-intrusive-apps/"><u>Keep Your Secrets Safe: Bypass These Intrusive Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-hashtag-strategies-for-effective-communication-on-facebook/"><u>Leveraging Hashtag Strategies for Effective Communication on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/mentoring-minds-sheryls-impact-at-facebook/"><u>Mentoring Minds: Sheryl's Impact at Facebook</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/roblox-server-status-whats-going-on-or-are-issues-only-on-your-end/"><u>Roblox Server Status: What's Going On, or Are Issues Only on Your End?</u></a></li>
-<li><a href="https://facebook.techidaily.com/swift-cleanup-delete-story-on-facebook-with-confidence/"><u>Swift Cleanup: Delete Story on Facebook with Confidence</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-top-5-tech-blunders-in-the-pandemic-year/"><u>The Top 5 Tech Blunders in the Pandemic Year</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761631-9781683646631-the-way-of-the-monk/"><u>The Way of the Monk | Free Book</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/twitchstars-engaging-on-snapchat/"><u>Twitchstars Engaging on Snapchat</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-diy-techniques-transforming-smartphones-into-webcams-for-2024/"><u>[New] DIY Techniques Transforming Smartphones Into Webcams for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-maximizing-b-roll-impact-in-your-edits/"><u>[New] Maximizing B-Roll Impact in Your Edits</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-video-marketing-strategies-integrating-logowatermark-for-brand-identity/"><u>[New] Video Marketing Strategies Integrating Logo/Watermark for Brand Identity</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/efficient-strategies-for-network-wide-system-backups-a-step-by-step-approach/"><u>Efficient Strategies for Network-Wide System Backups: A Step-by-Step Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-your-social-media-identity-whatsapp-and-fb-avatars/"><u>Embracing Your Social Media Identity: WhatsApp and FB Avatars</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-on-the-latest-microsoft-surface-pro-7-upgrade-more-of-the-same-with-improved-power/"><u>Expert Analysis on the Latest Microsoft Surface Pro 7 Upgrade - More of the Same with Improved Power</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-daily-archive-how-to-explore-and-enjoy-memories/"><u>Facebook’s Daily Archive – How to Explore & Enjoy Memories</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-regretful-moments-that-reflect-facebooks-user-relationship-history/"><u>Five Regretful Moments That Reflect Facebook’s User Relationship History</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-common-issues-troubleshooting-your-unresponsive-pebble-speaker/"><u>Fixing Common Issues: Troubleshooting Your Unresponsive Pebble Speaker</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-fossil-to-green-facebooks-total-energy-transformation/"><u>From Fossil to Green: Facebook's Total Energy Transformation</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-samsung-galaxy-s23-ultra-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Samsung Galaxy S23 Ultra to Roku | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-removing-tags-from-online-images/"><u>Navigating the Maze of Removing Tags From Online Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giant-defines-humor-regulations/"><u>Social Media Giant Defines Humor Regulations</u></a></li>
+<li><a href="https://facebook.techidaily.com/soundtrack-to-social-interaction-exploring-the-impact-of-facebook-and-spotifys-boombox/"><u>Soundtrack to Social Interaction: Exploring the Impact of Facebook & Spotify's Boombox</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-strategic-advantage-facebooks-allowance-for-dual-or-more-profiles/"><u>The Strategic Advantage: Facebook’s Allowance for Dual or More Profiles</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unleash-camera-potential-with-10-premium-freebies-and-personalized-purchase-choices/"><u>Unleash Camera Potential with 10 Premium Freebies & Personalized Purchase Choices</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-apple-iphone-6s-plus-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>Unlock Apple iPhone 6s Plus With Forgotten Passcode Different Methods You Can Try</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/visual-enhancement-expertly-applying-borders-on-social-media-images/"><u>Visual Enhancement Expertly Applying Borders on Social Media Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-app-connects-you-best-survey-here/"><u>Which App Connects You Best? Survey Here</u></a></li>
 </ul></div>
 

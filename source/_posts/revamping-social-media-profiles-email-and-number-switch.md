@@ -1,7 +1,7 @@
 ---
 title: "Revamping Social Media Profiles: Email & Number Switch"
-date: 2024-11-12T16:33:06.961Z
-updated: 2024-11-17T17:49:19.811Z
+date: 2024-11-21T13:27:43.544Z
+updated: 2024-11-26T21:53:26.354Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,7 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
  Another reason why you might want to update your email or phone number is if you are moving or traveling and will be using a new email address or phone number temporarily. Whatever the reason, updating your information is easy to do and can be done in just a few minutes.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Update Your Email Address and Phone Number on Facebook
@@ -44,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
  You can change the email address and phone number linked to your account on the Facebook app as well as the web version.
 
 Here's how...
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Update Your Email Address and Phone Number on Mobile
 
@@ -53,15 +54,20 @@ To change your email address on the Facebook app, follow these steps:
 
 ![screenshot showing facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot showing personal information page on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-personal-information-page-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -80,13 +86,6 @@ Close
 Here's how to do this:
 
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![screenshot showing how to remove phone number from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-how-to-remove-phone-number-from-facebook.jpg)
 
@@ -112,20 +111,10 @@ Close
 6. Enter your new email address in the provided field and click**Add** or click on**Add your phone number?** .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing enter email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-enter-email-address-page.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Updating Your Contact Information on Facebook
 
@@ -146,16 +135,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-lenslimits-how-to-manage-ig-picture-dimensions/"><u>[New] In 2024, LensLimits How to Manage IG Picture Dimensions</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-detailed-instruction-set-converting-any-gif-to-a-perfect-sticker-in-social-media-apps/"><u>[Updated] 2024 Approved Detailed Instruction Set Converting Any GIF to a Perfect Sticker in Social Media Apps</u></a></li>
-<li><a href="https://win-web.techidaily.com/1728472621428-2024/"><u>網路安全提示：如何在2024年使用最新技術，成功地進行重要文件的隨身碟刪除與救回步驟</u></a></li>
-<li><a href="https://facebook.techidaily.com/amazons-challenge-to-facebook-group-administrators/"><u>Amazon's Challenge to Facebook Group Administrators</u></a></li>
-<li><a href="https://facebook.techidaily.com/becoming-meta-facebook-reveals-its-visionary-transformation-strategy/"><u>Becoming Meta: Facebook Reveals Its Visionary Transformation Strategy</u></a></li>
-<li><a href="https://facebook.techidaily.com/connectivitys-catch-understanding-social-media-risks/"><u>Connectivity's Catch: Understanding Social Media Risks</u></a></li>
-<li><a href="https://facebook.techidaily.com/constructive-methods-for-cultivating-collaborative-communities-fb/"><u>Constructive Methods for Cultivating Collaborative Communities (FB)</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-auditory-archive-top-resources-for-free-skype-music-files/"><u>In 2024, Auditory Archive Top Resources for Free Skype Music Files</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/pc-reimage-windows-10/"><u>PC 再起動前の状態を保存: ReImage コマンドWindows 10でイメージ作成ガイド</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/time-management-wizards-the-ultimate-guide-to-facebook-timetables/"><u>Time Management Wizards The Ultimate Guide to Facebook Timetables</u></a></li>
-<li><a href="https://discover-best.techidaily.com/troubleshooting-video-issues-in-mozilla-firefox-8-effective-fixes/"><u>Troubleshooting Video Issues in Mozilla Firefox: 8 Effective Fixes</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expert-tips-to-sharpen-video-calls-with-zoom-in-teams/"><u>[New] Expert Tips to Sharpen Video Calls with ZOOM in Teams</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-strategies-for-harvesting-fb-status-video-archives-for-2024/"><u>[New] Strategies for Harvesting FB Status Video Archives for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-green-screen-mastery-seamless-yt-integration/"><u>[Updated] 2024 Approved Green Screen Mastery Seamless YT Integration</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ners-blueprint-for-online-content-simple-straightforward-video-projects/"><u>Beginner's Blueprint for Online Content Simple, Straightforward Video Projects</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/elite-touchscreen-notebooks-reviewed-comprehensive-testing-and-insights-from-zdnets-gurus/"><u>Elite Touchscreen Notebooks Reviewed: Comprehensive Testing and Insights From ZDNet's Gurus</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-whitelisting-mechanism/"><u>Exploring Facebook's Whitelisting Mechanism</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-poco-c55-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Poco C55</u></a></li>
+<li><a href="https://facebook.techidaily.com/mass-perception-study-networkings-adverse-effects/"><u>Mass Perception Study: Networking's Adverse Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-the-use-of-negative-digital-tools/"><u>Rethinking the Use of Negative Digital Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-profile-visibility-on-fb/"><u>Securing Your Profile Visibility on FB</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ting-gear-for-youtube-a-filmmakers-essentials-for-2024/"><u>Selecting Gear for YouTube A Filmmaker's Essentials for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-how-to-preventing-responses-on-your-social-media-update/"><u>The Ultimate How-To: Preventing Responses on Your Social Media Update</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-asus-rog-phone-8-pro-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Asus ROG Phone 8 Pro IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-unspoken-etiquette-for-online-acquaintance-requests/"><u>Understanding Unspoken Etiquette for Online Acquaintance Requests</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleashing-the-power-of-hd-media-in-social-networks/"><u>Unleashing the Power of HD Media in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-anticipate-a-crypto-fueled-ad-wave/"><u>Why Anticipate a Crypto-Fueled Ad Wave?</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/windows-server-cmd/"><u>Windows Server バックアップの生成手順: CMDで効率良く実行</u></a></li>
 </ul></div>
 

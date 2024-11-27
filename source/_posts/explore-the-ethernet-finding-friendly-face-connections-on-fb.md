@@ -1,7 +1,7 @@
 ---
 title: "Explore the Ethernet: Finding Friendly Face Connections on FB"
-date: 2024-11-15T17:41:10.582Z
-updated: 2024-11-17T16:55:40.329Z
+date: 2024-11-23T13:32:26.151Z
+updated: 2024-11-26T17:27:46.987Z
 tags:
   - facebook
 categories:
@@ -34,13 +34,6 @@ thumbnail: https://thmb.techidaily.com/d24bf389d1254603d8aad9f86f16f5f0cd9be072e
 
  However, depending on whether you're using the mobile app or not, finding these links can be more complicated than expected at times.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Find a Facebook Profile Link on PC
 
 To find your own Facebook profile link:
@@ -51,6 +44,10 @@ To find your own Facebook profile link:
 
 ![Your Facebook URL](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Your-facebook-URL.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To find the Facebook profile URL of another user:
 
  1.**Search** the profile you want to share.
@@ -58,13 +55,6 @@ To find the Facebook profile URL of another user:
  2\. Once their profile is loaded, the link in the address bar will change to their Facebook username.
 
 ![Facebook URL of another user on PC](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Facebook-URL-of-another-user-on-PC.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  3\. Copy the URL from the address bar and paste it at the desired location. The format for the URL is <https://www.facebook.com/username>.
 
@@ -81,10 +71,7 @@ To find the Facebook profile URL of another user:
 ![Copy link of your URL](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-of-your-URL.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -104,15 +91,20 @@ Close
 ![Three horizontal bars on the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Three-horizontal-bars-on-the-Facebook-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Go to your Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Go-to-your-Facebook-profile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Copy link from the drop down menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-from-the-drop-down-menu.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -126,14 +118,11 @@ Close
 
 ![Search a profile on the browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Search-a-profile-on-the-browser.jpg)
 
-![URL of another user on the browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/URL-of-another-user-on-the-browser.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![URL of another user on the browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/URL-of-another-user-on-the-browser.jpg)
 
 Close
 
@@ -150,6 +139,10 @@ Close
 2. Use the search bar on the top left of the home page to find the page and select it.
 3. Copy the link in the address bar. This is the page's URL.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Finding a Facebook Page Link on a Smartphone
 
  You can find a Facebook page URL through the Facebook app or web browser.
@@ -161,10 +154,7 @@ If you're using the Facebook app:
 ![Copy link of the Facebook page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-of-the-Facebook-page.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -185,6 +175,10 @@ Close
 2. Click the three dots on the right to open a new menu. Select**Share** if you want to post it on your profile.
 3. Copy the link in the address bar as it’s the URL of the page.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Find a Facebook Group URL
 
  Facebook groups can be public or private. You can share any group by copying its link.
@@ -204,13 +198,6 @@ Close
 If you opt for the Facebook app:
 
 ![Share Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Share-Facebook-group.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Copy link of Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-of-Facebook-group.jpg)
 
@@ -234,10 +221,7 @@ Close
 4. Select the link on the address bar and copy it to paste on other platforms.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Sharing Made Simple With Facebook
@@ -261,20 +245,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-expanding-social-footprint-tying-igtv-and-facebook-together/"><u>[New] Expanding Social Footprint Tying IGTV & Facebook Together</u></a></li>
-<li><a href="https://win-web3.techidaily.com/1-quick-tips-how-to-restore-lost-data-on-your-flash-drive-without-spending-a-penny/"><u>1. Quick Tips: How To Restore Lost Data On Your Flash Drive Without Spending A Penny</u></a></li>
-<li><a href="https://facebook.techidaily.com/3-alarms-for-metas-social-colossus/"><u>3 Alarms for Meta's Social Colossus</u></a></li>
-<li><a href="https://facebook.techidaily.com/be-direct-be-quick-understanding-3-tagging-techniques-for-fb-friends/"><u>Be Direct, Be Quick: Understanding 3 Tagging Techniques for FB Friends</u></a></li>
-<li><a href="https://facebook.techidaily.com/charting-a-course-through-meta-user-management-portal/"><u>Charting a Course Through Meta User Management Portal</u></a></li>
-<li><a href="https://facebook.techidaily.com/converting-connectivity-into-corp-achievements-via-top-sites/"><u>Converting Connectivity Into Corp Achievements via Top Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/could-facebooks-reels-disrupt-tiktoks-dominance/"><u>Could Facebook’s Reels Disrupt TikTok's Dominance?</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/high-end-video-resizer-unparalleled-definition/"><u>High-End Video Resizer Unparalleled Definition</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Oppo Find X7? | Dr.fone</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-how-to-fix-one-airpod-not-working/"><u>In 2024, How to Fix One Airpod Not Working?</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/install-updated-drivers-for-your-hp-officejet-pro-8720-printer-on-windows-machines/"><u>Install Updated Drivers for Your HP Officejet Pro 8720 Printer on Windows Machines</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719152494885-newsfeed-no-more-complicated-facebooks-revolutionary-upgrade/"><u>Newsfeed No More Complicated – Facebook's Revolutionary Upgrade!</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/resolve-your-iphone-11-pro-keeps-asking-for-outlook-password-by-drfone-ios/"><u>Resolve Your iPhone 11 Pro Keeps Asking for Outlook Password</u></a></li>
-<li><a href="https://win11.techidaily.com/solutions-to-recycle-bin-glitch-in-win-11/"><u>Solutions to Recycle Bin Glitch in Win 11</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-unlock-the-power-of-cartoon-conversion-a-comprehensive-guide/"><u>Updated Unlock the Power of Cartoon Conversion A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-pioneers-designing-the-online-avengers-landscape/"><u>2024 Approved Pioneers Designing the Online Avengers Landscape</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/decoding-the-scope-of-googles-ai-gemini-venture/"><u>Decoding the Scope of Google's AI Gemini Venture</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-your-child-through-safe-data-edits-on-messenger/"><u>Guiding Your Child Through Safe Data Edits on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reset-security-codes-not-sent-by-facebook/"><u>How to Reset Security Codes Not Sent by Facebook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-or-minimizing-the-real-story-of-expat-facebook-groups/"><u>Maximizing or Minimizing? The Real Story of Expat Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-policy-temporal-suspension-of-trump-a-step-forward/"><u>Platform Policy: Temporal Suspension of Trump, a Step Forward</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solved-overcoming-audio-glitches-in-mass-effects-definitive-edition/"><u>Solved: Overcoming Audio Glitches in Mass Effect's Definitive Edition</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solving-silence-a-step-by-step-guide-to-restoring-audio-in-fallout-4/"><u>Solving Silence: A Step-by-Step Guide to Restoring Audio in Fallout 4</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-using-safety-features-on-fb/"><u>Understanding and Using Safety Features on FB</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722973426228-update-your-epson-l3150-printer-software-on-windows-11-8-or-7-download-and-install-today/"><u>Update Your Epson L3150 Printer Software on Windows 11, 8 or 7: Download & Install Today</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-sony-vegas-vs-adobe-premiere-which-one-is-better-in-2024/"><u>Updated Sony Vegas VS Adobe Premiere, Which One Is Better, In 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: TikTok's Rapid Climb Cuts Into Facebook's Profits Deeply
-date: 2024-11-13T17:17:25.810Z
-updated: 2024-11-17T17:31:19.108Z
+date: 2024-11-25T21:53:29.464Z
+updated: 2024-11-27T14:51:40.596Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook’s Revenues Are Down and User Growth Has Stalled
 
  If you look through[Meta’s press release](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Second-Quarter-2022-Results/default.aspx) , you’ll see that the social network's revenues have fallen since 2021\. According to[CNBC](https://www.cnbc.com/2022/07/27/meta-ceo-mark-zuckerberg-we-seem-to-have-entered-economic-downturn.html) , Mark Zuckerberg indicated that the economic conditions are worse than they were in Q2, 2021.
@@ -30,15 +34,16 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
 ![Facebook Q2 2022 User Statistics](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Facebook-Q2-2022-User-Statistics.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit:[Meta](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Second-Quarter-2022-Results/default.aspx)
 
  While Apple's privacy changes (as reported by[Business Insider](https://www.businessinsider.com/how-apple-att-privacy-plan-derailed-facebook-2022-7) ) could have contributed to upsetting Facebook’s advertising business, it is unlikely to be the primary cause for the dent.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TikTok Is the Major Cause of Facebook’s Decline
@@ -48,10 +53,7 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  These statistics have led many to speculate that TikTok is the major reason for Facebook’s decline both in terms of revenue and user growth. And while correlation doesn't equal causation, the relative success and failure of both companies does appear to be connected.
@@ -69,20 +71,10 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 ![TikTok Videos of Khaby Lame](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/TikTok-Videos-of-Khaby-Lame.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [TikTok has been criticized for many reasons](https://www.makeuseof.com/is-tiktok-bad/) . However, there are[many positive aspects to TikTok](https://www.makeuseof.com/reasons-why-tiktok-is-actually-good/) , and all of these factors have played a significant part in its growth, leading users to switch from Facebook. While Facebook is trying to recover, at the moment, the stats are very much in TikTok’s favor.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Can Facebook Fight Back Against TikTok?
 
@@ -105,21 +97,22 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-building-an-mc-village-housing-essentials/"><u>[New] 2024 Approved Building an MC Village Housing Essentials</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-understanding-the-dynamics-of-instagram-unfollows-for-2024/"><u>[New] Understanding the Dynamics of Instagram Unfollows for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/12-benefits-to-giving-your-social-life-a-break/"><u>12 Benefits to Giving Your Social Life a Break</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-facebooks-structural-integration-guide/"><u>Analyzing Facebook’s Structural Integration Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-closed-curtains-facebooks-real-losses/"><u>Behind Closed Curtains: Facebook’s Real Losses</u></a></li>
-<li><a href="https://article-helps.techidaily.com/best-photo-enhancing-apps-for-smartphones-with-overlays-top-10/"><u>Best Photo-Enhancing Apps for Smartphones with Overlays (Top 10)</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-bridges-socially-the-7-networking-benefits/"><u>Building Bridges Socially: The 7 Networking Benefits</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-effective-social-network-groups-through-policies/"><u>Building Effective Social Network Groups Through Policies</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-poco-x5-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Poco X5? | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/copilotplus-takes-on-new-snapdragon-laptop-lineup-real-time-testing-and-reviews/"><u>Copilot+ Takes on New Snapdragon Laptop Lineup - Real-Time Testing & Reviews</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-surveys-facebook-page-strategies/"><u>Crafting Surveys: Facebook Page Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-costs-on-social-media-management-with-these-5-strategies/"><u>Cut Costs on Social Media Management with These 5 Strategies</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-upgrade-canon-eos-dslr-camera-software/"><u>Download and Upgrade Canon EOS DSLR Camera Software</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-honor-x7b-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Honor X7b</u></a></li>
-<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-kinemaster-way-to-enthralling-transitions-for-2024/"><u>The Kinemaster Way to Enthralling Transitions for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-enhanced-connectivity-sending-social-media-content-between-facebook-and-whatsapp/"><u>[New] 2024 Approved Enhanced Connectivity Sending Social Media Content Between Facebook & WhatsApp</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-cut-to-the-chase-convert-fb-vids-into-mp3s-for-2024/"><u>[New] Cut-to-the-Chase Convert FB Vids Into MP3s for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-turning-videos-backward-iphone-methods/"><u>[New] Turning Videos Backward IPhone Methods</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-shifting-spectrum-skills-pro-tips-unveiled/"><u>[Updated] Shifting Spectrum Skills - Pro Tips Unveiled</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-decoding-the-mystery-of-youtube-shorts/"><u>2024 Approved Decoding the Mystery of YouTube Shorts</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/cinema-journey-iphone-users-best-choice-for-films-for-2024/"><u>Cinema Journey IPhone Users' Best Choice for Films for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-digital-growth-spurring-interest-in-physical-commerce-ventures/"><u>Facebook’s Digital Growth Spurring Interest in Physical Commerce Ventures</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-strategy-questioned-over-giphy-integration/"><u>Facebook's Strategy Questioned Over Giphy Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-rises-as-the-vanguard-in-global-superfast-ai-systems/"><u>Meta Rises as the Vanguard in Global Superfast AI Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-gambit-crafting-earths-most-rapid-ai-engine/"><u>Meta's Gambit: Crafting Earth's Most Rapid AI Engine</u></a></li>
+<li><a href="https://facebook.techidaily.com/safety-scores-online-community-meet-ups/"><u>Safety Scores: Online Community Meet-Ups</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-change-of-personal-facebook-imagery/"><u>Stepwise Change of Personal Facebook Imagery</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-giants-and-regulators-clash-in-the-market-arena/"><u>Tech Giants and Regulators Clash in the Market Arena</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-10-audio-playback-accelerators-for-phones/"><u>Top 10 Audio Playback Accelerators for Phones</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-nokia-c02-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Nokia C02 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/web-wanderers-guide-tracking-pages-profiles-in-fb/"><u>Web Wanderer's Guide: Tracking Pages, Profiles in FB</u></a></li>
 </ul></div>
 

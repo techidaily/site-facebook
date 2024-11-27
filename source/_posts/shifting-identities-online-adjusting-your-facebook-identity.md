@@ -1,7 +1,7 @@
 ---
 title: "Shifting Identities Online: Adjusting Your Facebook Identity"
-date: 2024-09-01T03:42:42.858Z
-updated: 2024-09-02T03:42:42.858Z
+date: 2024-11-26T14:02:02.999Z
+updated: 2024-11-27T09:58:31.004Z
 tags:
   - facebook
 categories:
@@ -39,19 +39,17 @@ To change your name on the Facebook website, do the following:
 7. Make your selection, enter your password, and click**Save Changes** .  
 ![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ### On the Facebook App
 
 ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
 
 ![facebook name change page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-name-change-page-ios.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -71,8 +69,9 @@ Close
  Read More:[How to Delete Facebook Notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Add Additional Names to Your Facebook Profile
 
  By default, you can only add a maximum of three names to your Facebook profile. But what if you have more than three?
@@ -85,11 +84,16 @@ Close
 
 ![creating additional names facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/01-creating-additional-names-facebook-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![enter additional name facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/02-creating-additional-names-facebook-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
  Select the type of name, then enter your additional name. Check**Show at top of profile** if you want your additional name to stand tall on your profile.
@@ -98,9 +102,6 @@ Close
 
  Read More:[How to Untag Yourself From Facebook Photos](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Restrictions on Changing Your Facebook Name
 
  So what are the restrictions that Facebook has put in place when changing your name on the platform? You can see a list below...
@@ -120,22 +121,20 @@ Close
  However, Facebook also accepts other non-government IDs like a bank statement, health insurance, credit card, and so on as long as it shows your official names.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## More Things To Try on Facebook
 
  After you change your name on Facebook, you might also want to try a few other Facebook tools and features.
 
  Consider trying out Facebook's privacy tools to do an overhaul of your account settings.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,4 +143,16 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-leading-movie-teasers-highlighted/"><u>[Updated] In 2024, Leading Movie Teasers Highlighted</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-trackingcast-synopsis-for-2024/"><u>[Updated] TrackingCast Synopsis for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-windows-innovations-a-fresh-perspective-on-10/"><u>2024 Approved Windows Innovations A Fresh Perspective on 10</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/apple-improves-iphone-durability-with-easier-repair-features-for-iphone-16-says-zdnet-analysis/"><u>Apple Improves iPhone Durability with Easier Repair Features for iPhone 16, Says ZDNet Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-marketing-milestones-5-pioneering-platforms-for-businesses/"><u>Mastering Marketing Milestones: 5 Pioneering Platforms for Businesses</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-through-a-seamless-password-update-on-facebook-platform/"><u>Navigate Through a Seamless Password Update on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieve-lost-facebook-sign-in-methods-easily/"><u>Retrieve Lost Facebook Sign In Methods Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-to-gracefully-disconnect-from-group-interactions/"><u>Tips to Gracefully Disconnect From Group Interactions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-11-no-cost-flv-video-players-compatible-with-various-versions-of-windows-os/"><u>Top 11 No-Cost FLV Video Players Compatible with Various Versions of Windows OS</u></a></li>
+</ul></div>
 

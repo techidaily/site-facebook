@@ -1,7 +1,7 @@
 ---
 title: Turning Our Tracks Into Treasure
-date: 2024-11-14T17:42:10.220Z
-updated: 2024-11-17T16:26:22.087Z
+date: 2024-11-22T03:00:11.987Z
+updated: 2024-11-27T05:50:35.249Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
 ![Surveillance Cameras](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/Surveillance-Cameras.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Coined by Harvard Professor Shoshana Zuboff, surveillance capitalism is an economic system centered around the commodification of personal data with a core purpose of making profit.
 
  In theory, surveillance capitalism helps businesses create better products, hold efficient inventory, and serve customers exactly what they need as soon as possible. By accurately pinpointing or swaying supply and demand, surveillance capitalism opens up a world of endless convenience.
@@ -52,13 +56,6 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  If you're wondering what's the problem with this, it's that having such a granular image of you and your lifestyle increases the chances of identity theft or fraud if a hacker will be able to get a hold of it. With time, a single breach can cost you everything. And of course, there's the big issue of personal privacy, which we all have a right to.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Emotional Volatility
 
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
@@ -69,6 +66,10 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
 ![game streamer taking a selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/game-streamer-selfie.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  According to[Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many[teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
 
  With this, we know that this willingness to pay can sometimes be rooted in darker places, which are not of necessity. So while platforms like social media do a lot to connect people, they also counterintuitively create toxic environments.
@@ -76,6 +77,10 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
  Related:[The Facebook Metaverse, Explained (And Why You Should Care)](https://www.makeuseof.com/facebook-metaverse-explained/)
 
  For this reason, social media becomes the perfect channel to market products and services. It sells the idea that you should always strive to be better, but the only way that you can do so is by adding to your cart, go on vacations that you can't really afford, or living someone else's life highlights.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Ease of Transactions
 
@@ -96,10 +101,7 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The Commodification of Personal Experiences
@@ -107,10 +109,7 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
@@ -118,13 +117,6 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
  From a marketing perspective, it becomes easy to dehumanize the people and look at them simply from their customer lifecycle value. It's apparent that, with the rise of data brokers and intrusive targeted ads, we are already on the path of surveillance-driven consumerism.
 
  Nowadays, the pressure to commodify ourselves can be seen in the obsession with influencer culture, plastic surgery, and going viral. Instead of rejecting this culture of commodification, we have actually embraced it, encouraged it, and accepted it as a part of the new normal.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Running Out of Ways to Opt Out
 
@@ -153,16 +145,24 @@ In fact, we are already running out of ways to opt out.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-guide-to-creating-catchy-youtube-channel-titles-for-blogging-and-filming-no-more-than-156-characters/"><u>[New] 2024 Approved The Ultimate Guide to Creating Catchy Youtube Channel Titles For Blogging & Filming (No More than 156 Characters)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/tilizing-youtubes-cc-to-enhance-your-videography-for-2024/"><u>[New] Utilizing YouTube's CC to Enhance Your Videography for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210536556-9781473356412-a-guide-to-birthstones-a-collection-of-historical-articles-on-the-gemstones-linked-to-astrology/"><u>A Guide to Birthstones - A Collection of Historical Articles on the Gemstones Linked to Astrology | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/affordable-content-scheduling-top-5-tricks-for-facebook-timing/"><u>Affordable Content Scheduling: Top 5 Tricks for Facebook Timing</u></a></li>
-<li><a href="https://facebook.techidaily.com/altering-facebook-pages-avatar-and-title/"><u>Altering Facebook Page's Avatar & Title</u></a></li>
-<li><a href="https://facebook.techidaily.com/chatting-in-a-new-age-facebooks-latest-tech-boosts-instagram-and-messenger-messaging/"><u>Chatting in a New Age: Facebook's Latest Tech Boosts Instagram and Messenger Messaging</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719154159871-facebook-prioritizes-privacy-introduces-end-to-end-encryption-to-messaging-and-direct-chats/"><u>Facebook Prioritizes Privacy: Introduces End-to-End Encryption to Messaging & Direct Chats.</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-spiritual-slow-motion-tutorial/"><u>In 2024, Spiritual Slow Motion Tutorial</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For OnePlus Ace 2 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150163224-upcoming-verdict-from-facebooks-governance-board-on-trump-ban/"><u>Upcoming Verdict From Facebook's Governance Board on Trump Ban.</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/1726226909481-wavmp3-movavi/"><u>오늘날의 가장 최고의 온라인 WAV/MP3 전환 도구 - Movavi</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-tricks-to-download-twitter-videos-and-turn-into-mp3-files/"><u>[New] 2024 Approved Tricks to Download Twitter Videos and Turn Into MP3 Files</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unraveling-the-mystery-of-effective-gif-communication/"><u>[New] Unraveling the Mystery of Effective GIF Communication</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unleash-creativity-on-screen-the-top-10-apps-for-channel-graphics-artistry/"><u>[Updated] 2024 Approved Unleash Creativity on Screen - The Top 10 Apps for Channel Graphics Artistry</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-expert-strategies-for-high-quality-macbook-webcam-recordings-for-2024/"><u>[Updated] Expert Strategies for High-Quality MacBook Webcam Recordings for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-strategies-for-adjusting-song-speed-on-spotify/"><u>[Updated] Top Strategies for Adjusting Song Speed on Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagram-accounts-are-becoming-more-connected/"><u>Facebook and Instagram Accounts Are Becoming More Connected</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-block-in-app-web-view-on-fb/"><u>How to Block In-App Web View on FB</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-vivo-y27-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Vivo Y27 5G to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/inclusive-insight-easeus-professional-analysis/"><u>Inclusive Insight EaseUS Professional Analysis</u></a></li>
+<li><a href="https://fox-that.techidaily.com/reviving-siri-on-your-ios-device-solutions-for-common-hiccups/"><u>Reviving Siri on Your iOS Device: Solutions for Common Hiccups</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-in-strategy-setting-up-and-using-your-facebook-portal-tv/"><u>Step-In Strategy: Setting Up and Using Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/superior-social-venues-for-senior-interactions/"><u>Superior Social Venues For Senior Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-keeping-like-count-secretive-fbig-edition/"><u>The Art of Keeping Like Count Secretive: FB/IG Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-balance-of-comedy-and-courtesy-online/"><u>The Balance of Comedy and Courtesy Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quintessential-quest-for-corporate-social-supremacy/"><u>The Quintessential Quest for Corporate Social Supremacy</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-car-battery-recharging-units-of-2024-comprehensive-review-by-experts-techradar/"><u>Top-Rated Car Battery Recharging Units of 2024 - Comprehensive Review by Experts | TechRadar</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-tips-resolving-issues-with-an-aoc-monitor-compatibility-on-windows-10/"><u>Troubleshooting Tips: Resolving Issues with an AOC Monitor Compatibility on Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-power-of-hashtags-for-more-facebook-shares/"><u>Unlocking the Power of Hashtags for More Facebook Shares</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-did-my-facebook-profile-vanish-top-reasons/"><u>Why Did My Facebook Profile Vanish? Top Reasons</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Social Media Standstill: Facebook & Co.'s 6-Hour Pause"
-date: 2024-11-12T16:40:03.944Z
-updated: 2024-11-17T16:15:22.387Z
+date: 2024-11-23T16:09:20.053Z
+updated: 2024-11-27T05:41:41.157Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Facebook Went Offline for Six Hours
 
  On October 4, 2021, users around the world noticed they were[having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
@@ -39,10 +43,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
@@ -62,10 +63,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
@@ -89,19 +87,16 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-recorders-unite-compete-for-2024/"><u>[New] Recorders Unite, Compete for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/arcane-acoustics-how-legit-is-the-vocal-transformation-application-look-elsewhere/"><u>Arcane Acoustics How Legit Is the Vocal Transformation Application? Look Elsewhere</u></a></li>
-<li><a href="https://extra-information.techidaily.com/avoid-unsolicited-podcast-recommendations-on-spotify-app-for-2024/"><u>Avoid Unsolicited Podcast Recommendations on Spotify App for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/beyond-the-basics-embedding-platforms-reviewed/"><u>Beyond the Basics Embedding Platforms Reviewed</u></a></li>
-<li><a href="https://facebook.techidaily.com/december-brings-an-abrupt-thread-halt-on-insta/"><u>December Brings an Abrupt Thread Halt on Insta</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciding-on-facebook-events-perks-and-issues/"><u>Deciding On Facebook Events - Perks and Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/decision-making-for-your-ideal-social-media-hub/"><u>Decision-Making for Your Ideal Social Media Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-age-advantages-the-positive-seven-for-society/"><u>Digital Age Advantages: The Positive Seven for Society</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-lifesavers-the-guide-to-saving-fb-content/"><u>Digital Lifesavers: The Guide to Saving FB Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/discussion-dive-which-social-platform-excels-in-community-building/"><u>Discussion Dive: Which Social Platform Excels in Community Building</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-best-browser-based-vertical-video-editing-solutions/"><u>In 2024, Best Browser-Based Vertical Video Editing Solutions</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-infinix-hot-40i-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Infinix Hot 40i Devices | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-step-by-step-tailoring-your-way-to-youtube-subtitles-srt/"><u>In 2024, Step-by-Step Tailoring Your Way to YouTube Subtitles (SRT)</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-this-years-narrative-pioneers-youtubes-top-20-channels/"><u>In 2024, This Year’s Narrative Pioneers YouTube's Top 20 Channels</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-establishing-group-communication-on-skype-windows-mac-for-2024/"><u>[Updated] Establishing Group Communication on Skype (Windows, Mac) for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/cracking-the-code-effective-strategies-for-fixing-warzone-20-not-starting-issue-pc-2024/"><u>Cracking the Code: Effective Strategies for Fixing 'Warzone 2.0' Not Starting Issue (PC, 2024)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/dvdipad-5/"><u>DVD映像iPad移行の究極ガイド: 5シンプル工程を解説</u></a></li>
+<li><a href="https://facebook.techidaily.com/guardrails-for-gaining-safely-in-the-social-sphere/"><u>Guardrails for Gaining Safely in the Social Sphere</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-nokia-g42-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP from Nokia G42 5G?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-pitfalls-solutions-for-11-troublesome-mistakes/"><u>Mastering Facebook's Pitfalls: Solutions for 11 Troublesome Mistakes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ethics-behind-virtual-dissension-tools/"><u>The Ethics Behind Virtual Dissension Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-foundation-of-robust-online-communities-rules-and-modifications/"><u>The Foundation of Robust Online Communities: Rules & Modifications</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-insights-the-ultimate-guide-to-computer-components-and-performance-testing/"><u>Tom's Tech Insights: The Ultimate Guide to Computer Components and Performance Testing</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-you-need-to-know-about-facebooks-user-interface-makeover/"><u>What You Need to Know About Facebook's User Interface Makeover</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/writing-impactful-gpt-3-prompts-a-guide-for-health-and-fitness-buffs/"><u>Writing Impactful GPT-3 Prompts: A Guide for Health and Fitness Buffs</u></a></li>
 </ul></div>
 

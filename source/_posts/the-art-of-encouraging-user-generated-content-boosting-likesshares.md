@@ -1,7 +1,7 @@
 ---
 title: "The Art of Encouraging User-Generated Content: Boosting Likes/Shares"
-date: 2024-11-14T16:21:52.414Z
-updated: 2024-11-17T17:06:02.216Z
+date: 2024-11-22T02:11:16.358Z
+updated: 2024-11-27T07:33:10.287Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/cc2d4ffbafce624b537835413e18b0d5bee03ddeb
 
 ![facebook logo on Apple watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-best-time-to-post.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The consensus has been that the best time to post on Facebook is in the late afternoon, but the hours vary depending on the source.
 
 * [Buffer](https://buffer.com/library/best-time-to-post-on-facebook/#:~:text=Thursdays%20and%20Fridays.-,The%20best%20time%20to%20post%20to%20Facebook%20is%20between%201pm,Thursday%20at%208%20p.m.%20%5BTrackMaven%5D) : Between 1 p.m. and 3 p.m.
@@ -39,9 +43,17 @@ thumbnail: https://thmb.techidaily.com/cc2d4ffbafce624b537835413e18b0d5bee03ddeb
 
  But if you want to be more accurate, use Facebook insights to determine when to post. This will[increase engagement on your Facebook posts](https://www.makeuseof.com/how-to-increase-facebook-engagement-posts/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Frequently You Should Post on Facebook?
 
 ![facebook logo on surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-frequency.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Here's the secret about how often you should update your Facebook status: it doesn't really matter.
 
@@ -67,22 +79,12 @@ thumbnail: https://thmb.techidaily.com/cc2d4ffbafce624b537835413e18b0d5bee03ddeb
 
 > We’ve found that people often prefer to click on links that are displayed in the link format (which appears when you paste a link while drafting a post), rather than links that are buried in photo captions. The link format shows some additional information associated with the link, such as the beginning of the article, which makes it easier for someone to decide if they want to click through. This format also makes it easier for someone to click through on mobile devices, which have a smaller screen.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Best Images and Videos to Insert in Your Post
 
 ![facebook logo on screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A[Hootsuite blog post](https://blog.hootsuite.com/facebook-algorithm/) revealed that Facebook posts with images have an engagement rate of 0.11%, and those with videos get 0.08% engagement. So, try and include a photo or a video in your updates. Try to[upload HD photos and videos on the Facebook mobile app](https://www.makeuseof.com/tag/upload-photos-videos-hd-facebook-mobile-app/) for the best results.
@@ -92,16 +94,7 @@ thumbnail: https://thmb.techidaily.com/cc2d4ffbafce624b537835413e18b0d5bee03ddeb
  Shorter, timely video content tends to do well in News Feed. Keep in mind that auto-play videos play silently in News Feed until someone taps to hear the sound, so videos that catch people's attention even without sound often find success. That's why you should add text to your videos if possible.
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Best Topics for More Likes on Facebook
@@ -113,13 +106,6 @@ thumbnail: https://thmb.techidaily.com/cc2d4ffbafce624b537835413e18b0d5bee03ddeb
  If you've ever wondered[whether it's a good idea to use hashtags in your Facebook posts](https://www.makeuseof.com/do-hashtags-work-on-facebook/) , the answer is yes, but you need to use them strategically. Don't abuse them or no one will pay attention to them or your posts might appear spammy.
 
  Keep in mind that[Facebook hides some content on the News Feed](https://www.makeuseof.com/content-types-facebook-hides-why/) for various reasons.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Posting for Success on Facebook
 
@@ -140,17 +126,24 @@ thumbnail: https://thmb.techidaily.com/cc2d4ffbafce624b537835413e18b0d5bee03ddeb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-iosplusandroid-guide-to-invisible-youtube-viewing/"><u>[New] IOS+Android Guide to Invisible YouTube Viewing</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-free-visuals-galore-top-10-sites-to-explore/"><u>[Updated] 2024 Approved Free Visuals Galore – Top 10 Sites to Explore</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-brush-up-your-youtube-videos-with-color-correction/"><u>[Updated] Brush Up Your Youtube Videos with Color Correction</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-fun-tests-are-they-stealing-secrets/"><u>Facebook's Fun Tests: Are They Stealing Secrets?</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-portal-adapts-to-your-lifestyle-with-go/"><u>Facebook's Portal Adapts to Your Lifestyle with Go</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-crafting-chronological-displacement-effects/"><u>In 2024, Crafting Chronological Displacement Effects</u></a></li>
-<li><a href="https://extra-information.techidaily.com/reality-vs-virtuality-sustaining-vr-creativity-innovation/"><u>Reality Vs. Virtuality Sustaining VR Creativity Innovation</u></a></li>
-<li><a href="https://facebook.techidaily.com/tactics-for-efficiently-handling-fb-connected-services/"><u>Tactics for Efficiently Handling FB-Connected Services</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-persistent-issues-with-microsoft-edge-stability-on-windows-11-os/"><u>Troubleshooting Persistent Issues with Microsoft Edge Stability on Windows 11 OS</u></a></li>
-<li><a href="https://win-dash.techidaily.com/unleash-maximum-potential-with-intels-latest-download-now-z270-gaming-pro-carbon-motherboard/"><u>Unleash Maximum Potential with Intel's Latest: [Download Now]: Z270 Gaming Pro Carbon Motherboard</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-the-power-of-independent-messaging-services/"><u>Unlock the Power of Independent Messaging Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-social-sphere-scan-identifying-these-9-cyber-threat-indicators/"><u>Your Social Sphere Scan: Identifying These 9 Cyber Threat Indicators</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-efficient-editing-for-quick-youtube-content/"><u>[New] 2024 Approved Efficient Editing for Quick YouTube Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-transform-hidden-facebook-videos-with-these-12-must-try-steps/"><u>[New] Transform Hidden Facebook Videos with These 12 Must-Try Steps</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-ultimate-drone-list-to-maximize-gopro-video-quality/"><u>[New] Ultimate Drone List to Maximize GoPro Video Quality</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-calls-recorded-and-saved-iphone-24-sound-guide/"><u>[Updated] 2024 Approved Calls Recorded & Saved IPhone '24 Sound Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-discovering-the-best-screen-recording-programs-for-win11/"><u>[Updated] Discovering the Best Screen Recording Programs for Win11</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-creating-a-social-media-impact-the-art-of-using-hashtags-on-fb/"><u>[Updated] In 2024, Creating a Social Media Impact The Art of Using Hashtags on FB</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-streamer-soundscape-the-top-5-headset-guidebook/"><u>2024 Approved Streamer Soundscape The Top 5 Headset Guidebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/elusive-engagement-keeping-fb-content-out-of-public-view/"><u>Elusive Engagement: Keeping Fb Content Out of Public View</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-protection-system-features-on-facebook-platform/"><u>Harnessing Protection System Features on Facebook Platform</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-samsung-galaxy-a05-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Samsung Galaxy A05 FRP Bypass Instantly</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-blocked-user-search/"><u>Mastering Facebook's Blocked User Search</u></a></li>
+<li><a href="https://fox-that.techidaily.com/no-longer-mystified-unravel-why-itunes-and-finder-wont-recognize-your-iphone-and-how-to-repair-it/"><u>No Longer Mystified? Unravel Why iTunes and Finder Won't Recognize Your iPhone & How to Repair It</u></a></li>
+<li><a href="https://facebook.techidaily.com/politics-no-thanks-optimize-your-facebook-experience/"><u>Politics? No Thanks! Optimize Your Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/stream-your-favorites-spotify-mini-panel-right-from-facebook/"><u>Stream Your Favorites: Spotify Mini Panel, Right From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-blunders-of-the-tech-world-this-year/"><u>The Biggest Blunders of the Tech World This Year</u></a></li>
+<li><a href="https://article-files.techidaily.com/the-essence-of-color-in-photography-top-11-tutorials/"><u>The Essence of Color in Photography (Top 11 Tutorials)</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-sleep-mode-in-enhancing-the-user-experience-on-messenger-kids/"><u>The Role of Sleep Mode in Enhancing the User Experience on Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-mystery-how-to-get-your-money-back-from-fb/"><u>Unraveling the Mystery - How to Get Your Money Back From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/upcoming-guidance-teenagers-time-away-from-instagram/"><u>Upcoming Guidance: Teenagers' Time Away From Instagram?</u></a></li>
 </ul></div>
 

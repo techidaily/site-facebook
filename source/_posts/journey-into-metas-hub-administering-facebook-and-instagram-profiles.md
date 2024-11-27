@@ -1,7 +1,7 @@
 ---
 title: "Journey Into Meta's Hub: Administering Facebook & Instagram Profiles"
-date: 2024-11-14T16:05:41.999Z
-updated: 2024-11-17T16:43:45.689Z
+date: 2024-11-20T10:23:08.055Z
+updated: 2024-11-26T17:33:33.264Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/a4fdcd80183f244d65d1a43dcdc553851a248e6cf
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook and Instagram: Navigating to the Accounts Center
 
 ![Title card for Meta Accounts Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143112---Copy.jpg)
@@ -39,13 +43,14 @@ thumbnail: https://thmb.techidaily.com/a4fdcd80183f244d65d1a43dcdc553851a248e6cf
 ![Instagram page with settings window open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151639.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Settings menu for Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151644.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -56,31 +61,14 @@ Here's how you can access the Accounts Center on Instagram:
 3. Tap**Settings** .
 4. At the bottom of the**Settings** page tap**Accounts Center** .
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Finding the Accounts Center on Facebook
 
 ![Facebook home page portraying a post and icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143300.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Settings menu for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143358.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Meta Accounts Center hub with options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143112.jpg)
@@ -94,6 +82,10 @@ Here's how to access the Accounts Center on Facebook:
 3. Scroll all the way to the bottom and tap the**Accounts Center** tab.
 
  Opening the Accounts Center on both apps is relatively straightforward. After following these steps, you're ready to start testing its features.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Accounts Center Is Optional For Now
 
@@ -116,16 +108,20 @@ Here's how to access the Accounts Center on Facebook:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-ultimate-top-11-list-excellent-audio-devices/"><u>[New] Ultimate Top 11 List Excellent Audio Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-fbs-algorithms-for-content-selection/"><u>Deciphering Fb's Algorithms for Content Selection</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-processes-within-photodna-framework/"><u>Deciphering the Processes Within PhotoDNA Framework</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-detox-essentials-6-reasons-to-remove-facebook/"><u>Digital Detox Essentials – 6 Reasons to Remove Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/disable-unexpected-connection-proposals-in-facebook/"><u>Disable Unexpected Connection Proposals in Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-fascination-with-facebooks-member-count/"><u>Dissecting the Fascination with Facebook's Member Count</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-top-tier-funny-editing-tool/"><u>In 2024, Top-Tier Funny Editing Tool</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlocking-apple-iphone-se-2022-passcode-without-a-computer-drfone-by-drfone-ios/"><u>In 2024, Unlocking Apple iPhone SE (2022) Passcode without a Computer | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/streamlining-media-playback-with-vlc-mac-for-2024/"><u>Streamlining Media Playback with VLC (Mac) for 2024</u></a></li>
-<li><a href="https://techidaily.com/three-solutions-to-hard-reset-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/zdnets-expert-picks-for-the-leading-hybrids-of-2023-a-must-read-guide/"><u>ZDNet's Expert Picks for the Leading Hybrids of 2023 - A Must-Read Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/avoid-legal-pitfalls-pre-upload-video-copyright-on-tiktok/"><u>Avoid Legal Pitfalls Pre-Upload Video Copyright on TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-cloud-to-hard-drive-your-facebook-photos-and-videos-journey/"><u>From Cloud to Hard Drive: Your Facebook Photos & Videos Journey</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/guide-running-older-software-with-compatibility-settings-in-windows-nx/"><u>Guide: Running Older Software with Compatibility Settings in Windows nX</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-realme-narzo-60-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Realme Narzo 60 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/identity-illuminators-which-shines-brighter-metalogue-gold-or-twitter-luster/"><u>Identity Illuminators: Which Shines Brighter, Metalogue Gold or Twitter Luster?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fcps-ultimate-effect-upgrade-the-best-10-plugins/"><u>In 2024, FCP’s Ultimate Effect Upgrade The Best 10 Plugins</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-transform-gameplay-into-a-masterpiece-using-fbx/"><u>In 2024, Transform Gameplay Into a Masterpiece Using FBX</u></a></li>
+<li><a href="https://facebook.techidaily.com/inaccessible-online-spaces-discover-the-3-no-facebook-nations/"><u>Inaccessible Online Spaces: Discover the 3 No-Facebook Nations</u></a></li>
+<li><a href="https://extra-support.techidaily.com/orchestrating-pictures-with-musical-accompaniment-for-2024/"><u>Orchestrating Pictures with Musical Accompaniment for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/restoring-right-side-up-display-in-windows-10-fixed/"><u>Restoring Right Side Up Display in Windows 10 [Fixed]</u></a></li>
+<li><a href="https://games-able.techidaily.com/save-big-on-premium-55-roku-smart-led-tv-now-at-an-unbeatable-price-of-649-dont-miss-out-this-labor-day-sale/"><u>Save Big on Premium 55 Roku Smart LED TV: Now at an Unbeatable Price of $649! Don't Miss Out This Labor Day Sale!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-guide-verifying-available-storage-on-your-windows-11-pc/"><u>Step-by-Step Guide: Verifying Available Storage on Your Windows 11 PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategizing-your-events-with-a-focus-on-facebooks-features/"><u>Strategizing Your Events with a Focus on Facebook's Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-language-of-facebooks-emoji-keyboard/"><u>The Language of Facebook's Emoji Keyboard</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-voyage-charting-facebooks-course-to-meta/"><u>Virtual Voyage: Charting Facebook's Course to Meta</u></a></li>
 </ul></div>
 

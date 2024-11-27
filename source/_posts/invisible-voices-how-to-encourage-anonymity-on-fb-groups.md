@@ -1,7 +1,7 @@
 ---
 title: "Invisible Voices: How to Encourage Anonymity on FB Groups"
-date: 2024-11-16T16:23:29.535Z
-updated: 2024-11-17T17:01:05.312Z
+date: 2024-11-22T13:13:32.092Z
+updated: 2024-11-27T13:13:43.231Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/8009d92085bbb2b59b0e3b6dadde39baefbadc66e
 
 ![An anonymous person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/01/teams-anonymous-update-featured.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit:[Shuttershock](https://www.shutterstock.com/image-photo/girl-holding-sheet-paper-question-mark-1673490064)
 
  The anonymous posting feature is only available for groups set as Parenting. So, if your group is set to another group type, you’d need to change this.
@@ -40,11 +44,23 @@ thumbnail: https://thmb.techidaily.com/8009d92085bbb2b59b0e3b6dadde39baefbadc66e
 
 ![facebook group homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-homepage.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![facebook group admin tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-admin-tools-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![facebook group settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-settings-page.jpg)
 
 ![facebook group type](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-type.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -60,13 +76,6 @@ Close
 
  All anonymous posts are subject to approval from admins and moderators, even if you don’t have post approval turned on for your group. As an admin, you’ll also be able to see the identity of users who wish to post anonymously on the pending posts page.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Why Might You Want to Enable Anonymous Posts on Facebook?
 
  One reason you might want to enable anonymous posts on your group is so that group members can share their experiences without revealing their identity.
@@ -76,10 +85,7 @@ Close
  Enabling anonymous posts will encourage people who are shy or worried about expressing themselves publicly to share their thoughts with everyone else. This will increase your group engagement and reduce the chances of people[leaving the group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) .
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Should You Enable Anonymous Posting in Your Facebook Group?
@@ -103,17 +109,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-free-online-services-for-youtube-images-extraction/"><u>[New] 2024 Approved FREE Online Services for YouTube Images Extraction</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-bass-brilliance-new-device-overview/"><u>[New] Bass Brilliance New Device Overview</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/xploring-the-best-free-youtube-video-editors-for-ios/"><u>[New] Exploring the Best Free YouTube Video Editors for iOS</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-high-res-horizons-in-depth-analysis-of-samsung-ue590-tv/"><u>[New] High-Res Horizons In-Depth Analysis of Samsung UE590 TV</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-rights-upheld-by-german-mandate-against-facebooks-whatsapp-user-surveillines/"><u>Data Rights Upheld by German Mandate Against Facebook's WhatsApp User Surveillines</u></a></li>
-<li><a href="https://facebook.techidaily.com/datas-destiny-post-facebook-fade/"><u>Data's Destiny Post Facebook Fade</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-top-podcasts-the-ultimate-22-rankings-revealed/"><u>Decoding Top Podcasts - The Ultimate '22 Rankings Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/disabling-facebook-apps-browsing-function/"><u>Disabling Facebook App's Browsing Function</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-effective-mobile-settings-to-boost-fb-usage/"><u>Discover Effective Mobile Settings to Boost Fb Usage</u></a></li>
-<li><a href="https://program-issues.techidaily.com/expert-solutions-for-unfreezing-fortnite-ultimate-guide-for-gamers/"><u>Expert Solutions for Unfreezing Fortnite : Ultimate Guide for Gamers</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/s-best-free-video-compression-solutions-for-windows-10-users/"><u>S Best Free Video Compression Solutions for Windows 10 Users</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210762207-9781786859334-the-little-book-of-the-zodiac/"><u>The Little Book of the Zodiac | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/log-off-decoding-instagrams-call-to-social-media-sabbatical/"><u>'Log Off': Decoding Instagram's Call to Social Media Sabbatical</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-pioneers-panoramas-open-for-all-for-2024/"><u>[New] Pioneer's Panoramas Open for All for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-10-tips-to-make-your-youtube-shorts-channels-stand-out/"><u>2024 Approved 10 Tips to Make Your YouTube Shorts Channels Stand Out</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-samsung-galaxy-a24-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Samsung Galaxy A24 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-optimize-clarity-mastering-close-up-techniques-in-videoleap/"><u>In 2024, Optimize Clarity Mastering Close-Up Techniques in Videoleap</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-transforming-view-counts-with-strategic-video-tagging-techniques/"><u>In 2024, Transforming View Counts with Strategic Video Tagging Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-channels-for-swift-social-group-ties/"><u>Leveraging Channels for Swift Social Group Ties</u></a></li>
+<li><a href="https://fox-within.techidaily.com/mbr-to-mbr-migration-techniques-expert-tips-for-flawless-hard-drive-duplication/"><u>MBR to MBR Migration Techniques: Expert Tips for Flawless Hard Drive Duplication</u></a></li>
+<li><a href="https://facebook.techidaily.com/portals-next-chapter-introducing-the-go-version/"><u>Portal's Next Chapter: Introducing the Go Version</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-monitoring-the-key-to-reducing-deceptive-advertising/"><u>Social Media Monitoring: The Key to Reducing Deceptive Advertising</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-x-chair-x4-enhancing-your-office-with-elegance-and-support/"><u>The Ultimate Guide to the X-Chair X4: Enhancing Your Office with Elegance & Support</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-dec-is-a-pivotal-month-for-instagrams-chats/"><u>Why Dec Is a Pivotal Month for Instagram's Chats</u></a></li>
 </ul></div>
 

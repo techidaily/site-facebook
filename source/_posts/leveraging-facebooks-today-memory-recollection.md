@@ -1,7 +1,7 @@
 ---
 title: Leveraging Facebook's Today Memory Recollection
-date: 2024-11-14T17:55:18.131Z
-updated: 2024-11-17T16:15:30.628Z
+date: 2024-11-22T17:27:20.940Z
+updated: 2024-11-27T04:33:58.956Z
 tags:
   - facebook
 categories:
@@ -32,13 +32,6 @@ thumbnail: https://thmb.techidaily.com/cfa45c8957851b057661f0d98a0c4cd9830d27a0c
 
  You can also find tagged posts, things your friends shared on your timeline, or how many years you have been friends with a user. The memories are initially shown to you privately, and you can later share and edit them.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Use the On This Day Feature
 
  Users can access the On This Day feature on Facebook by the following method.
@@ -64,10 +57,7 @@ To share a memory from the On This Day feature:
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -86,6 +76,10 @@ You can save your On This Day posts with the following steps:
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
 
 Close
@@ -98,20 +92,10 @@ To access your saved memories:
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -119,19 +103,6 @@ Close
  To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can[download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
 
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. See What Your Friends Shared on Your Wall
 
@@ -152,19 +123,14 @@ Close
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Set the Time Duration of Memories
 
@@ -181,6 +147,10 @@ Close
  Facebook enables its users to hide memories from specific people. Under**Hide Memories** in the**Memory Settings** section, tap**People** and search for the names you do not wish to see memories from.
 
  Also, if you do not like to recall a specific date, tap**Dates** \> Mark**Start** and**End** dates > Tap**Save** . Facebook will stop showing you memories from those specific dates.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Stay in Touch With Your Past Using Facebook’s On This Day Feature
 
@@ -203,18 +173,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/nhancing-video-discoverability-with-smart-thumbnails-for-2024/"><u>[New] Enhancing Video Discoverability with Smart Thumbnails for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instas-friendship-breakdown-detect-it-fast/"><u>[Updated] 2024 Approved Insta's Friendship Breakdown Detect It Fast</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-dynamic-text-designs-ready-to-go-in-after-effects-for-2024/"><u>[Updated] Dynamic Text Designs Ready to Go in After Effects for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-smilesketcher-generate-memes-with-a-click/"><u>[Updated] SmileSketcher Generate Memes with a Click</u></a></li>
-<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-privacy-leaked-facebook-secrets-exposed/"><u>Decoding Privacy: Leaked Facebook Secrets Exposed</u></a></li>
-<li><a href="https://facebook.techidaily.com/determining-the-credibility-of-facebooks-safety-email-securityfbcom/"><u>Determining the Credibility of Facebook's Safety Email: security@fb.com</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-footprints-how-each-like-and-share-matters/"><u>Digital Footprints: How Each Like & Share Matters</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-facebooks-governance-strategy-in-its-latest-launch/"><u>Dissecting Facebook’s Governance Strategy in Its Latest Launch</u></a></li>
-<li><a href="https://facebook.techidaily.com/dont-give-strangers-access-to-your-social-profile/"><u>Don't Give Strangers Access to Your Social Profile</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/expert-picks-top-10-budget-friendly-jpeg-to-gif-apps/"><u>Expert Picks Top 10 Budget-Friendly JPEG to GIF Apps</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/free-upgrade-to-windows-11-step-by-step-instructions-and-tips/"><u>Free Upgrade to Windows 11: Step-by-Step Instructions and Tips</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-do-i-add-my-signature-to-word-2019-by-ldigisigner-sign-a-word-sign-a-word/"><u>How do i add my signature to Word 2019</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-apex-creators-video-giants-in-the-making/"><u>[New] 2024 Approved Apex Creators Video Giants in the Making</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dynamic-topic-suggestions-for-streamers/"><u>[New] In 2024, Dynamic Topic Suggestions for Streamers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-charismatic-videos-with-diy-camera-setups/"><u>[Updated] 2024 Approved Crafting Charismatic Videos with DIY Camera Setups</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-10-youtube-channels-for-industry-insights-for-2024/"><u>[Updated] Best 10 YouTube Channels for Industry Insights for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-prime-picks-for-effortless-screenshots/"><u>2024 Approved Prime Picks for Effortless Screenshots</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/elite-photography-fix-up-firms-detailed-analysis-of-strengths-and-weaknesses/"><u>Elite Photography Fix-Up Firms : Detailed Analysis of Strengths and Weaknesses</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/grasping-the-basics-of-telegram-marketing-strategies-for-2024/"><u>Grasping the Basics of Telegram Marketing Strategies for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/guide-installing-canon-dr-c225-printer-drivers-on-various-windows-versions/"><u>Guide: Installing Canon DR-C225 Printer Drivers on Various Windows Versions</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-find-yourself-lost-facebook-posts-against-all-odds/"><u>How to Find Yourself Lost Facebook Posts Against All Odds</u></a></li>
+<li><a href="https://facebook.techidaily.com/january-hearing-trumps-facebook-prohibition/"><u>January Hearing: Trump's Facebook Prohibition</u></a></li>
+<li><a href="https://facebook.techidaily.com/re-establishing-fb-passcode-for-increased-safety/"><u>Re-Establishing FB Passcode for Increased Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giant-supports-pandemic-effort-with-5-million-gift/"><u>Social Media Giant Supports Pandemic Effort with $5 Million Gift</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-turmoil-massive-outage-across-platforms/"><u>Tech Turmoil: Massive Outage Across Platforms</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-complete-guide-to-shooting-with-a-green-screen-for-2024/"><u>The Complete Guide to Shooting with a Green Screen for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-surge-in-telegram-users-following-facebook-downtime/"><u>The Surge in Telegram Users Following Facebook Downtime</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-apple-is-not-planning-to-follow-facebook-into-the-metaverse/"><u>Why Apple Is Not Planning to Follow Facebook Into the Metaverse</u></a></li>
 </ul></div>
 

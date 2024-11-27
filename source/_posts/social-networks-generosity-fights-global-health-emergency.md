@@ -1,7 +1,7 @@
 ---
 title: Social Network's Generosity Fights Global Health Emergency
-date: 2024-11-13T17:56:16.427Z
-updated: 2024-11-17T16:22:55.144Z
+date: 2024-11-20T13:20:19.152Z
+updated: 2024-11-27T15:29:54.742Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/c834e1885a4b3f3f1ee7dd2c9fc2dd5ec6f5c9eae
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook to Donate $20 to Every Go Give One Facebook Fundraiser
 
  A post on[the About Facebook blog](https://about.fb.com/news/2021/04/supporting-equitable-access-to-covid-19-vaccines/) revealed Facebook's planned contribution to the Go Give One fundraiser, which "calls on everyone to play their part in helping to vaccinate the world."
@@ -32,21 +36,16 @@ thumbnail: https://thmb.techidaily.com/c834e1885a4b3f3f1ee7dd2c9fc2dd5ec6f5c9eae
 
 ![Facebook vaccine fundraiser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-vaccine-fundraiser.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image Credit: Facebook
 
  "These fundraisers will support equitable vaccine distribution around the world, reducing the spread of COVID-19 and putting countries on a path to recovery," Facebook notes. Facebook will donate a total of $5 million to the cause.
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Also Aims to Highlight "Trusted Messengers"
@@ -58,10 +57,7 @@ Image Credit: Facebook
 ![Facebook COVID messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-covid-messages.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The platform is teaming up with AARP and Johns Hopkins University's Bloomberg School of Public Health to roll out vaccine-related campaigns in Spanish as well.
@@ -73,10 +69,7 @@ Image Credit: Facebook
  Lastly, Facebook will also be working with UNICEF to promote posts of healthcare workers receiving the vaccine around the globe. By making these posts more visible, Facebook hopes that it will encourage more people to get the vaccine.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Fights for Vaccine Equity
@@ -98,19 +91,20 @@ Image Credit: Facebook
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-elite-edits-the-best-video-editors-ranked/"><u>[New] 2024 Approved Elite Edits The Best Video Editors Ranked</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-essential-gear-for-capturing-skisnowboarding-moments-for-2024/"><u>[Updated] Essential Gear for Capturing Ski/Snowboarding Moments for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-masters-picks-highest-rated-cards-for-streaming-on-youtube/"><u>[Updated] Master's Picks Highest Rated Cards for Streaming on YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/10-purebred-social-media-helpers-free/"><u>10 Purebred Social Media Helpers (FREE)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-stand-alone-hold-tight-camera-stability-techniques/"><u>2024 Approved Stand Alone, Hold Tight Camera Stability Techniques</u></a></li>
-<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-oneplus-nord-n30-se-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your OnePlus Nord N30 SE | Dr.fone</u></a></li>
-<li><a href="https://win-deluxe.techidaily.com/5-cutting-edge-trends-dominating-2011s-online-promotion-landscape-leveraging-social-media-mobile-engagement-and-the-power-of-visual-content-via-massmail-pla2/"><u>5 Cutting-Edge Trends Dominating 2011'S Online Promotion Landscape: Leveraging Social Media, Mobile Engagement & the Power of Visual Content via Massmail Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-to-enhanced-fb-security/"><u>A Step-by-Step Approach to Enhanced FB Security</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-you-apart-from-friends-on-fb-truths-unveiled/"><u>Are You Apart From Friends on FB? Truths Unveiled</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/beaming-login-logout-directions-for-2024/"><u>Beaming Login / Logout Directions for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-(securityfacebookmailcom)-be-trusted-for-fb-safety/"><u>Can <Security@facebookmail.com> Be Trusted for FB Safety?</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-conversation-clarity-formatting-highlights/"><u>Crafting Conversation Clarity: Formatting Highlights</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138589313-9781452540849-i-am-inspiration/"><u>I Am Inspiration! | Free Book</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-wi-fi-6-a-comprehensive-netgear-nighthawk-rax80-router-assessment/"><u>Unveiling the Power of Wi-Fi 6: A Comprehensive Netgear Nighthawk RAX80 Router Assessment</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facebooks-real-time-media-watch-guide-2023/"><u>[New] 2024 Approved Facebook's Real-Time Media Watch Guide, 2023</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-ultimate-strategies-for-instagram-stories-mastery-for-2024/"><u>[New] Ultimate Strategies for Instagram Stories Mastery for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-master-the-art-of-mac-screen-record-via-shortcuts/"><u>[Updated] 2024 Approved Master the Art of Mac Screen Record via Shortcuts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-capture-clarity-top-10-photo-lens-selections/"><u>2024 Approved Capture Clarity Top 10 Photo Lens Selections</u></a></li>
+<li><a href="https://windows11.techidaily.com/audio-visual-verification-a-windows-users-pre-meet-checklist/"><u>Audio Visual Verification: A Windows User’s Pre-Meet Checklist</u></a></li>
+<li><a href="https://driver-install.techidaily.com/downloadinstall-amd-rx-5700-gpu-updates/"><u>Download/Install AMD RX 5700 GPU Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendless-no-more-resuming-online-relationships/"><u>Friendless No More: Resuming Online Relationships</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-see-a-friendship-history-on-facebook/"><u>How to See a Friendship History on Facebook</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-iphone-xr-when-phone-is-broken-drfone-by-drfone-ios/"><u>In 2024, How to Turn Off Find My iPhone XR when Phone is Broken? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/renaissance-of-second-life-a-metaverse-perspective/"><u>Renaissance of Second Life: A Metaverse Perspective?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-essential-handbook-for-iphone-vr-viewing/"><u>The Essential Handbook for iPhone VR Viewing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-project-management-unraveling-facebooks-8-functionalities/"><u>The Future of Project Management: Unraveling Facebook's 8 Functionalities</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-youtube-video-blueprint-mastering-visual-content-sharing/"><u>The Ultimate Youtube Video Blueprint Mastering Visual Content Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-vr-platform-privacy-fb-vs-meta-insights/"><u>Understanding VR Platform Privacy: FB Vs. Meta Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-privacy-matters-more-than-followers-a-list-of-10-reasons-to-drop-facebook/"><u>Why Privacy Matters More Than 'Followers' - A List of 10 Reasons to Drop Facebook</u></a></li>
 </ul></div>
 

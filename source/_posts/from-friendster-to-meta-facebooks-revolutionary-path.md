@@ -1,7 +1,7 @@
 ---
 title: "From Friendster to Meta: Facebook's Revolutionary Path"
-date: 2024-09-01T03:41:38.122Z
-updated: 2024-09-02T03:41:38.122Z
+date: 2024-11-22T04:19:22.313Z
+updated: 2024-11-27T01:26:37.286Z
 tags:
   - facebook
 categories:
@@ -35,15 +35,27 @@ thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
 
  In February 2008, the Facebook-Winklevoss lawsuit settled with Zuckerberg paying the twins a settlement of $65 million in cash and Facebook stock. Later, in July, the platform released its mobile app on iOS.
 
  Soon after, Facebook added more features to its website and the app, including Chat, Pages, Facebook Ads, and video support. But the most significant of them was the infamous Like button, introduced in February 2009.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2010–2012: Facebook Goes Public
 
 ![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  After the advent of the Like button, Facebook made several changes to the platform. It improved the tagging of people in photos, liking comments, and the home page. Later, it launched new features like Facebook Places, Groups, Timeline, and Video calling.
 
@@ -67,9 +79,6 @@ thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
  To counter this, the platform introduced a new feature that allowed users to flag fake posts and pledged to improve the algorithm, but these efforts barely made any difference. The same year, Facebook also launched Reactions which allowed users to select from several emojis alongside the Like button.
@@ -80,16 +89,14 @@ thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2
 
  The scandal led Zuckerberg and Facebook COO Sheryl Sandberg to testify before Congress. And the company paid a fine of £500,000 to the UK's Information Commissioner's Office for its part in the scandal.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 2019–2021: Rebranding to Meta Backfires
 
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
 
  Throughout 2019, Facebook paid several fines to various governments. And the year ended with yet another major security breach. In December,[Forbes](https://www.forbes.com/sites/johnbbrandon/2019/12/19/267-million-names-and-phone-numbers-leaked-online---and-theyre-all-from-facebook/?sh=3733ada35a6b) reported that account info of over 267 million Facebook users was leaked, including phone numbers and email addresses.
@@ -100,16 +107,10 @@ thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2
 
  Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2022 and Beyond: Layoffs, Chaos, and Recovery
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
 
  Fast-forward to 2022, and Meta has already spent billions of dollars trying to build the metaverse and make its VR headsets as technologically advanced as possible—all while eroding more than 70% of its stock value amid a global recession.
@@ -119,22 +120,20 @@ What comes next? Massive layoffs.
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Is in a Rough Place, But When Is It Not?
 
  Despite the rebranding and a new vision, Meta is not free from its past. It continues to face countless difficulties in the form of technical, legal, ethical, and social issues.
 
  But operating in challenging environments is not new for the company, and it's likely to continue recovering and growing regardless of its controversies and plunging into new territories. Only time will tell how fast it is actually able to do that, though.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,4 +142,26 @@ What comes next? Massive layoffs.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-revolutionize-your-iphone-shots-free-swift-red-eye-elimination-techniques/"><u>[New] Revolutionize Your iPhone Shots Free, Swift Red-Eye Elimination Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-small-scale-screenplay-idea/"><u>[Updated] 2024 Approved Small-Scale Screenplay Idea</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-seamless-podcast-journey-from-creation-to-google-submission/"><u>[Updated] In 2024, Seamless Podcast Journey From Creation to Google Submission</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-launching-a-youtube-channel-key-pieces-of-equipment/"><u>2024 Approved Launching a YouTube Channel Key Pieces of Equipment</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-xiaomi-14-ultra-lock-screen-password-by-drfone-android/"><u>How To Change Xiaomi 14 Ultra Lock Screen Password?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-6s-plus-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 6s Plus without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-expert-tips-for-ps4-screen-recordings-with-obs/"><u>In 2024, Expert Tips for PS4 Screen Recordings with OBS</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-leading-the-video-conversion-game-with-ipv-strategies/"><u>In 2024, Leading the Video Conversion Game with IPV Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-reach-posting-on-social-media-careers/"><u>Maximizing Reach: Posting on Social Media Careers</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-friend-recognition-3-varied-approaches-to-facebook-tags/"><u>Navigating Friend Recognition: 3 Varied Approaches to Facebook Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/public-viewpoint-social-tech-causes-more-harm/"><u>Public Viewpoint: Social Tech Causes More Harm</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-your-space-stop-browsing-facebook/"><u>Reclaim Your Space: Stop Browsing Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-beyond-big-platforms/"><u>Social Media Beyond Big Platforms</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-spectrum-of-intelligence-from-gpt-1-through-gpt-4/"><u>The Spectrum of Intelligence: From GPT-1 Through GPT-4</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-list-unlocking-latest-social-circles/"><u>The Ultimate List: Unlocking Latest Social Circles</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-non-bose-non-sony-wireless-bluetooth-speaker-reviewed-insider-secrets-revealed/"><u>Top-Rated Non-Bose, Non-Sony Wireless Bluetooth Speaker Reviewed: Insider Secrets Revealed!</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-your-pics-into-three-dimensional-social-highlights/"><u>Transforming Your Pics Into Three-Dimensional Social Highlights</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-missing-from-our-tech-calendar-this-year-max-69-charaters/"><u>What's Missing From Our Tech Calendar This Year? (Max 69 Charaters)</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-expect-cross-device-connectivity-soon/"><u>WhatsApp Users Expect Cross-Device Connectivity Soon</u></a></li>
+</ul></div>
 

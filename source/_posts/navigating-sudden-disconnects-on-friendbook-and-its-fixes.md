@@ -1,7 +1,7 @@
 ---
 title: Navigating Sudden Disconnects on Friendbook & Its Fixes
-date: 2024-09-01T03:43:01.670Z
-updated: 2024-09-02T03:43:01.670Z
+date: 2024-11-20T14:22:07.403Z
+updated: 2024-11-27T08:14:10.729Z
 tags:
   - facebook
 categories:
@@ -39,6 +39,10 @@ thumbnail: https://thmb.techidaily.com/b4422105d5b201d3b53a4eb264e1f06b970718d58
 
  If the problem comes from Facebook's backend, you can wait until it is resolved. However, if the problem only affects you, start applying the following fixes...
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Close Facebook on All Other Devices
 
  Facebook doesn't limit the number of devices you can log into your account simultaneously, and everything you do on one device gets automatically mirrored on the others. In some cases, however, being logged in on multiple devices may cause Facebook to log you out constantly. Thus, it's imperative to rule out this possibility.
@@ -48,8 +52,9 @@ thumbnail: https://thmb.techidaily.com/b4422105d5b201d3b53a4eb264e1f06b970718d58
  Nonetheless, if the issue persists after closing Facebook from other devices, move on to the next fix.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Exit Suspicious Facebook Sessions
 
  If you logged into your Facebook account on a public device and didn't log out before leaving the computer, the session might still be active. Thus, logging out of such unknown sessions is necessary to ensure it stays open only on one device and gets logged out of others.
@@ -62,19 +67,13 @@ thumbnail: https://thmb.techidaily.com/b4422105d5b201d3b53a4eb264e1f06b970718d58
 3. Go to**Security and login** .  
 ![Opening Security and Login Settings in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-2-Opening-Security-and-Login-Settings-in-Facebook.jpg)
 4. To log out of a session active on an unknown device, click the**three vertical dots** next to it and hit**Log out** .  
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![Logging Out of a Session Active on Unknown Device by Clicking on Log Out Button in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-3-Logging-Out-of-a-Session-Active-on-Unknown-Device-by-Clicking-on-Log-Out-Button-in-Facebook-Settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
+
+![Logging Out of a Session Active on Unknown Device by Clicking on Log Out Button in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-3-Logging-Out-of-a-Session-Active-on-Unknown-Device-by-Clicking-on-Log-Out-Button-in-Facebook-Settings.jpg)
+
 ### Exit Suspicious Facebook Sessions on the Facebook App
 
  To log out of a suspicious Facebook session on the Facebook app, follow the below steps:
@@ -88,13 +87,14 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ![Opening the Security and Login Settings in Facebook for iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Opening-the-Security-and-Login-Settings-in-Facebook-for-iOS.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Logging Out of the Session Active on Unknown Device by Clicking on Log Out Button in Settings of Facebook for iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Logging-Out-of-the-Session-Active-on-Unknown-Device-by-Clicking-on-Log-Out-Button-in-Settings-of-Facebook-for-iOS.jpg)
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Ensure the Issue Isn't Account-Specific
 
  Once you are confident that multi-login isn't causing the issue, ensure the problem isn't with your Facebook account. To test your hypothesis, log in with a different account (create a new account if you don't have one already) and see how Facebook treats it.
@@ -112,16 +112,15 @@ Close
 3. Go to**Security and login** .  
 ![Opening Security and Login Settings in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-4-Opening-Security-and-Login-Settings-in-Facebook.jpg)
 4. In the left sidebar, click**Apps and websites** .  
+
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Opening Apps and Websites Linked to Our Facebook Account in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-5-Opening-Apps-and-Websites-Linked-to-Our-Facebook-Account-in-Facebook-Settings.jpg)
 5. Click**Remove** right next to the app you'd like to unlink.  
 ![Unlinking the Linked App to Our Facebook Account by Clicking on Remove Button Next in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-6-Unlinking-the-Linked-App-to-Our-Facebook-Account-by-Clicking-on-Remove-Button-Next-in-Facebook-Settings.jpg)
 6. When the confirmation pop-up appears, click**Remove** again.
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 
 To remove linked apps on the Facebook app, follow the below steps:
 
@@ -134,23 +133,27 @@ To remove linked apps on the Facebook app, follow the below steps:
 ![Clicking on Menu Button in the Bottom-Right Corner on Facebook for iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Clicking-on-Menu-Button-in-the-Bottom-Right-Corner-on-Facebook-for-iOS.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Navigating to the Settings by Clicking on Settings and Privacy in Settings of Facebook for iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Navigating-to-the-Settings-by-Clicking-on-Settings-and-Privacy-in-Settings-of-Facebook-for-iOS.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Clicking on Apps and Websites Settings under Security Tab to Check Linked Apps in Settings of Facebook for iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Clicking-on-Apps-and-Websites-Settings-under-Security-Tab-to-Check-Linked-Apps-in-Settings-of-Facebook-for-iOS.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Unlinking Linked App to Our Facebook Account by Clicking on Remove Button Next in Settings of Facebook for iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Unlinking-Linked-App-to-Our-Facebook-Account-by-Clicking-on-Remove-Button-Next-in-Settings-of-Facebook-for-iOS.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
  If unlinking the apps and websites doesn't solve the problem, your browser might be to blame.
@@ -184,23 +187,17 @@ Close
 6. Fill out the required information and click**Submit** .  
 ![Clicking on Submit Button after Reporting a Problem on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-9-Clicking-on-Submit-Button-after-Reporting-a-Problem-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Don't Let Facebook Log You Out at Random
 
  Hopefully, the fixes covered in the article will help you determine why Facebook logs you out randomly and fix it. If all else fails, report the problem to Facebook.
 
  Like Facebook may log you out without apparent reason, Facebook Messenger may also suddenly stop working.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -209,4 +206,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-15-inspiring-youtube-guides-for-aspiring-singers-and-instrumentalists/"><u>[Updated] In 2024, 15 Inspiring YouTube Guides for Aspiring Singers and Instrumentalists</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-art-of-anticipation-elevating-the-unboxing-experience/"><u>[Updated] The Art of Anticipation Elevating the Unboxing Experience</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-motorola-moto-g04-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Motorola Moto G04? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-myths-busted-10-common-misconceptions-you-shouldnt-believe/"><u>Facebook Myths Busted: 10 Common Misconceptions You Shouldn't Believe</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-prioritizes-privacy-introduces-end-to-end-encryption-to-messaging-and-direct-chats/"><u>Facebook Prioritizes Privacy: Introduces End-to-End Encryption to Messaging & Direct Chats</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fresh-driver-download-for-nvidia-geforce-mx150-enhance-your-windows-experience/"><u>Fresh Driver Download for Nvidia GeForce MX150: Enhance Your Windows Experience!</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-vivo-v27-pro-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Vivo V27 Pro PC | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-tecno-pova-6-pro-5g-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/meaning-behind-invisible-user-presence/"><u>Meaning Behind Invisible User Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-access-deactivating-fb-2fa-absent-your-phone/"><u>Regaining Access: Deactivating FB 2FA Absent Your Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/reveal-your-most-cherished-chat-app/"><u>Reveal Your Most Cherished Chat App</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/robocopy-strategies-pour-le-mode-de-preservation-des-fichiers-tutoriel-complet-et-methodes-substituts/"><u>Robocopy : Stratégies Pour Le Mode De Préservation Des Fichiers – Tutoriel Complet Et Méthodes Substituts</u></a></li>
+<li><a href="https://facebook.techidaily.com/shrink-the-footprint-of-tailored-advertisements-online/"><u>Shrink the Footprint of Tailored Advertisements Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-facebook-experience-without-excessive-reels/"><u>Tailoring Facebook Experience Without Excessive Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/unchain-yourself-how-to-disable-fb-monitoring/"><u>Unchain Yourself: How to Disable FB Monitoring</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-music-from-y78-5g-by-fonelab-android-recover-music/"><u>Undelete lost music from Y78 5G</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-tecno-spark-20-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Tecno Spark 20 Device</u></a></li>
+</ul></div>
 

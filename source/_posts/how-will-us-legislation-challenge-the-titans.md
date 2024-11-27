@@ -1,7 +1,7 @@
 ---
 title: How Will U.S. Legislation Challenge the Titans?
-date: 2024-11-11T16:30:16.660Z
-updated: 2024-11-17T17:00:00.080Z
+date: 2024-11-26T11:20:44.975Z
+updated: 2024-11-27T14:22:47.832Z
 tags:
   - facebook
 categories:
@@ -34,32 +34,20 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
@@ -75,10 +63,7 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
@@ -92,6 +77,10 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
  How would Amazon itself have ever been invented if not for a free and open market?
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. The Ending Platform Monopolies Act
 
@@ -117,13 +106,6 @@ In essence: leave the selling to the sellers.
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Finally, we come to the economic backing to make it all happen.
 
  Comically prefaced with twenty-five lines of numerical amendment, this last bill explains how the government intends to finance this initiative without relying on taxpayers. It also specifies that the filing fees for larger transactions conducted under these laws will be higher than those imposed on smaller transactions.
@@ -135,6 +117,10 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -157,18 +143,16 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-transforming-still-images-into-expressive-animations-gif/"><u>[New] Transforming Still Images Into Expressive Animations (GIF)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-optimizing-personal-video-experience-building-an-organized-watch-later-list/"><u>2024 Approved Optimizing Personal Video Experience Building an Organized 'Watch Later' List</u></a></li>
-<li><a href="https://techtrends.techidaily.com/comprehensive-guide-to-adding-fubotv-services-to-your-firestick-media-player/"><u>Comprehensive Guide to Adding FuboTV Services to Your Firestick Media Player</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ng-edge-mobile-apps-for-stellar-intros/"><u>Cutting-Edge Mobile Apps for Stellar Intros</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-repair-your-computer-when-the-ssd-drive-isnt-detected-no-data-damage-method/"><u>How to Repair Your Computer When the SSD Drive Isn't Detected - No Data Damage Method</u></a></li>
-<li><a href="https://facebook.techidaily.com/mindful-metrics-assessing-your-online-influence/"><u>Mindful Metrics: Assessing Your Online Influence</u></a></li>
-<li><a href="https://facebook.techidaily.com/patterns-in-internet-account-compromises/"><u>Patterns in Internet Account Compromises</u></a></li>
-<li><a href="https://facebook.techidaily.com/speedy-service-selective-lite-android-solutions/"><u>Speedy Service: Selective Lite Android Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/steer-clear-elite-deceptive-networks-in-sight/"><u>Steer Clear: Elite Deceptive Networks in Sight</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-process-to-dry-and-restore-your-wet-apple-mobile-device/"><u>Step-by-Step Process to Dry and Restore Your Wet Apple Mobile Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-definitive-guide-to-secure-social-networking-on-fb/"><u>The Definitive Guide to Secure Social Networking on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-end-of-an-era-instas-chats-discontinued/"><u>The End of an Era: Insta’s Chats Discontinued</u></a></li>
-<li><a href="https://techidaily.com/update-your-hardware-drivers-with-device-manager-on-windows-11107-by-drivereasy-guide/"><u>Update your hardware drivers with Device Manager on Windows 11/10/7</u></a></li>
+<li><a href="https://driver-install.techidaily.com/amend-brother-mfp-driver-in-win11/"><u>Amend Brother MFP Driver in Win11</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-realme-v30t-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Realme V30T Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210240087-9781398701953-astrosex-aries/"><u>Astrosex: Aries | Free Book</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabling-iphone-15-pro-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling iPhone 15 Pro Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/exploring-popular-networking-sites-facebook-twitter-instagram-and-youtube/"><u>Exploring Popular Networking Sites: Facebook, Twitter, Instagram and Youtube</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-name-on-facebook/"><u>How to Change Your Name on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-pioneer-leaves-facebook/"><u>Social Media Pioneer Leaves Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-overcoming-11-facebook-errors/"><u>The Ultimate Guide to Overcoming 11 Facebook Errors</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unleash-professional-vlogging-potential-discover-manycams-all-in-one-solution-for-live-videos-remote-webcams-and-more/"><u>Unleash Professional Vlogging Potential: Discover ManyCam's All-in-One Solution for Live Videos, Remote Webcams, & More!</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-future-social-spaces-the-potential-of-facebooks-metaverse/"><u>Unveiling Future Social Spaces: The Potential of Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/winning-back-your-money-requesting-a-refund-on-facebook/"><u>Winning Back Your Money: Requesting a Refund on Facebook</u></a></li>
 </ul></div>
 

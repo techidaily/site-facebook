@@ -1,7 +1,7 @@
 ---
 title: Exploring Messaging Systems Outside Facebook's Realm
-date: 2024-09-01T03:46:46.860Z
-updated: 2024-09-02T03:46:46.860Z
+date: 2024-11-24T01:54:21.178Z
+updated: 2024-11-26T18:42:02.763Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/648356b382a636832a6e99201a4517a582a77b906
  Can you use Messenger without Facebook? Yes, in a way: even if you have sworn off Facebook or want to quit social media altogether, it doesn't mean you can't take advantage of Facebook's Messenger service.
 
  The two are obviously linked. But if you follow these simple steps, you can use Facebook Messenger without having an active Facebook account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Use Facebook Messenger?
 
@@ -45,9 +49,6 @@ thumbnail: https://thmb.techidaily.com/648356b382a636832a6e99201a4517a582a77b906
 
  But even if you don't have Facebook, the company is still tracking you: shadow profiles detail the activities of those not using the app. Signing up to Messenger isn't going to make much of a difference, compared to the personal information users with Facebook accounts give up.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## How to Download Messenger Without an Active Facebook Account
 
  Things used to be simpler. The process of using Facebook Messenger without having Facebook itself was easy: you could sign up using your phone number. Sorted. But Facebook quietly phased this option out in 2019, so now, you have to have a Facebook account. But don't panic: you can work around this.
@@ -58,6 +59,10 @@ thumbnail: https://thmb.techidaily.com/648356b382a636832a6e99201a4517a582a77b906
 
 ![Facebook Messaging service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/The-Messenger-app-logo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Next, you need to know how to sign up for Messenger.
 
  When you open the app for the first time, it will encourage you to log into a Facebook account using either your email address or phone number. Instead, click on**Create New Account** . This will redirect you into creating a Facebook account.
@@ -67,13 +72,9 @@ Next, you need to know how to sign up for Messenger.
  Okay, so now you have a Facebook account. That's not ideal, but you can do something about that at least. So what next?
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Set Up Messenger Without an Active Facebook Account
 
  After you activate your account, there are still a few settings to finalize so that you can take full advantage of the app.
@@ -82,9 +83,6 @@ Next, you need to know how to sign up for Messenger.
 
  How can you add friends to Messenger? You can do this via your Facebook account if you want to, but you'll probably need to explain to them that this is temporary, because you're only doing it to interact with them on Messenger. If you want to connect solely on Messenger via your smartphone, you can click on your profile picture in the top-left of your interface. Then go to**Phone contacts > Upload contacts** . This will sync the app with your phone book.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Can You Have Messenger Without Using Facebook?
 
  You still have the main problem you wanted to avoid: you have a Facebook profile, simply to use Messenger. So what can you do?
@@ -93,20 +91,14 @@ Next, you need to know how to sign up for Messenger.
 
  However, you cannot delete Facebook without also deleting Messenger.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## What Happens to Messenger if You Delete or Deactivate Facebook?
 
 ![how to delete or deactivate account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Deactivate-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Don't make this decision lightly. Before you begin the process, you need to know what it means when you[deactivate your Facebook account](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
 
  In a nutshell, deactivating Facebook still allows you time to think about whether you want to permanently delete your account (as your data is still stored, ready for reactivation). It also means Messenger will continue to work. When you deactivate Facebook, you should be asked if you want to continue using Messenger.
@@ -120,8 +112,9 @@ No advertising on the website.
  You'll see your two options with warnings about what happens when you follow either method. Select**Deactivate account** so you can still use Messenger on your smartphone.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can I Use Messenger Without Facebook on my PC?
 
  Sadly, you can only use Messenger via your browser if you've got an active Facebook account.
@@ -136,14 +129,11 @@ No advertising on the website.
 
  Nonetheless, because this little loophole allows you to carry on using Messenger even after deactivating your main Facebook profile, it's not the end of the world.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -152,4 +142,26 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-beginners-guide-to-iphone-slow-movement-videography/"><u>[Updated] 2024 Approved The Beginner's Guide to iPhone Slow Movement Videography</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-a-stepwise-strategy-to-make-mark-with-memes-at-9gag/"><u>[Updated] A Stepwise Strategy to Make Mark with Memes at 9GAG</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-uncomplicated-approach-for-smooth-iphone-screening/"><u>2024 Approved Uncomplicated Approach for Smooth Iphone Screening</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-step-by-step-guide-to-timestamps-in-video-sharing/"><u>A Step-by-Step Guide to Timestamps in Video Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-private-settings-on-meta-and-facebook-quest-2/"><u>Examining Private Settings on Meta and Facebook Quest 2</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-your-digital-interactions-facebooks-latest-upgrades-bring-stronger-privacy-with-new-chat-and-call-security-tools/"><u>Fortifying Your Digital Interactions: Facebook's Latest Upgrades Bring Stronger Privacy with New Chat and Call Security Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/groundbreaking-tools-aid-in-managing-digital-social-spaces/"><u>Groundbreaking Tools Aid in Managing Digital Social Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/heres-what-facebooks-new-page-labels-mean/"><u>Here's What Facebook's New Page Labels Mean...</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-poco-x6-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Poco X6 to PC? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-step-by-step-approach-to-mastering-the-steam-pro-controller-on-switch/"><u>In 2024, Step-by-Step Approach to Mastering the Steam Pro Controller on Switch</u></a></li>
+<li><a href="https://techtrends.techidaily.com/inside-rumors-on-the-new-apple-audio-device-expected-price-tag-and-release-details-revealed/"><u>Inside Rumors on the New Apple Audio Device: Expected Price Tag and Release Details Revealed</u></a></li>
+<li><a href="https://extra-information.techidaily.com/laughter-unlimited-meme-magic-app/"><u>Laughter Unlimited Meme Magic App</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-prime-fb-pics-selection/"><u>Mastering Prime FB Pics Selection</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-strategy-facebook-enables-music-earnings-exchange/"><u>New Strategy: Facebook Enables Music Earnings Exchange</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-chat-with-facebooks-ar-driven-messaging-updates/"><u>Revolutionize Chat With Facebook's AR-Driven Messaging Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-fashion-and-function-facebook-goes-from-digital-to-tangible/"><u>The Future of Fashion & Function: Facebook Goes From Digital to Tangible</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-4-meta-resources-for-business-success/"><u>The Ultimate 4 Meta Resources for Business Success</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/what-is-ai-transfer-learning-and-how-does-it-work/"><u>What Is AI Transfer Learning and How Does It Work?</u></a></li>
+<li><a href="https://win-able.techidaily.com/whats-new-in-rainbow-six-siege-a-complete-overview/"><u>What's New in Rainbow Six Siege : A Complete Overview</u></a></li>
+</ul></div>
 

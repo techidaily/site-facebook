@@ -1,7 +1,7 @@
 ---
 title: "Quiet Your Facebook Page: Excluding Post Comments Effectively"
-date: 2024-11-15T17:16:16.123Z
-updated: 2024-11-17T16:45:33.099Z
+date: 2024-11-23T10:46:51.152Z
+updated: 2024-11-27T14:56:08.988Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,7 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
  You can choose between using the Facebook mobile app on your phone or its web version on a PC to manage comments on your profile posts. This guide will show you how to do using both versions.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Manage Comments on the Facebook App
@@ -46,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
  Here's how to manage comments on your posts using the Facebook mobile app:
 
 ![screenshot showing how to manage facebook post comments](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-facebook-post-comments.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screenshot showing how to manage comments on facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-comments-on-facebook-post.jpg)
 
@@ -70,24 +71,18 @@ Close
 
 ![screenshot of general profile settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-general-profile-settings-page-1.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click on**Public Post Comments** or the area next to it and select your preferred commenting audience, from**Public** ,**Friends of Friends** , or**Friends** .
 
 ![screenshot of facebook post filters and tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-post-filters-and-tools-page.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  And that's all you need to manage comments on your Facebook post.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Disable Post Comments in a Facebook Group
@@ -98,13 +93,6 @@ Close
 
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
 
 1. Identify the post for which you'd like to turn off its comment.
@@ -114,6 +102,10 @@ Close
  Using the web version, the steps are the same. Just make sure to look out for the three dots in the top-right corner of the post.
 
  And that's it. Facebook immediately disables the comment section of the post. However, the old comments remain under the post.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Take Control of the Comment Section on Your Facebook Posts
 
@@ -136,18 +128,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-fostering-self-assurance-against-virtual-hostility/"><u>[New] Fostering Self-Assurance Against Virtual Hostility</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-free-iphones-masterclass-perfect-your-pictures-with-simple-edits/"><u>[New] FREE iPhones Masterclass Perfect Your Pictures with Simple Edits</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-photo-your-desktop-windows-edition/"><u>[New] In 2024, Photo Your Desktop Windows Edition</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-edit-with-ease-prime-10-converters-unveiled/"><u>[Updated] Edit with Ease Prime 10 Converters Unveiled</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-maximize-offline-fb-usage-with-free-downloaders/"><u>[Updated] Maximize Offline FB Usage with Free Downloaders</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-art-of-compelling-podcast-summaries-explained/"><u>[Updated] The Art of Compelling Podcast Summaries Explained</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Infinix Hot 40 | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/evolution-through-pixels-the-story-behind-windows-wallpaper-design/"><u>Evolution Through Pixels: The Story Behind Windows Wallpaper Design</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-shutdown-the-data-dilemma-continues/"><u>Facebook Shutdown: The Data Dilemma Continues</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-a-meta-account-more-private-than-a-facebook-account-for-oculus-quest-2/"><u>Is a Meta Account More Private Than a Facebook Account for Oculus Quest 2?</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-digital-divide-metaverse-and-vrs-6-key-distinctions/"><u>Navigating The Digital Divide: Metaverse & VR's 6 Key Distinctions</u></a></li>
-<li><a href="https://facebook.techidaily.com/real-time-notifications-for-lost-chat-images-on-messenger/"><u>Real-Time Notifications for Lost Chat Images on Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/reverse-the-ruin-how-to-fix-mistakenly-removed-fb-items/"><u>Reverse the Ruin: How to Fix Mistakenly Removed FB Items</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-chart-your-course-to-youtube-riches-the-essential-500-threshold/"><u>[Updated] Chart Your Course to Youtube Riches The Essential 500 Threshold</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unlock-creative-potential-with-10-best-backdrop-modification-software/"><u>[Updated] Unlock Creative Potential with 10 Best Backdrop Modification Software</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/5liw55wm55qe44gq5zwg5yplusw5byv44gr5yip55so5yplusv6io944gq6yca6lko44k44kk44ox44gv77yf/"><u>世界的な商取引に利用可能な通貨タイプは？</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/comparing-icloud-and-itunes-which-iphone-backup-method-reigns-supreme/"><u>Comparing iCloud and iTunes: Which iPhone Backup Method Reigns Supreme?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Does Life360 Notify When You Log Out On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-rtx-2070-graphics-card-drivers-for-windows-11-8-and-7-users/"><u>Get the Latest RTX 2070 Graphics Card Drivers for Windows 11, 8 & 7 Users</u></a></li>
+<li><a href="https://win-help.techidaily.com/microsoft-stuns-with-futuristic-tech-pants-for-a-steal-at-150-bucks-how-they-work-and-why-you-need-them-as-revealed-by-zdnet/"><u>Microsoft Stuns with Futuristic 'Tech Pants' For a Steal at 150 Bucks | How They Work & Why You Need Them, as Revealed by ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-secret-landscape-of-digital-interactions-on-facebook/"><u>Navigating the Secret Landscape of Digital Interactions on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/rapid-access-speedier-android-alternatives/"><u>Rapid Access: Speedier Android Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-profiles-a-no-politics-no-religion-rule/"><u>Securing Profiles: A No Politics, No Religion Rule</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-standings-deciphering-elite-echelons-in-metals-and-tweets/"><u>Social Standings: Deciphering Elite Echelons in Metals and Tweets</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-reason-behind-facebooks-ubiquitous-suggestion-features/"><u>The Reason Behind Facebook's Ubiquitous Suggestion Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-hashtags-impact-on-facebook-engagement/"><u>Unveiling: Hashtags Impact on Facebook Engagement</u></a></li>
 </ul></div>
 

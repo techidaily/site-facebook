@@ -1,7 +1,7 @@
 ---
 title: "Solar Surge: FB's Operations Now 100%% Renewable"
-date: 2024-09-01T03:44:27.314Z
-updated: 2024-09-02T03:44:27.314Z
+date: 2024-11-20T04:06:57.695Z
+updated: 2024-11-27T12:14:57.433Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/80b6560d97681f28de9031de7e7f0da06668db1bd
 ## Solar Surge: FB's Operations Now 100% Renewable
 
  Over the last few years, tech giants have been trying hard to become more eco-friendly. Facebook committed to addressing climate change issues some time ago and the social network has already hit its renewable energy goal set back in 2018 and reached net-zero emissions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Becomes the World’s Largest Corporate Purchaser of Renewable Energy
 
@@ -35,9 +39,17 @@ thumbnail: https://thmb.techidaily.com/80b6560d97681f28de9031de7e7f0da06668db1bd
 
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Has Already Set Its Next Environmental Target
 
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
 
@@ -49,14 +61,11 @@ So, things may, finally, be moving in the right direction.
 
  Image Credit: SkyLuke8/[Flickr](https://www.flickr.com/photos/76908970@N07/6917649908/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -65,8 +74,24 @@ So, things may, finally, be moving in the right direction.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-ideal-apps-for-advancing-android-pics/"><u>[New] In 2024, Ideal Apps for Advancing Android Pics</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-gamescene-capturers-compendium/"><u>[Updated] GameScene Capturer's Compendium</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-visionedit-pro/"><u>[Updated] In 2024, VisionEdit Pro</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-authoritative-resource-streamlining-screencasts-on-the-go-with-mobizen/"><u>2024 Approved Authoritative Resource Streamlining Screencasts on the Go With Mobizen</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/earthy-editing-free-screen-templates-that-elevate-video-creation-skills/"><u>Earthy Editing Free Screen Templates that Elevate Video Creation Skills</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-policy-centric-hub-transparency-now/"><u>Facebook Unveils Policy-Centric Hub: Transparency Now</u></a></li>
+<li><a href="https://network-issues.techidaily.com/fallout-4s-pc-problems-solved-for-you/"><u>Fallout 4'S PC Problems, Solved for You</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/immersive-adventures-await-top-10-innovative-pc-vr-streamers-reviewed-for-2024/"><u>Immersive Adventures Await Top 10 Innovative PC VR Streamers Reviewed for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-zte-nubia-flip-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your ZTE Nubia Flip 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/inclusive-social-media-strategies-with-group-members/"><u>Inclusive Social Media Strategies with Group Members</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-bridge-building-with-facebooks-channels/"><u>Interactive Bridge-Building with Facebook's Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-future-of-social-media-without-facebook-and-giphy-feasible/"><u>Is the Future of Social Media without Facebook & Giphy Feasible?</u></a></li>
+<li><a href="https://facebook.techidaily.com/recharge-by-unplugging-top-benefits-of-taking-breaks/"><u>Recharge by Unplugging: Top Benefits of Taking Breaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/resolving-no-security-code-on-facebook-login-attempt/"><u>Resolving No Security Code on Facebook Login Attempt</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-protecting-your-fb-account-from-unauthorized-access/"><u>Strategies for Protecting Your Fb Account From Unauthorized Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-secure-web-navigation-tools/"><u>The Rise of Secure Web Navigation Tools</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-bert-a-comparison-with-gpt-in-nlp/"><u>Understanding BERT: A Comparison with GPT in NLP</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->

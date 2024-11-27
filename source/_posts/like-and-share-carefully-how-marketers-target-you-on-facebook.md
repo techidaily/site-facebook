@@ -1,7 +1,7 @@
 ---
 title: "Like and Share Carefully: How Marketers Target You on Facebook"
-date: 2024-09-01T03:48:17.478Z
-updated: 2024-09-02T03:48:17.478Z
+date: 2024-11-23T00:27:00.981Z
+updated: 2024-11-27T06:25:19.604Z
 tags:
   - facebook
 categories:
@@ -29,9 +29,17 @@ thumbnail: https://thmb.techidaily.com/9c54005e696cd2ed7b70760eb63ef402583a5567a
 
  To be honest, this isn't a bad idea. However, this offers just one more way for consumers to get sucked into loads of advertised promises. Once they know that a company is personal, they are more inclined to trust this company. In short, it's the modern-day equivalent to the old mom-and-pop stores where the owner knows everyone's name. Besides that, certain posts and comments addressing issues by the business are more likely to be shared.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Representation Through Images
 
 ![A collage of images](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/collage-images.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Images are a serious tool for getting things done in the Facebook marketing world. In fact, you could consider them to be a bit like billboards on your news feed. However, Facebook has a few guidelines for certain images that businesses post—else, they can get in a bit of trouble.
 
@@ -41,17 +49,14 @@ thumbnail: https://thmb.techidaily.com/9c54005e696cd2ed7b70760eb63ef402583a5567a
 
  This allows a company to get the attention of its market and then let its presence be known without using annoying ad-like images.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## A Call to Action
 
 ![A megaphone with a blue sky background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/megaphone-blue-sky.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Whenever you look at Facebook business pages, you'll see loads of "Like or share" posts. This is known as a "call to action" (CTA) because it requests that users do something. CTAs are not just featured on[different types of landing pages](https://www.makeuseof.com/10-types-of-landing-pages-and-when-to-use-them/) , but right on social media in many little ways.
 
  Typically speaking, traditional calls to action are something along the lines of "Call for more information" or "Shoot us an email" so they can make a connection with you. In this case, the company is connecting with you and using you as a means of free advertising.
@@ -59,27 +64,24 @@ thumbnail: https://thmb.techidaily.com/9c54005e696cd2ed7b70760eb63ef402583a5567a
  Sometimes, as with the case of the images, there may be no call to action. The company may simply share an inspiring status update or a hilarious image, knowing that for some reason some users will feel the need to like or share it. You see, Facebook has already established the call to action for them. It's right there under every post: Share or Like.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Event RSVPs
 
 ![An image of an email with a Tick and Cross either side](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/rsvp-invite.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Signing up to events on RSVPs typically displays on your profile. This can give marketers information on what type of events you go to and in turn what topics you might be into, until the result is a fairly accurate picture of what type of marketing might work on you.
 
  You could confirm attendance at events through private messages rather than RSVPing through Facebook. Knowing[how to make your Facebook private](<http://Update> Summary Introduction - Minor changes Open Wall Popularity - Removed outdated internal link & image. Minor changes to text Representation Through Images - No changes, just removed italics for a few words and removed image A Call To Action - Same as above Facebook Groups - Added section Event RSVPs - Added section Update Estimation: 30 %) in general is helpful when trying to give less away to marketers.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## Facebook Groups
 
 ![The Facebook icon and a vector of a group of people](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-groups.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook Groups is one of the last strong areas of the Facebook platform, with millions of users still engaging daily on them and talking about common interests. Keep in mind that the[useful ways to discover new Facebook Groups](https://www.makeuseof.com/tag/5-awesome-ways-discover-new-facebook-groups/) work for you as they do for marketers, who will absolutely research a niche's group list and join up.
 
@@ -89,23 +91,17 @@ The powerful video editing program for your Windows PC</a>
 
  Joining private groups on Facebook can be a good way of ensuring some safety from marketers, depending on how strict the group is in terms of new membership signups.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Be Conscious of the Information You Provide
 
  Facebook has changed the face of business, advertising, and marketing forever while also changing how we communicate.
 
  While you should be comfortable using social media the way it was intended, just keep in mind that a lot of your publicly available data is of use to a marketer. The value in data from both individuals and collectives does encourage marketers to find it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,4 +110,24 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-reviews.techidaily.com/cities-skylines-explored-the-ultimate-city-creation-experience-for-gamers/"><u>'Cities: Skylines' Explored - The Ultimate City-Creation Experience for Gamers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-pixel-perfection-leading-ps5-compatible-hdmi-21-monitors/"><u>[New] 2024 Approved Pixel Perfection Leading PS5 Compatible HDMI 2.1 Monitors</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-a-step-by-step-method-instagram-collage-wonders/"><u>[New] A Step-by-Step Method Instagram Collage Wonders</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-consumers-best-top-10-handheld-hd-players-for-2024/"><u>[New] Consumer's Best Top 10 Handheld HD Players for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-profile-with-3d-imagery/"><u>Enhancing Your Facebook Profile with 3D Imagery</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-guide-to-french-phonetics-for-beginners/"><u>Essential Guide to French Phonetics for Beginners</u></a></li>
+<li><a href="https://win-answers.techidaily.com/essential-troubleshooting-steps-resolving-last-epoch-errors-in-windowslinux-systems/"><u>Essential Troubleshooting Steps: Resolving 'Last Epoch' Errors in Windows/Linux Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/find-and-explore-fbs-latest-views/"><u>Find and Explore FB's Latest Views</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-track-imei-number-of-infinix-hot-30-5g-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Infinix Hot 30 5G Through Google Earth?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-12-prominent-realme-gt-5-pro-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Realme GT 5 Pro Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-is-giving-creators-more-ways-to-make-money/"><u>Instagram Is Giving Creators More Ways to Make Money</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-to-revise-community-standards-in-fb-groups/"><u>Instructions to Revise Community Standards in FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-distancing-minimizing-online-interactions/"><u>Navigating Social Distancing: Minimizing Online Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-forum-participation-a-guide/"><u>Stealthy Forum Participation: A Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/the-technical-insight-behind-handbrakes-conversion-choice-why-save-in-m4v-instead-of-mp4/"><u>The Technical Insight Behind HandBrake's Conversion Choice: Why Save in M4V Instead of MP4?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-defense-strategy-for-your-social-networking/"><u>The Ultimate Defense Strategy for Your Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-truths-about-facebooks-popularity-claims/"><u>Unveiling Truths About Facebook’s Popularity Claims</u></a></li>
+</ul></div>
 

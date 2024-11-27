@@ -1,7 +1,7 @@
 ---
 title: "The Clash: Amazon Vs. Social Media Group Leaders"
-date: 2024-11-10T17:36:13.134Z
-updated: 2024-11-17T17:43:19.910Z
+date: 2024-11-21T03:31:18.950Z
+updated: 2024-11-26T19:43:40.777Z
 tags:
   - facebook
 categories:
@@ -24,9 +24,17 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Amazon Sues Facebook Group Admins
 
 ![wooden gavel on table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/court.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Amazon has sued the administrators of more than 10,000 Facebook groups for allegedly using their groups to mobilize people to write fake or misleading product reviews in exchange for cash or free products.
 
@@ -38,22 +46,12 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
 
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Why Amazon Filed the Case
 
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
@@ -65,10 +63,7 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -82,10 +77,7 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -109,18 +101,21 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-fire-up-your-dreams-with-these-10-movie-gems/"><u>[New] Fire Up Your Dreams with These 10 Movie Gems</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-from-start-to-finish-complete-xvideostudioinsight/"><u>2024 Approved From Start to Finish Complete XVideoStudioInsight</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-simplifying-video-content-on-vimeo-with-right-plan-selection/"><u>2024 Approved Simplifying Video Content on Vimeo with Right Plan Selection</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/borrow-premium-image-footage-via-top-rated-4-youtube-channels-for-2024/"><u>Borrow Premium Image Footage via Top-Rated 4 YouTube Channels for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/elevating-articles-with-chatgpts-assistance/"><u>Elevating Articles with ChatGPT's Assistance</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-new-facebook-insights-for-smarter-business-ads/"><u>Exploring New Facebook Insights for Smarter Business Ads</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-oneplus-11r-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On OnePlus 11R | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/postponed-enforcement-of-may-15-changes-in-whatsapp-user-policy/"><u>Postponed Enforcement of May 15 Changes in WhatsApp User Policy</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-dominance-trio-that-terrifies-us/"><u>The Dominance Trio That Terrifies Us</u></a></li>
-<li><a href="https://facebook.techidaily.com/tiktoks-user-growth-signals-a-looming-challenge-for-facebook/"><u>TikTok’s User Growth Signals a Looming Challenge for Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/turn-off-everyone-in-messenger-chats/"><u>Turn Off @Everyone in Messenger Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-messengers-ar-capabilities-by-facebook/"><u>Unveiling Messenger's AR Capabilities by Facebook</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-in-2024-master-your-tunes-the-best-iphone-and-android-applications-for-music-arrangement/"><u>Updated In 2024, Master Your Tunes The Best iPhone & Android Applications for Music Arrangement</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-ps4-broadcasting-made-easy-your-obs-guide/"><u>[Updated] 2024 Approved PS4 Broadcasting Made Easy Your OBS Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-top-5-best-action-cameras-for-fishing/"><u>[Updated] Top 5 Best Action Cameras for Fishing</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-superior-hd-visual-capture-and-recorders/"><u>2024 Approved Superior HD Visual Capture and Recorders</u></a></li>
+<li><a href="https://change-location.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/enterprise-of-exciting-games-in-google-play-beta-for-pc/"><u>Enterprise of Exciting Games in Google Play Beta for PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reputation-at-risk-amidst-public-skepticism-of-big-tech/"><u>Facebook's Reputation at Risk Amidst Public Skepticism of Big Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/facial-data-deletion-potential-threat-to-facebooks-user-security/"><u>Facial Data Deletion – Potential Threat to Facebook's User Security?</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-update-forces-a-reevaluation-of-facebooks-business-model/"><u>IOS 14.5 Update Forces a Reevaluation of Facebook's Business Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-for-career-enhancement/"><u>Leveraging Facebook for Career Enhancement</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-electrical-energy-the-best-lipo-for-uavs-for-2024/"><u>Mastering Electrical Energy The Best LiPo for UAVs for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-enters-the-realm-of-instagram-and-facebook-trials/"><u>Meta Drops Enters the Realm of Instagram & Facebook Trials</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/primewave-riders-most-fancied-and-binge-watched-originals-on-twitter-for-2024/"><u>PrimeWave Riders Most Fancied & Binge-Watched Originals on Twitter for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/realtime-av-enthusiasts-community/"><u>RealTime AV Enthusiasts Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryls-blueprint-for-success-in-social-networking/"><u>Sheryl's Blueprint for Success in Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-privacy-policy-for-downloads/"><u>Understanding Facebook's Privacy Policy for Downloads</u></a></li>
+<li><a href="https://win-blog.techidaily.com/valorant-pc-gameplay-fixing-input-lag-issues/"><u>Valorant PC Gameplay: Fixing Input Lag Issues</u></a></li>
 </ul></div>
 

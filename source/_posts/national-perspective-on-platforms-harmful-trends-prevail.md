@@ -1,7 +1,7 @@
 ---
 title: "National Perspective on Platforms: Harmful Trends Prevail"
-date: 2024-11-16T16:43:26.034Z
-updated: 2024-11-17T16:25:30.770Z
+date: 2024-11-24T10:26:46.869Z
+updated: 2024-11-27T12:49:10.805Z
 tags:
   - facebook
 categories:
@@ -24,11 +24,19 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## US Adults Use Social Media Despite Believing It Divides People
 
  A nationwide poll conducted by[NBC News](https://www.nbcnews.com/politics/meet-the-press/poll-nearly-two-thirds-americans-say-social-media-platforms-are-n1266773) shows that most Americans use social media at every day, despite their belief that such platforms (e.g. Facebook, Twitter, TikTok, etc.) do more to divide people than unify them.
 
 ![A bunch of social media apps on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/social-media-apps-on-phone.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  66 percent of adults in the US use social media once a day or more, leaving 33 percent that do not (virtually unchanged from the results of the past two years).
 
@@ -45,10 +53,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does Social Media Affect Your Life?
@@ -62,19 +67,13 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
@@ -100,19 +99,21 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-enhance-image-vibrance-and-contrast-in-photoshop/"><u>[New] 2024 Approved Enhance Image Vibrance and Contrast in Photoshop</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-master-your-hashtags-the-path-to-6-figure-youtube-success/"><u>[Updated] 2024 Approved Master Your Hashtags The Path to 6-Figure Youtube Success</u></a></li>
-<li><a href="https://win-community.techidaily.com/comprehensive-fixes-for-disk-is-full-warning-in-excel-201020132016/"><u>Comprehensive Fixes for 'Disk Is Full' Warning in Excel 2010/2013/2016</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-footprints-trail-of-unknown-device-usage/"><u>Digital Footprints: Trail of Unknown Device Usage</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-responsibility-essential-non-shareables-for-personal-security/"><u>Digital Responsibility: Essential Non-Shareables for Personal Security</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-myth-of-social-media-popularity-hype/"><u>Dissecting the Myth of Social Media Popularity Hype</u></a></li>
-<li><a href="https://facebook.techidaily.com/dive-into-dialogue-facebooks-auditory-content-expansion/"><u>Dive Into Dialogue: Facebook’s Auditory Content Expansion</u></a></li>
-<li><a href="https://facebook.techidaily.com/dive-into-friendship-discover-more-through-polls-and-questions/"><u>Dive Into Friendship: Discover More Through Polls & Questions</u></a></li>
-<li><a href="https://facebook.techidaily.com/dodging-shadowban-traps-in-social-media-networks/"><u>Dodging Shadowban Traps in Social Media Networks</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/easy-steps-for-updating-hardware-drivers-on-windows-11-systems/"><u>Easy Steps for Updating Hardware Drivers on Windows 11 Systems</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-samsung-galaxy-s23plus-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Samsung Galaxy S23+ Phone that is Locked?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-prime-meme-framework-essentials/"><u>In 2024, Prime Meme Framework Essentials</u></a></li>
-<li><a href="https://games-able.techidaily.com/preeminent-benefits-five-ways-to-upgrade-your-gameplay/"><u>Preeminent Benefits: Five Ways to Upgrade Your Gameplay</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-ultimate-solution-to-missing-d3dx940dll-files-a-comprehensive-guide/"><u>The Ultimate Solution to Missing d3dx9_40.dll Files: A Comprehensive Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-navigating-melody-rights-on-instagram-a-full-breakdown/"><u>[New] 2024 Approved Navigating Melody Rights on Instagram A Full Breakdown</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-enhancing-content-with-external-weblinks-in-insta/"><u>[New] In 2024, Enhancing Content with External Weblinks in Insta</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-streamlabs-vs-obs-assessing-the-leading-livestream-tools/"><u>[Updated] In 2024, Streamlabs Vs. OBS Assessing the Leading Livestream Tools</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-professional-photogridding-services-to-polish-your-art/"><u>2024 Approved Professional Photogridding Services to Polish Your Art</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlock-vivid-visuals-windows-hdplus-guide-to-hdr-mastery/"><u>2024 Approved Unlock Vivid Visuals Windows HD+ Guide to HDR Mastery</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/a-comprehensive-guide-to-instagram-edits-for-professionals-for-2024/"><u>A Comprehensive Guide to Instagram Edits for Professionals for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-essence-of-facebooks-operational-blueprint/"><u>Exploring the Essence of Facebook's Operational Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/identity-imitation-tracing-virtual-voyagers/"><u>Identity Imitation: Tracing Virtual Voyagers</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebooks-tools-for-seamless-team-project-execution/"><u>Leveraging Facebook's Tools for Seamless Team Project Execution</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-icons-understanding-fb-symbols/"><u>Mastering Social Media Icons - Understanding FB Symbols</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/optimize-your-connection-with-intel-network-drivers-compatible-with-win-11107-download-now/"><u>Optimize Your Connection with Intel Network Drivers – Compatible with Win 11/10/7 [Download Now]</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/secure-your-precious-snaps-again-with-leading-iphone-photo-restoration-applications/"><u>Secure Your Precious Snaps Again with Leading iPhone Photo Restoration Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-virtual-self-in-the-facebook-world/"><u>Tailoring Your Virtual Self in the Facebook World</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-genesis-of-facebooks-policy-governance-a-center-reveal/"><u>The Genesis of Facebook’s Policy Governance: A Center Reveal</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-metas-endorsed-content-on-brand-value/"><u>The Impact of Meta's Endorsed Content on Brand Value</u></a></li>
 </ul></div>
 

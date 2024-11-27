@@ -1,7 +1,7 @@
 ---
 title: "Recognize the Risks: Avoid These 14 Standard Facebook Scams"
-date: 2024-09-01T03:41:40.303Z
-updated: 2024-09-02T03:41:40.303Z
+date: 2024-11-19T20:21:17.642Z
+updated: 2024-11-27T05:06:42.195Z
 tags:
   - facebook
 categories:
@@ -27,9 +27,6 @@ thumbnail: https://thmb.techidaily.com/3b273f3dcd58de6bdeec53afcf9be971cffb1887a
 
  Why they're doing it? To make you trust them, so they can send you links or content that contains viruses.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Facebook Marketplace Scams
 
  With so many of us utilizing Facebook Marketplace for our sales and purchases, there are scams that are affecting the way we trade and buy things online.
@@ -39,13 +36,18 @@ thumbnail: https://thmb.techidaily.com/3b273f3dcd58de6bdeec53afcf9be971cffb1887a
  Make sure you learn[how to avoid common Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) so that you can transact safely on the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Scams That Claim to Have Videos of You
 
  There's nothing worse than believing your privacy has been violated. If a friend is sending you a link claiming they've found a video of you doing something shocking or inappropriate, there is a high chance that your friend's Facebook account got hacked. What the scammers want you to do is to click on the link and view the message so that they can send you malicious software to meddle with your devices.
 
  These days there are a[few cheap ways to protect yourself from hackers if you are in public](https://www.makeuseof.com/cheap-ways-to-protect-yourself-in-public/) , but it's important to always be alert to anything you receive, from anyone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Facebook Job Advertisement Scams
 
@@ -59,13 +61,6 @@ thumbnail: https://thmb.techidaily.com/3b273f3dcd58de6bdeec53afcf9be971cffb1887a
 
  While businesses use Facebook to promote their products and services, scammy businesses use it just as much to sell fake brands and counterfeit goods.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ## 7\. Charity Scams
 
  This scam is usually one that you would see when something terrible happens in the world and nasty scammers use the opportunity of the disaster to get people to donate. Before you dish out your credit card details for a good cause, take a look online at reputable charities, or check[Charity Navigator](https://www.charitynavigator.org/) or[CharityWatch](https://www.charitywatch.org/) for the most recent charity scams out there.
@@ -79,15 +74,17 @@ No advertising on the website.
 ![housing scam screenshot from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/housing-scam.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 9\. Lottery Scams on Facebook
 
  If you've seen advertisements from lottery or online giveaways, beware. If they're claiming that you are among the winners, they are likely one step away from asking you for some money so that you can claim your prize. They will ask you for personal information like your bank account and address.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10\. Facebook Phishing Scams
 
  This is the type of scam where you are sent a link that you have to click that encourages you to go to a Facebook site to update something. Except, it doesn't lead you to Facebook at all. It's leading you to a malicious website where you're asked to validate your login information.
@@ -104,6 +101,10 @@ No advertising on the website.
 
  They might ask you to deposit something into their bank account, pretend that they need the money to come and see you, or lie about being in some sort of crisis. Getting catfished is something a lot of people experience and there are[some things you can do to protect yourself from getting catfished](https://www.makeuseof.com/how-to-protect-yourself-from-catfishing/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 12\. Loan Lending Scams
 
  If you are being offered loans through Facebook (either via message or via advertisements claiming low interest rates), you should be careful. Facebook isn't a platform where you can look for low-interest loans, so if someone is offering you money, it's likely because they want to take your money.
@@ -115,11 +116,9 @@ No advertising on the website.
 ![Facebook app scam screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(55).jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
+
 ## 14\. Gift Voucher Scams
 
  We are all in for a bargain, so by the time the holidays come along, it's no wonder that you might see some scams out there claiming to save you money by giving you discounted vouchers. All these scams want is your details so they can send you spam or malicious software.
@@ -128,14 +127,11 @@ No advertising on the website.
 
  Even the most tech-savvy, on-guard person can fall victim to one of these scams. They're currently on Facebook, but that doesn't mean they aren't happening elsewhere. The key to avoiding such scams is to stay alert, refrain from being impulsive, and double-check unknown links.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,4 +140,19 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-masterful-webcam-hacks-for-creative-sessions/"><u>[New] In 2024, Masterful Webcam Hacks for Creative Sessions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-thorough-evaluation-hero4-black-innovations/"><u>[New] In 2024, Thorough Evaluation Hero4 Black Innovations</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/abbyy-enhances-alliance-networks-for-advanced-public-sector-transformation/"><u>ABBYY Enhances Alliance Networks for Advanced Public Sector Transformation</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/disable-screen-lock-on-xiaomi-redmi-note-12t-pro-by-drfone-android-unlock-android-unlock/"><u>Disable screen lock on Xiaomi Redmi Note 12T Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-block-people-or-dates-in-facebooks-on-this-day-memories/"><u>How to Block People or Dates in Facebook's On This Day Memories</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-bloodbornes-haunting-universe/"><u>In-Depth Analysis of Bloodborne's Haunting Universe</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-review-of-the-bandn-nook-glowlight-4-tablet/"><u>In-Depth Review of the B&N Nook GlowLight 4 Tablet</u></a></li>
+<li><a href="https://facebook.techidaily.com/mute-the-mainstream-political-madness/"><u>Mute the Mainstream Political Madness</u></a></li>
+<li><a href="https://facebook.techidaily.com/purging-clutter-a-facebook-transformation/"><u>Purging Clutter: A Facebook Transformation</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/reactivating-the-automatic-spell-corrector-in-microsoft-outlook-easy-fixes/"><u>Reactivating the Automatic Spell Corrector in Microsoft Outlook: Easy Fixes</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/unleash-your-creativity-6-innovative-adobe-premiere-pro-techniques/"><u>Unleash Your Creativity 6 Innovative Adobe Premiere Pro Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-caused-a-social-media-blackout/"><u>What Caused a Social Media Blackout?</u></a></li>
+</ul></div>
 

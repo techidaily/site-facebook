@@ -1,7 +1,7 @@
 ---
 title: "The Art of Archive: Saving Your Fb Visual Stories"
-date: 2024-11-15T16:44:15.084Z
-updated: 2024-11-17T16:53:14.755Z
+date: 2024-11-21T19:18:30.701Z
+updated: 2024-11-27T09:40:43.544Z
 tags:
   - facebook
 categories:
@@ -56,6 +56,10 @@ Follow these steps to download your Facebook album:
 
  The downloaded album comes as a ZIP file. You'll need to extract this ZIP file to access the pictures.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Download All of Your Facebook Photos
 
  There is also a simple method to download all photos from Facebook that you have ever uploaded. You will even get them in the right sub-folders organized by album. But the names of the files can be a little strange.
@@ -68,36 +72,23 @@ Follow these steps to download your Facebook album:
 ![Your information page on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-your-information-page.jpg)
 4. Click**Request a download** from the pop-up.  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Download your information pop-up on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/download-your-information-facebook.jpg)
 5. Select your Facebook profile from the**Select accounts and profiles** pop-up (if it hasn't been selected already) and click**Next** .
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. Select whether you want to download all or just specific information on the next page. Since we want to download Facebook photos only, click**Select types of information** .  
 ![Selecting information to download on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-information-download-option.jpg)
 2. On the follow-up page, select**Posts** under**Your activity across Facebook** and click**Next** .  
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Selecting information to download on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/choosing-information-to-download-facebook.jpg)
 3. To download all your Facebook photos click**Date range** and select**All time** then hit**Save** to persist the changes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 4. Next, choose the quality of the image files by selecting**Media quality** . We recommend changing**Medium** to**High** if you want full-resolution copies. The setting you choose will determine the size of the file. If you have a lot of pictures, this will increase the file size and the time Facebook takes to get it ready. Once done, select**Save** .  
 ![Facebook information download page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-photo-download-settings-page.jpg)
@@ -115,22 +106,12 @@ Follow these steps to download your Facebook album:
 
  However, like most third-party downloading apps (including our previous favorite, VNHero Studio's Download Videos and Photos: Facebook and Instagram), the app is no longer available on Google's Play Store. We, therefore, recommend using the built-in download feature to save your Facebook photos or those of your friends offline.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Save Facebook Videos to Your Computer or Phone
 
 ![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you[download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
@@ -149,6 +130,10 @@ Here's how to use it:
 **Download:** Video Downloader Plus for[Chrome](https://chrome.google.com/webstore/detail/video-downloader-plus/njgehaondchbmjmajphnhlojfnbfokng) (Free)
 
  There are lots of other sites that work the same as FDown. Now that you can save Facebook videos, you might want to go back and search for old videos you liked.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Other Facebook Download Tools
 
@@ -171,22 +156,24 @@ Here's how to use it:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-bypassing-common-drone-mistakes-with-this-essential-checklist-for-2024/"><u>[Updated] Bypassing Common Drone Mistakes with This Essential Checklist for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-in-depth-analysis-the-vida-video-editor-experience/"><u>[Updated] In 2024, In-Depth Analysis The Vida Video Editor Experience</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-quick-guide-integrating-snap-camera-with-teams/"><u>[Updated] In 2024, Quick Guide Integrating Snap Camera with Teams</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-mobile-mastery-best-downloading-apps-for-android-and-ios-users/"><u>[Updated] Mobile Mastery Best Downloading Apps for Android & iOS Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/expand-your-chat-circle-with-ease-via-messenger/"><u>Expand Your Chat Circle with Ease via Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-messenger-secure-time-frame-for-implementing-e2ee/"><u>FB Messenger Secure: Time Frame for Implementing E2EE</u></a></li>
-<li><a href="https://article-posts.techidaily.com/flipping-video-content-easily-in-android-applications/"><u>Flipping Video Content Easily in Android Applications</u></a></li>
-<li><a href="https://win-data.techidaily.com/1728492382715-google/"><u>Google ドライブで削除されたファイルをゴミ箱から復元する方法</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/make-your-travels-truly-transformative-tools/"><u>Make Your Travels Truly Transformative Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/moulding-an-individualized-social-graphic/"><u>Moulding an Individualized Social Graphic</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-case-for-social-detox-a-list-of-7-advantages/"><u>The Case for Social Detox: A List of 7 Advantages</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essential-dictionary-of-facebook-symbolism/"><u>The Essential Dictionary of Facebook Symbolism</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-15-apps-to-hack-wifi-password-on-itel-a60s-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Itel A60s</u></a></li>
-<li><a href="https://facebook.techidaily.com/unboxing-facebooks-new-addition-ray-ban-stories-explained/"><u>Unboxing Facebook's New Addition: Ray-Ban Stories Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-facebook-marketing-potential-the-case-of-business-pages-over-individuals/"><u>Unlock Facebook Marketing Potential: The Case of Business Pages Over Individuals</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-social-media-is-outpacing-online-forum-trends/"><u>Why Social Media Is Outpacing Online Forum Trends</u></a></li>
-<li><a href="https://windows11.techidaily.com/win11s-0x8007045d-an-effective-resolution-blueprint/"><u>Win11's 0X8007045D: An Effective Resolution Blueprint</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-holistic-editing-experience-panoramashift-evolution/"><u>[New] 2024 Approved Holistic Editing Experience PanoramaShift Evolution</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-optimal-owing-uavs-heavy-load-drone-rankings/"><u>[New] Optimal Owing UAVs Heavy Load Drone Rankings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-curated-insta-photos-in-slideshow/"><u>[Updated] 2024 Approved Curated Insta Photos in Slideshow</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/13-herramientas-de-presentacion-innovadoras-como-alternativa-a-prezi-para-2024/"><u>13 Herramientas De Presentación Innovadoras Como Alternativa a Prezi Para 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/command-line-for-quake-via-windows-terminal/"><u>Command Line for Quake via Windows Terminal</u></a></li>
+<li><a href="https://extra-information.techidaily.com/effortless-access-to-public-broadcast-c-span-videos/"><u>Effortless Access to Public Broadcast C-Span Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-access-where-you-cant-join-facebook/"><u>Exclusive Access: Where You Can't Join Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-what-facebooks-updated-page-labels-indicate/"><u>Exploring What Facebook's Updated Page Labels Indicate</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-your-facebook-ban-list/"><u>Exploring Your Facebook Ban List</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-the-issue-when-windows-cannot-execute-protection-command/"><u>Fixing The Issue When Windows Cannot Execute Protection Command</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-protected-social-network-video-retrieval/"><u>Guide to Protected Social Network Video Retrieval</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-11-pro-max-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 11 Pro Max To Other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-12-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From Apple iPhone 12 Online</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unleashing-the-iphones-full-potential-with-10-composition-principles/"><u>In 2024, Unleashing the iPhone's Full Potential with 10 Composition Principles</u></a></li>
+<li><a href="https://facebook.techidaily.com/journeying-into-jargon-free-messaging-a-newbies-primer/"><u>Journeying Into Jargon-Free Messaging: A Newbie's Primer</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-social-media-data-unravelled/"><u>Life Without Social Media: Data Unravelled</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeling-back-facebooks-hidden-user-drop/"><u>Peeling Back Facebook's Hidden User Drop</u></a></li>
+<li><a href="https://facebook.techidaily.com/rapid-reactions-faster-android-software-swaps/"><u>Rapid Reactions: Faster Android Software Swaps</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-stories-googles-pivotal-news-highlights/"><u>Top Stories: Google's Pivotal News Highlights</u></a></li>
 </ul></div>
 

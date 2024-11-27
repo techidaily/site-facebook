@@ -1,7 +1,7 @@
 ---
 title: "Rediscover Humanity: Six Good Arguments for Losing Facebook"
-date: 2024-09-01T03:43:34.914Z
-updated: 2024-09-02T03:43:34.914Z
+date: 2024-11-25T17:31:57.727Z
+updated: 2024-11-27T08:37:02.939Z
 tags:
   - facebook
 categories:
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
 
 ![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way[Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
 
  Let's try and be fair for a moment. Facebook provides its services for free, and in return, we accept we're handing over data to one of the largest advertising firms in the world.
@@ -32,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
  But Facebook also tracks you when you're not using the site. Worse still, you don't even need a Facebook account—the company will still track you. And it has been behind more than one data leak with severe consequences.
 
  It's more than likely that there isn't a single person who hasn't heard of the Facebook–Cambridge Analytica data scandal that occurred in 2018 and led to an utter privacy mess. But sadly, that's not the only data leak scandal. Several have followed that one,[along with many investigations](https://www.makeuseof.com/ireland-launches-investigation-facebook-massive-data-leak/) and fines, yet it doesn't appear that Facebook's users can feel safe.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Human Experimentation
 
@@ -46,8 +54,9 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
 Bottom line: Facebook sees you as a lab rat.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Fake News
 
 ![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
@@ -62,9 +71,6 @@ Bottom line: Facebook sees you as a lab rat.
 
  If Facebook is your primary source of news, it's time to move on.[You should look elsewhere for trustworthy news delivery](https://www.makeuseof.com/tag/trust-news-sites/) .
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Questionable Privacy Practices
 
  Facebook has obfuscated and complicated its privacy settings for as long as anyone can remember.
@@ -77,29 +83,24 @@ Bottom line: Facebook sees you as a lab rat.
 
  Facebook wants you to overlook settings, so it can use your data. If you want[a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Facebook Has Forgotten Its Roots
 
 ![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  When Facebook first burst onto the scene, it was revolutionary. Sure, sites like MySpace had enjoyed some previous success, but Facebook was the first network that was truly fit for widespread use.
 
  And we loved it. Our newsfeeds were full of photos and updates from close friends.
 
  But as time has passed, the newsfeed became more and more diluted.[Excessively large friend networks](https://www.makeuseof.com/tag/5-reasons-start-deleting-facebook-friends/) and a deluge of posts from advertisers, pages you Liked years ago, and "news" organizations meant the network lost its original charm.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. What Even Is Facebook Anymore?
 
 ![people looking at laptop confused](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/people-looking-at-laptop-confused.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
  It's almost a given that social media platforms nowadays copy each other's features, so it's pretty much expected to see some overlap. But each still managed to have one thing it's known for above all others. So, for Instagram, it's image uploads, Twitter is a status-sharing platform, TikTok is for video uploads, and so on. But what about Facebook?
 
  Compared to all the other social media spaces, Facebook seems like the biggest mess. It allows you to go live, share videos, pictures, and statuses—all things you can do on other platforms and, dare we say, better. So what's the point of Facebook?
@@ -109,22 +110,20 @@ Bottom line: Facebook sees you as a lab rat.
  It's also a place to overshare personal news. Sometimes they're nice ones like engagements and weddings, but other times they're related to drama that should have been handled face to face. So why spend time on a platform that's a ticking time bomb bound to result in a facepalm?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## It's Time to Stop Using Facebook
 
  What Facebook once was is no more. It may have started as a social media platform pioneer, leading at the front, but it now seems to lag behind. Worse yet, the problem isn't only that it's become a less enjoyable version of itself for users.
 
  Facebook actively threatens your data. There have been so many data leaks and privacy breaches over the years—would you even find it surprising if another one follows? That shouldn't be the case. Spare yourself the headaches of holding onto Facebook, and move on.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,4 +132,19 @@ Bottom line: Facebook sees you as a lab rat.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-creating-impressive-video-tracks-with-a-newbie-mac-user/"><u>[New] 2024 Approved Creating Impressive Video Tracks with a Newbie Mac User</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-exploring-imovies-default-crop-settings/"><u>[New] 2024 Approved Exploring iMovie's Default Crop Settings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-free-tools-for-effortless-video-image-retrieval/"><u>[New] 2024 Approved Free Tools for Effortless Video Image Retrieval</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-top-choice-for-capturing-quality-content-on-youtube/"><u>[New] 2024 Approved Top Choice for Capturing Quality Content on YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-tactics-to-determine-igtv-viewership-success/"><u>[Updated] Tactics to Determine IGTV Viewership Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-phones-data-collection-designed-for-demand-prediction/"><u>Is Your Phone's Data Collection Designed for Demand Prediction?</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-insights-into-facebooks-visibility-controls/"><u>Key Insights Into Facebook's Visibility Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-privacy-settings-for-fb-friends/"><u>Personalizing Privacy Settings for FB Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/prioritizing-offline-over-onscreen-less-time-more-life/"><u>Prioritizing Offline Over Onscreen: Less Time, More Life</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/reviving-flaccid-gpu-fan-dynamics/"><u>Reviving Flaccid GPU Fan Dynamics</u></a></li>
+<li><a href="https://article-files.techidaily.com/the-role-of-swot-analysis-in-shaping-a-robust-business-model-for-2024/"><u>The Role of SWOT Analysis in Shaping a Robust Business Model for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-4-factors-contributing-to-social-media-drop-off-phenomenon/"><u>Top 4 Factors Contributing to Social Media Drop-Off Phenomenon</u></a></li>
+</ul></div>
 

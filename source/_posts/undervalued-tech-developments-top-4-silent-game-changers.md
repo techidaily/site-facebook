@@ -1,7 +1,7 @@
 ---
 title: Undervalued Tech Developments - Top 4 Silent Game Changers
-date: 2024-11-13T17:59:34.137Z
-updated: 2024-11-17T16:46:22.887Z
+date: 2024-11-25T00:56:16.861Z
+updated: 2024-11-26T20:52:18.695Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## GameStop and the Birth of Meme Stocks
 
 ![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
@@ -40,9 +44,17 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The $2.9 Million Tweet
 
 ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
@@ -54,22 +66,12 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to[professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Welcome to the Metaverse
 
 ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
@@ -81,13 +83,6 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
  Related:[What Is the Metaverse?](https://www.makeuseof.com/what-is-the-metaverse/)
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Apple and Facebook's Privacy War
 
@@ -104,10 +99,7 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Tech News Will We See in 2022?
@@ -131,20 +123,17 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-expert-strategies-for-exceptional-live-thumbnail-appeal/"><u>[New] In 2024, Expert Strategies for Exceptional Live Thumbnail Appeal</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-effortless-igtv-video-downloads-ios-and-android-guide-for-2024/"><u>[Updated] Effortless IGTV Video Downloads IOS & Android Guide for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-can-you-broadcast-videos-without-infringing-laws-specifically-fb/"><u>[Updated] In 2024, Can You Broadcast Videos Without Infringing Laws, Specifically FB?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-oppo-reno-10-pro-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Oppo Reno 10 Pro 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/artists-gear-up-instagram-rolls-out-more-money-making-methods/"><u>Artists, Gear Up! Instagram Rolls Out More Money-Making Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-consequences-before-you-unfollow-everyone/"><u>Assessing Consequences Before You Unfollow Everyone</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-likes-and-shares-a-new-perspective-on-fb-numbers/"><u>Beyond Likes and Shares - A New Perspective on FB Numbers</u></a></li>
-<li><a href="https://facebook.techidaily.com/bypassing-barriers-to-facebooks-sealed-content/"><u>Bypassing Barriers to Facebook's Sealed Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/comprehensive-tips-to-enhance-security-with-2fa-in-popular-e-mail-services/"><u>Comprehensive Tips to Enhance Security with 2FA in Popular E-Mail Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/cryptos-gaining-ground-expect-more-platform-ads/"><u>Cryptos Gaining Ground: Expect More Platform Ads</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/discover-the-elite-online-stores-where-gifts-meet-individuality/"><u>Discover the Elite Online Stores Where Gifts Meet Individuality</u></a></li>
-<li><a href="https://techtrends.techidaily.com/experiencing-issues-with-nintendo-switch-online-service-outage-or-connection-problem/"><u>Experiencing Issues with Nintendo Switch Online - Service Outage or Connection Problem?</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-make-your-own-cartoons-10-essential-animation-apps-for-mobile/"><u>New 2024 Approved Make Your Own Cartoons 10 Essential Animation Apps for Mobile</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-a-nonfunctional-headphone-jack-on-your-laptop-a-comprehensive-guide/"><u>Troubleshooting a Nonfunctional Headphone Jack on Your Laptop: A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719145204607-unlocking-social-sharing-transferring-facebook-storages-easily/"><u>Unlocking Social Sharing: Transferring Facebook Storages Easily.</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-asus-rog-phone-8-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Asus ROG Phone 8 Activity | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-interaction-use-polls-to-peek-into-friends-lives/"><u>Enhance Interaction: Use Polls to Peek Into Friends' Lives</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-get-laughter-in-minutes-install-and-revel-in-ifunnys-meme-world/"><u>In 2024, Get Laughter in Minutes Install and Revel in iFunny's Meme World</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-recovery-techniques-for-locked-out-facebook-users/"><u>Key Recovery Techniques for Locked-Out Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-blueprint-to-bar-private-images-online/"><u>Meta's Blueprint to Bar Private Images Online</u></a></li>
+<li><a href="https://win-able.techidaily.com/outriders-performance-boost-eliminate-lag-issues-with-these-proven-tips/"><u>Outriders Performance Boost: Eliminate Lag Issues with These Proven Tips</u></a></li>
+<li><a href="https://games-able.techidaily.com/ps3s-secrets-no-microphones-allowed-here/"><u>Ps3's Secrets: No Microphones Allowed Here!</u></a></li>
+<li><a href="https://facebook.techidaily.com/seize-profit-with-these-5-online-platform-strategies/"><u>Seize Profit with These 5 Online Platform Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryl-sandberg-and-social-media-dynamics/"><u>Sheryl Sandberg and Social Media Dynamics</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/top-12-clicker-games-on-pc/"><u>Top 12 Clicker Games on PC</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unleashing-creativity-in-drone-video-post-production/"><u>Unleashing Creativity in Drone Video Post-Production</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unlocking-kinemasters-fullscreen-magic/"><u>Unlocking KineMaster's Fullscreen Magic</u></a></li>
 </ul></div>
 

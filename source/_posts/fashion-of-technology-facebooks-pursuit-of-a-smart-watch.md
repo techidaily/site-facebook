@@ -1,7 +1,7 @@
 ---
 title: "Fashion of Technology: Facebook’s Pursuit of a Smart Watch"
-date: 2024-11-13T16:22:05.564Z
-updated: 2024-11-17T16:07:38.931Z
+date: 2024-11-20T10:08:38.206Z
+updated: 2024-11-27T14:03:36.432Z
 tags:
   - facebook
 categories:
@@ -24,22 +24,23 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Notable Features of the Rumored Facebook Smartwatch
 
 ![smartwatch-and-hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-and-hand.jpg)
 
  Though Facebook is yet to announce the features of its smartwatch,[news reports](https://www.theverge.com/2021/6/9/22526266/facebook-smartwatch-two-cameras-heart-rate-monitor) have already suggested how it could look. The smartwatch will have a steel frame and be powered by the open-source Android operating system. The smartwatch will be available in black, white, and gold colors.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### A Dual-Camera System
 
  The Facebook smartwatch will likely have two cameras. The front camera allows users to make video calls. While the other camera, on the back, can be detached from the steel frame and used for capturing images and videos. The rear 1080p camera with autofocus allows you to capture high-quality images.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Integration with Facebook Apps
 
@@ -48,42 +49,27 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
  Since it's intended as a communication device, you'll also be able to apps like Messenger and WhatsApp.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### LTE Connectivity
 
  Facebook wants its watch to work without the need of pairing it with any smartphone. To that end, Facebook is partnering up with US-based wireless service providers to provide LTE connectivity to its new smartwatch. That partnership means that you’d be able to buy the watch from a wireless carrier's store.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fitness Tracking
 
 ![smartwatch-fitness-tracking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-fitness-tracking.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Facebook aims to add fitness tracking features](https://www.theinformation.com/articles/facebook-plans-smartwatch-with-focus-on-messaging-health) to its watch in a bid to attract fitness enthusiasts. This means that it’ll have a heart rate monitor and other health features.
 
  Rumors also suggest that the watch allows integration with apps and devices from fitness companies like Peloton. As the device will have LTE connectivity, you would be able to leave your phone behind when working out or jogging.
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Price, Launch Date, and News
@@ -127,20 +113,17 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-device-based-access-commence-google-meet-chat/"><u>[New] 2024 Approved Device-Based Access Commence Google Meet Chat</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-expert-review-best-15-cameras-in-4k-resolution-for-2024/"><u>[New] Expert Review Best 15 Cameras in 4K Resolution for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-melody-filled-visuals-the-fusion-project/"><u>[Updated] In 2024, Melody-Filled Visuals The Fusion Project</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-tailoring-your-playstation-experience-with-sounds/"><u>[Updated] Tailoring Your PlayStation Experience with Sounds</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-expedited-removal-strategies-for-ssgnature-bg/"><u>2024 Approved Expedited Removal Strategies for Ssgnature BG</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/5-solutions-for-asus-rog-phone-7-ultimate-unlock-without-password-by-drfone-android/"><u>5 Solutions For Asus ROG Phone 7 Ultimate Unlock Without Password</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-why-telegram-thrived-during-facebook-outage/"><u>Deciphering Why Telegram Thrived During Facebook Outage</u></a></li>
-<li><a href="https://facebook.techidaily.com/decision-time-for-users-opt-in-to-meta-ais-social-strategy/"><u>Decision Time for Users: Opt-In to Meta AI's Social Strategy?</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-complexities-of-fb-picture-permissions/"><u>Decoding the Complexities of FB Picture Permissions</u></a></li>
-<li><a href="https://facebook.techidaily.com/disabling-default-mass-tagging-service-fb/"><u>Disabling Default Mass-Tagging Service: FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/disconnecting-delightfully-fb-detox-strategies/"><u>Disconnecting Delightfully: FB Detox Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/dual-platform-game-on-fbtwitter-and-wnb-season-2023/"><u>Dual Platform Game On: FB/Twitter and WNB Season 2023</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-use-of-social-medias-memory-hub-facebook/"><u>Efficient Use of Social Media's Memory Hub - Facebook</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-zte-nubia-flip-5g-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your ZTE Nubia Flip 5G to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mastering-data-retrieval-from-office-docs-images-text-and-file-extraction-techniques/"><u>Mastering Data Retrieval From Office Docs: Images, Text, & File Extraction Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-comprehensive-tutorial-for-shifting-facial-gender-representation-online-for-2024/"><u>[New] Comprehensive Tutorial for Shifting Facial Gender Representation Online for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-10-must-watch-global-journey-vids-on-youtube/"><u>[New] Top 10 Must-Watch Global Journey Vids on YouTube</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/10-exceptional-cost-saving-passport-portrait-maker-applications/"><u>10 Exceptional, Cost-Saving Passport Portrait Maker Applications</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-samsung-galaxy-f15-5g-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-on-iphone-12-pro-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock On iPhone 12 Pro You Should Try Out</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-two-factor-authentication-whatsapp-code-delivery/"><u>Instagram's Two-Factor Authentication: WhatsApp Code Delivery</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-facial-recognitionhow-does-it-impact-facebook/"><u>Meta Drops Facial Recognition—How Does It Impact Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-policies-on-expressing-displeasure/"><u>Platform Policies on Expressing Displeasure</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/revolutionary-update-by-asrock-allows-locked-comet-lake-s-cpus-to-overclock-on-non-z-motherboards/"><u>Revolutionary Update by ASRock Allows Locked Comet Lake-S CPUs to Overclock on Non-Z Motherboards</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-budget-buyers-guide-to-the-lg-um7300-49-inch-4k-smart-tv/"><u>The Budget Buyer's Guide to the LG UM7300 49-Inch 4K Smart TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-future-3-metaverse-risks-in-social-media/"><u>Unraveling the Future: 3 Metaverse Risks in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-in-store-at-your-fingertips-with-facebook-assistance/"><u>What Is in Store at Your Fingertips with Facebook Assistance?</u></a></li>
 </ul></div>
 

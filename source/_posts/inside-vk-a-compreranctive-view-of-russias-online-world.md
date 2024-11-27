@@ -1,7 +1,7 @@
 ---
 title: "Inside VK: A Compreranctive View of Russia's Online World"
-date: 2024-09-01T03:48:08.439Z
-updated: 2024-09-02T03:48:08.439Z
+date: 2024-11-26T12:08:38.809Z
+updated: 2024-11-26T21:57:32.366Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/f5381cefae4db3e611ab844891c6d979a90ee4ce4
 
  There is very little to read about VK in the western world, making the site something of a mystery to those outside of the loop. If you've never heard of VK before, you're about to get an earful.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. VK Is the Most Popular Social Media Website in Russia
 
 ![VK is the most popular social media site in Russia.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit:[Statista](https://www.statista.com/statistics/284447/russia-social-network-penetration/)
 
@@ -43,9 +51,6 @@ Some potential explanations for this difference include:
 * The site's tendency to encourage users to expand their social circles, as opposed to remaining only in the ones that they are already a part of.
 * The popularity of the social media site Odnoklassniki with older Russian adults.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## 3\. VK Offers a Lot In Terms of Profile Creation
 
  Facebook as a company tends to encourage users to populate their timelines with the latest on their lives, as opposed to creating an extremely specific profile of general information about themselves.
@@ -55,17 +60,15 @@ Some potential explanations for this difference include:
 ![Creating a profile on VK.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk-social-media.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  To name one example, the sign-up process asks that you add your education to your profile. I expected to drop my university's name in and move on.
 
  This website actually continued to show me a list of the individual schools and colleges within my university; some of these were departments that even I had never heard of. After that, it asked me my major and even went on to specify which emphasis I chose for my degree.
 
  This level of detail carries over to nearly every part of your profile. By collecting data in this way, VK can unite me not only with others in my graduating class currently living in my city, but with those who participated in my program of study specifically.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. VK Has a Complicated Political History
 
  Just like Facebook, VK was created by a young person, fresh out of college. Pavel Durov enjoyed a lot of success before running into trouble with the law in 2012.
@@ -75,8 +78,9 @@ Some potential explanations for this difference include:
  Needless to say, things got complicated. Durov was eventually coerced into forfeiting his stake in the company in 2014\. Everything went to Alisher Usmanov, the richest man in Russia at the time.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Russian Users Believe VK is Better than Facebook
 
  Call it a healthy sense of nationalism or simply a matter of convenience, most Russians simply prefer VK to Facebook. Sorry, Mark Zuckerberg.
@@ -85,15 +89,16 @@ Some potential explanations for this difference include:
 
  Related:[The Top 20 Social Media Apps and Sites in 202](https://www.makeuseof.com/tag/top-social-media-apps-sites/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. VK Has Suffered Major Security Breaches
 
  In June 2016, VK actually experienced a significant[security breach](https://www.makeuseof.com/historic-data-breaches/) , exposing the data of over 171 million users.
 
  Included in the spoils: names, email addresses, passwords, and other sensitive contact information, all found being sold on the dark web shortly after. VK isn't the first, nor the last. Still, it makes you think. We should always be careful about what we share online, even on a website as huge as this one.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. The Most Common Password on VK is "123456"
 
  One insight gleaned from the breach described above is that[the most common password on VK is "123456"](https://www.makeuseof.com/tag/7-password-mistakes-will-likely-get-hacked/) . If you're guilty of that, change your password now.
@@ -102,9 +107,6 @@ Some potential explanations for this difference include:
 
  Other popular passwords included "qwerty," "1111111," and "123321".
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. VK's Website Design Rarely Changes
 
 ![The VK sign-up page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vkontakte.png)
@@ -125,14 +127,11 @@ Some potential explanations for this difference include:
 
  If you've got friends in Russia or Ukraine, this site is a great way to connect. Even if you don't, the brand's legacy offers westerners an uncanny glimpse through the looking glass. We could have sworn that we were staring at a circa 2014 Facebook splash page immediately after logging on.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,4 +140,26 @@ Some potential explanations for this difference include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/updated-photo-mastery-top-8-web-based-creation-suite/"><u>[Updated] Photo Mastery Top 8 Web-Based Creation Suite</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-thriving-on-the-grid-maximizing-your-telegram-impact/"><u>[Updated] Thriving on the Grid Maximizing Your Telegram Impact</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/1724312854885-abbyy/"><u>収支改善のためのアルゴリズムによる事業展開 - ABBYYが紹介する革新的なチェックリスト</u></a></li>
+<li><a href="https://facebook.techidaily.com/filter-bubble-act-explained-for-everyday-users/"><u>Filter Bubble Act Explained for Everyday Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/guardians-of-the-digital-world-where-are-they/"><u>Guardians of the Digital World, Where Are They?</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-honor-magic-6-lite-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Honor Magic 6 Lite Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-realme-narzo-60x-5g-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Realme Narzo 60x 5G using Video Repair Utility on Windows? </u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-whatsapp-messaging-a-comprehensive-guide-for-mac-users/"><u>Mastering WhatsApp Messaging: A Comprehensive Guide for Mac Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-facebooks-home-smart-hub/"><u>Maximizing Facebook's Home Smart Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/nearly-all-iphones-dodging-app-data-collection/"><u>Nearly All iPhones Dodging App Data Collection</u></a></li>
+<li><a href="https://article-posts.techidaily.com/optimal-fps-in-low-speed-clips-for-2024/"><u>Optimal FPS in Low-Speed Clips for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-an-invalidated-facebook-login-attempt/"><u>Recovering an Invalidated Facebook Login Attempt</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-login-simplified-instagram-to-whatsapp-2fa-codes/"><u>Secure Login Simplified: Instagram to WhatsApp 2FA Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-sound-experience-spotify-on-facebook-tips/"><u>Streamline Your Sound Experience: Spotify on Facebook Tips</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/take-your-games-to-the-next-level-install-updated-drivers-for-geforce-rtx-2080-ti/"><u>Take Your Games to The Next Level - Install Updated Drivers for GeForce RTX 2080 Ti</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-ultimate-tutorial-for-musical-instagram-video-posts-for-2024/"><u>The Ultimate Tutorial for Musical Instagram Video Posts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tightening-control-over-who-you-engage-with-fb/"><u>Tightening Control Over Who You Engage With FB</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-free-mov-video-editors-6-top-notch-cutting-tools/"><u>Updated 2024 Approved Free MOV Video Editors 6 Top-Notch Cutting Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-suggested-for-you-content-on-facebook-and-why-cant-you-disable-it/"><u>What Is “Suggested for You” Content on Facebook, and Why Can’t You Disable It?</u></a></li>
+</ul></div>
 

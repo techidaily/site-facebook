@@ -1,7 +1,7 @@
 ---
 title: "Online Stealth Mode: Concealing Your Facebook & Instagram Enjoyment"
-date: 2024-11-12T18:09:13.599Z
-updated: 2024-11-17T16:30:08.791Z
+date: 2024-11-23T20:10:06.458Z
+updated: 2024-11-27T14:58:09.204Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
  Facebook has announced that it is giving users the ability to hide public like counts on Instagram and Facebook. Likes will be visible by default, but you can now opt out of seeing them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Instagram and Facebook Finally Remove Likes
 
  As announced on the[Facebook Newsroom](https://about.fb.com/news/2021/05/giving-people-more-control/) , you can now hide likes on Facebook and Instagram.
@@ -24,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 [Whether social networks should hide like counters](https://www.makeuseof.com/should-instagram-hide-number-of-likes/) has long been debated. In fact, both Facebook and Instagram have been testing the feature for years; mounting pressure from mental health experts has no doubt played into it, with claims that the competitive nature of likes has led to increased anxiety.
 
 ![instagram hide likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/instagram-hide-likes.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://about.fb.com/news/2021/05/giving-people-more-control/)
 
@@ -50,28 +58,21 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-content-strategies-skyrocket-your-ranking/"><u>[New] 2024 Approved YouTube Content Strategies Skyrocket Your Ranking</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-a-guide-to-finding-hidden-youtube-treasures-for-2024/"><u>[New] A Guide to Finding Hidden YouTube Treasures for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-how-do-i-make-my-video-perfectly-fit-instagram-in-2024/"><u>[New] How Do I Make My Video Perfectly Fit Instagram, In 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/breaking-through-youtubes-walls-using-advanced-creator-studio-skills/"><u>Breaking Through YouTube's Walls Using Advanced Creator Studio Skills</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Nubia Z50S Pro? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-downtime-in-social-media-landscapes/"><u>Deciphering Downtime in Social Media Landscapes</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-metas-dissolution-of-face-tech-with-fb/"><u>Decoding Meta's Dissolution of Face Tech with FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/determining-authorship-in-online-visual-content/"><u>Determining Authorship in Online Visual Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/disable-friends-who-stay-hidden-on-facebook/"><u>Disable Friends Who Stay Hidden on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-function-of-facebooks-regulatory-panel/"><u>Dissecting the Function of Facebook's Regulatory Panel</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/dive-into-harmony-the-top-7-complimentary-music-players-for-android-and-ios-enthusiasts/"><u>Dive Into Harmony: The Top 7 Complimentary Music Players for Android and iOS Enthusiasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/downtime-dilemma-facebook-whatsapp-and-instagram-down/"><u>Downtime Dilemma: Facebook, WhatsApp & Instagram Down?</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-platforms-reach-with-ripl-methods/"><u>Elevate Your Platform's Reach with Ripl Methods</u></a></li>
-<li><a href="https://solve-news.techidaily.com/enhanced-user-experience-with-cookiebot-technology/"><u>Enhanced User Experience with Cookiebot Technology</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Nokia C300 | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-best-8-websites-where-you-can-download-free-3d-text-psdfiles/"><u>In 2024, Best 8 Websites Where You Can Download Free 3D Text PSDFiles</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-instant-integration-syncing-iphone-media-with-computer/"><u>[New] 2024 Approved Instant Integration Syncing iPhone Media with Computer</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-freeloading-futures-with-ae-creative-tools/"><u>[New] Freeloading Futures with AE Creative Tools</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-windows-snapshot-simplified-2-methods-for-2024/"><u>[New] Windows Snapshot Simplified (2 Methods) for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-full-scan-the-essence-of-the-lightroom-app-on-android/"><u>[Updated] 2024 Approved Full Scan The Essence of the Lightroom App on Android</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-art-of-optimization-boosting-your-youtube-video-rankings/"><u>[Updated] 2024 Approved The Art of Optimization Boosting Your YouTube Video Rankings</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-ultimate-directory-of-freely-licensed-sound-sources/"><u>[Updated] The Ultimate Directory of Freely Licensed Sound Sources</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/1728483999282-4/"><u>永久移除後重新生命化：4種方法自行測試有效性報告</u></a></li>
+<li><a href="https://facebook.techidaily.com/groups-on-fb-or-linkedin-finding-your-preference/"><u>Groups on FB or LinkedIn: Finding Your Preference</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-transform-your-videos-10-online-rotators-to-try-for-2024/"><u>New Transform Your Videos 10 Online Rotators to Try for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-online-presence-with-ripl-strategies/"><u>Optimize Your Online Presence With Ripl Strategies</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/preserving-an-open-internet-the-key-factors-behind-net-neutrality-explained/"><u>Preserving an Open Internet: The Key Factors Behind Net Neutrality Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-privacy-fb-safe-status/"><u>Safeguarding Privacy: FB Safe Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-approaches-to-unfollow-pages-on-facebook/"><u>Tactical Approaches to Unfollow Pages on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-science-of-creating-audience-driven-fb-groups-polls/"><u>The Science of Creating Audience-Driven FB Groups Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-silence-what-does-it-mean/"><u>Understanding the Silence: What Does It Mean?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-higher-interactions-12-insider-facebook-tricks/"><u>Unlocking Higher Interactions: 12 Insider Facebook Tricks</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

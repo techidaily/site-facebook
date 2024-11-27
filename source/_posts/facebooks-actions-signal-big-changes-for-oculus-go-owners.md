@@ -1,7 +1,7 @@
 ---
 title: Facebook's Actions Signal Big Changes for Oculus Go Owners
-date: 2024-11-11T17:42:15.493Z
-updated: 2024-11-17T16:40:57.070Z
+date: 2024-11-25T17:35:16.826Z
+updated: 2024-11-26T18:55:43.046Z
 tags:
   - facebook
 categories:
@@ -22,9 +22,17 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Oculus Go Is Getting Unlocked Root Access
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/05/oculus-go-top-buttons.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  John Carmack confirmed on Twitter that, after "pushing on for years," Facebook will finally unlock root access to the Oculus Go. This will be available with a future OS build that can be side-loaded in the Go.
 
@@ -33,10 +41,7 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
  Related:[How to Introduce Older People to VR](https://www.makeuseof.com/how-to-introduce-older-people-vr/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Does This Mean to Oculus Go Users?
@@ -44,10 +49,7 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/05/oculus-go-kai-use.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The Oculus Go was first introduced back in 2018, and critics considered it a low-end VR headset primarily for media consumption. Facebook first dropped the Oculus Go from the enterprise website back in January 2020, and then it altogether discontinued it in June 2020\. Afterward, as of last December, the Oculus Go couldn't update apps anymore or accept new apps in its Go store.
@@ -57,10 +59,7 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
  The Oculus Go's root access represents many possibilities for the community as a whole. It will basically get rid of many of the limitations the headset currently has. And it opens the door for many other opportunities, like using external hardware with the Go. Of course, this will also depend on what the developers are willing to do for the Oculus Go once root access is available.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Root Access the Future of Oculus?
@@ -68,13 +67,6 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
  As of right now, Carmack confirmed that this OS build is specific to the Oculus Go, so don't expect similar treatment to other headsets like the Oculus Quest 2\. At least not for now. But, as Carmack puts it, this could set a precedent for the future. Don't hold your breath, though. This single change required so much effort in the first place.
 
  Related:[Things You Must Do When You First Get an Oculus Quest 2](https://www.makeuseof.com/things-must-do-when-first-get-oculus-quest-2/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Time to Play the Waiting Game
 
@@ -95,22 +87,24 @@ thumbnail: https://thmb.techidaily.com/795b74ea54cc5678eb54323c8f0f4911a2d522641
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-elevate-learning-top-15-youtube-experts-in-science-for-2024/"><u>[Updated] Elevate Learning Top 15 YouTube Experts in Science for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-precision-cutting-for-impressive-youtube-videos/"><u>[Updated] Precision Cutting for Impressive YouTube Videos</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-interoperable-iptv-networking/"><u>2024 Approved Interoperable IPTV Networking</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-advice-troubleshooting-and-solving-power-state-driver-mistakes-on-pc/"><u>Expert Advice: Troubleshooting and Solving Power State Driver Mistakes on PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-list-of-regrets-a-compilation-of-5-major-mishaps-to-its-community/"><u>Facebook’s List of Regrets: A Compilation of 5 Major Mishaps to Its Community</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-role-in-expanding-your-spotify-reach/"><u>Facebook's Role in Expanding Your Spotify Reach</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-transformation-into-a-simpler-social-media-platform/"><u>Facebook’s Transformation Into a Simpler Social Media Platform</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/from-camera-to-feed-instagram-video-upload-on-desktop/"><u>From Camera to Feed Instagram Video Upload on Desktop</u></a></li>
-<li><a href="https://facebook.techidaily.com/future-worlds-at-our-fingertips-discovering-the-reality-of-metaverse-on-facebook/"><u>Future Worlds at Our Fingertips: Discovering The Reality of Metaverse on Facebook</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-tecno-spark-20-proplus-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Tecno Spark 20 Pro+ without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-androids-fastest-video-speed-adjusters/"><u>In 2024, Android's Fastest Video Speed Adjusters</u></a></li>
-<li><a href="https://facebook.techidaily.com/insider-tips-to-get-a-buyers-remorse-fix-on-fb/"><u>Insider Tips to Get a Buyer's Remorse Fix on FB</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/lock-your-itel-p55-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Itel P55 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essential-guide-to-user-exclusion-for-businesses-on-facebook/"><u>The Essential Guide to User Exclusion for Businesses on Facebook</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/top-5-solutions-repairing-corrupt-and-inaccessible-filesdirectories/"><u>Top 5 Solutions: Repairing Corrupt & Inaccessible Files/Directories</u></a></li>
-<li><a href="https://facebook.techidaily.com/twitters-hidden-algos-how-to-stop-auto-tweets/"><u>Twitter's Hidden Algos: How to Stop Auto-Tweets</u></a></li>
-<li><a href="https://facebook.techidaily.com/writers-world-expanded-with-facebooks-5-million-for-new-digital-platform-venture/"><u>Writers' World Expanded with Facebook's $5 Million for New Digital Platform Venture</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-harmony-hub-next-gen-unveiled/"><u>[New] 2024 Approved Harmony Hub Next Gen Unveiled</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-natural-and-artificial-blending-lights-in-iphone-photos/"><u>[New] Natural & Artificial Blending Lights in iPhone Photos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-cutting-through-the-facade-real-vs-pretend-facebook-followers/"><u>[Updated] Cutting Through the Facade Real vs Pretend Facebook Followers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-subscriber-chart-the-5-most-subscribed-youtube-channels/"><u>[Updated] YouTube Subscriber Chart - The 5 Most Subscribed YouTube Channels</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-the-perfect-introduction-15-viral-youtube-video-intros/"><u>2024 Approved Crafting the Perfect Introduction 15 Viral YouTube Video Intros</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-masterpiece-makers-top-6-innovators-in-digital-art-space/"><u>2024 Approved Masterpiece Makers Top 6 Innovators in Digital Art Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/guardians-against-gimmicks-recognizing-counterfeit-profiles/"><u>Guardians Against Gimmicks: Recognizing Counterfeit Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-to-recover-from-deactivated-facebook-accounts/"><u>Guidelines to Recover From Deactivated Facebook Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-detect-pcemail-over-intrusion/"><u>How to Detect PC/Email Over-Intrusion?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-quick-guide-eliminating-photo-viewer-crashes-on-windows-10/"><u>In 2024, Quick Guide Eliminating Photo Viewer Crashes on Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-fb-losing-its-grip-on-giphy/"><u>Is FB Losing Its Grip on Giphy?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-virtual-markets-with-confidence-and-caution/"><u>Navigating Virtual Markets with Confidence and Caution</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-vintage-vibes-in-fcp-a-step-by-step-guide-to-vhs-effects/"><u>New In 2024, Vintage Vibes in FCP A Step-by-Step Guide to VHS Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/sailing-societies-turn-off-digital-masts/"><u>Sailing Societies Turn Off Digital Masts</u></a></li>
+<li><a href="https://facebook.techidaily.com/separating-fact-from-fiction-on-facebook-platforms/"><u>Separating Fact From Fiction on Facebook Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-applause-keeping-your-social-engagements-private/"><u>Silent Applause: Keeping Your Social Engagements Private</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-warfare-against-covid-19-through-fb-and-twitter/"><u>Social Warfare Against COVID-19 Through FB & Twitter</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlocking-smart-search-utilizing-microsofts-ai-features-in-bing-for-android/"><u>Unlocking Smart Search: Utilizing Microsoft's AI Features in Bing for Android</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/video-perfection-in-progress-edits-after-uploading-on-youtube/"><u>Video Perfection in Progress Edits After Uploading on YouTube</u></a></li>
 </ul></div>
 

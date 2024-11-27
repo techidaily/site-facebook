@@ -1,7 +1,7 @@
 ---
 title: "When Big Brother Goes Wrong: Facebook's User Missteps"
-date: 2024-11-16T17:07:38.934Z
-updated: 2024-11-17T16:14:27.496Z
+date: 2024-11-20T06:27:49.060Z
+updated: 2024-11-27T02:59:20.369Z
 tags:
   - facebook
 categories:
@@ -34,22 +34,13 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 
  Before its permanent shutdown in September 2009, Facebook users were informed of the decision. Mark Zuckerberg publicly apologized to all Facebook users. He also accepted that Facebook Beacon had some issues. Some people bought it as an honest mistake, but many remained unimpressed.
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Copying Competitors and Not Offering Something New
 
 ![Facebook Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-stories.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Snapchat Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/snapchat-stories.JPG)
 
@@ -66,15 +57,16 @@ Close
  So, will Facebook take some action and bring creativity to the table? Maybe, maybe not. Only time can tell.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Data Harvesting Through Quizzes and Third-Party Apps
 
 ![Data-collection](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/data-collection.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Many Facebook users have taken quizzes and played games on the app. We are talking about things like “Which SpongeBob Character Are You?” or “What Does Your Zodiac Say About You?”.
 
@@ -86,29 +78,19 @@ Close
 
  Mark Zuckerberg was considered directly responsible for this failure. Users now have a dedicated section to review the apps that you have connected to Facebook and what websites are logged in using Facebook. You can deny permission to Facebook for any app you feel uncomfortable sharing your personal information with.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. The Spread of Fake News
 
 ![Tick cross](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/tick-cross.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  With billions of users and regular engagement, Facebook has become a hub for spreading false news online.
 
  This can directly relate to Facebook's ability to promote a particular post in users' feeds. Unsurprisingly, many authoritative figures use this failure to meet their political and personal ambitions.
 
  Facebook took notice of this issue a while ago and is trying to take steps against the propagation of false news. People are also advised to follow the Facebook pages from authentic news channels only. Genuine Facebook accounts and[business pages are verified by Facebook](https://www.makeuseof.com/verify-facebook-business-page/) and have a checkmark beside their name.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Failure to Moderate in Developing Countries
 
@@ -121,6 +103,10 @@ Close
  There are still dozens of languages not sufficiently covered by Facebook's algorithmic moderation. This causes difficulties in interpreting and moderating content on Facebook.
 
  Since many social media experts are highlighting this issue, let’s hope that Facebook can provide equality in content moderation for people around the globe.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Failed Many Times but Let's Not Lose Hope
 
@@ -145,19 +131,14 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagrams-hidden-gems-designing-stunning-engaging-puzzle-posts/"><u>[Updated] 2024 Approved Instagram's Hidden Gems Designing Stunning, Engaging Puzzle Posts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-amplify-video-impact-leading-trackers-for-youtube-ranks-for-2024/"><u>[Updated] Amplify Video Impact Leading Trackers for YouTube Ranks for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-the-essential-guide-for-avi-to-gif-editing-a-quick-filmora-workflow-on-windows-and-macos/"><u>2024 Approved The Essential Guide for AVI-to-GIF Editing A Quick Filmora Workflow on Windows & macOS</u></a></li>
-<li><a href="https://facebook.techidaily.com/4-things-to-know-about-metas-new-privacy-policy/"><u>4 Things to Know About Meta's New Privacy Policy</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/accelerating-your-watch-experience-on-instagram-videos/"><u>Accelerating Your Watch Experience on Instagram Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-augmented-reality-the-true-metaverse-story/"><u>Beyond Augmented Reality: The True Metaverse Story</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-social-media-decoding-the-future-impact-of-facebooks-metaverse/"><u>Beyond Social Media: Decoding the Future Impact of Facebook's Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-the-process-of-checking-blocked-users/"><u>Breaking Down the Process of Checking Blocked Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/chronicling-your-digital-dialogue-a-methodical-approach-to-fb-data-collection/"><u>Chronicling Your Digital Dialogue: A Methodical Approach to FB Data Collection</u></a></li>
-<li><a href="https://facebook.techidaily.com/custom-mobile-access-facebooks-new-strategy-outpaces-apple-marketplace/"><u>Custom Mobile Access: Facebook's New Strategy Outpaces Apple' Marketplace</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-fix-msodll-not-found-or-missing-errors/"><u>How to Fix Mso.dll Not Found or Missing Errors</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-efficient-color-grading-in-ar-understanding-and-downloading-luts/"><u>In 2024, Efficient Color Grading in AR Understanding and Downloading LUTs</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-silverleaf-studio-exploring-lightroom-substitutes/"><u>In 2024, Silverleaf Studio Exploring Lightroom Substitutes</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-through-new-horizons-of-technology-at-toms-system-solutions/"><u>Navigating Through New Horizons of Technology at Tom's System Solutions</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-innovative-recording-tech-the-leaders-choice/"><u>[Updated] Innovative Recording Tech The Leaders' Choice</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-is-your-channels-income-regular-via-youtube/"><u>2024 Approved Is Your Channel's Income Regular via YouTube?</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-non-installed-disk-issue-on-windows-11-system/"><u>Fixing Non-Installed Disk Issue on Windows 11 System</u></a></li>
+<li><a href="https://facebook.techidaily.com/love-reimagined-the-role-of-facebook-in-future-dating-practices/"><u>Love Reimagined: The Role of Facebook in Future Dating Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-privacy-constructing-a-restricted-list-for-controlled-visibility/"><u>Mastering Facebook's Privacy: Constructing a Restricted List for Controlled Visibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-productivity-with-facebooks-8-essential-workplace-features/"><u>Optimizing Productivity with Facebook's 8 Essential Workplace Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-shares-use-archiving-for-securing-post-visibility/"><u>Shielding Shares: Use Archiving for Securing Post Visibility</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/simple-steps-transfer-songs-images-and-movies-on-your-ipod-using-top-ipod-management-software/"><u>Simple Steps: Transfer Songs, Images & Movies on Your iPod Using Top iPod Management Software</u></a></li>
+<li><a href="https://fox-that.techidaily.com/wi-fi-woes-8-proven-ways-to-connect-your-iphoneipad-successfully/"><u>Wi-Fi Woes? 8 Proven Ways to Connect Your iPhone/iPad Successfully</u></a></li>
 </ul></div>
 

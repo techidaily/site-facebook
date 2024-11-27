@@ -1,7 +1,7 @@
 ---
 title: The Reasoning Behind Meta Holding Off on End-to-End Encryption by '23
-date: 2024-11-16T16:09:22.563Z
-updated: 2024-11-17T17:07:27.867Z
+date: 2024-11-25T06:03:11.132Z
+updated: 2024-11-27T02:29:13.474Z
 tags:
   - facebook
 categories:
@@ -24,9 +24,17 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Does Meta Want End-to-End Encryption?
 
 ![hacker typing on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/hacker-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta's goal is to integrate all functionalities on Facebook, Facebook Messenger, Instagram, and WhatsApp. This will enable users to post messages across the four apps, with each app's existing features available across the board.
 
@@ -37,16 +45,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
@@ -60,10 +59,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
@@ -89,19 +85,18 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-the-ultimate-guide-to-android-slow-motion-video-magic-for-2024/"><u>[New] The Ultimate Guide to Android Slow Motion Video Magic for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-sunshine-strategies-to-lighten-up-android-videos-for-2024/"><u>[Updated] Sunshine Strategies to Lighten up Android Videos for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-comparing-sns-hdrs-capabilities-with-competitor-software/"><u>2024 Approved Comparing SNS HDR's Capabilities with Competitor Software</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-enthralling-thesis-fabricator/"><u>2024 Approved Enthralling Thesis Fabricator</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-ways-to-boost-engagement-through-a-facebook-circle/"><u>6 Ways to Boost Engagement Through a Facebook Circle</u></a></li>
-<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-barriers-in-broadcast-facebook-updates-platform/"><u>Breaking Barriers in Broadcast: Facebook Updates Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-barriers-the-implications-of-full-access-control-on-oculus-go/"><u>Breaking Barriers: The Implications of Full Access Control on Oculus Go</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-tecno-spark-20c-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Tecno Spark 20C to iPod | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/improve-gaming-performance-download-the-newest-geforce-210-drivers-on-windows-10/"><u>Improve Gaming Performance: Download the Newest GeForce 210 Drivers on Windows 10</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-optimal-space-stewards-premium-service-review/"><u>In 2024, Optimal Space Stewards Premium Service Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719148986166-new-era-of-private-conversations-facebooks-encrypted-instagram-dms-messenger-calls-rollout/"><u>New Era of Private Conversations: Facebook's Encrypted Instagram DMs, Messenger Calls Rollout</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150058146-social-media-preference-poll-here/"><u>Social Media Preference Poll Here!</u></a></li>
-<li><a href="https://win-answers.techidaily.com/wrc-10-successful-pc-installation-and-fix-for-fifas-official-fia-world-rally-championship-game/"><u>WRC 10: Successful PC Installation & Fix for FIFA's Official FIA World Rally Championship Game</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discovering-the-secrets-to-targeted-youtubes-likes-and-views/"><u>[New] Discovering the Secrets to Targeted YouTubes Likes and Views</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-stealthy-watcher-of-digital-tales-for-2024/"><u>[New] Stealthy Watcher of Digital Tales for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unrivaled-script-authority-place/"><u>[New] Unrivaled Script Authority Place</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/deciding-on-a-device-comparing-iphones-with-android-phones-for-you/"><u>Deciding on a Device: Comparing iPhones with Android Phones for You</u></a></li>
+<li><a href="https://win-updates.techidaily.com/effective-steps-to-disable-and-eliminate-faux-microsoft-edge-security-warnings/"><u>Effective Steps to Disable and Eliminate Faux Microsoft Edge Security Warnings</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-pushback-why-it-continues-to-evolve-and-thrive/"><u>Facebook's Pushback: Why It Continues to Evolve and Thrive</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-technology-trends-through-toms-hardware-analysis/"><u>Mastering Technology Trends Through Tom's Hardware Analysis</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-gpu-issues-maximize-your-gaming-experience-with-warzone-on-new-windows-os/"><u>Resolving GPU Issues - Maximize Your Gaming Experience with Warzone on New Windows OS</u></a></li>
+<li><a href="https://facebook.techidaily.com/sever-instagrams-ties-with-fb-a-compreenasional-approach/"><u>Sever Instagram's Ties with FB: A Compreenasional Approach</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/share-your-gaming-highlights-screen-capture-techniques-for-the-nintendo-switch/"><u>Share Your Gaming Highlights: Screen Capture Techniques for the Nintendo Switch</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotify-announces-undercover-tracking-for-unhindered-streaming-experience/"><u>Spotify Announces Undercover Tracking for Unhindered Streaming Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metaai-beyond-basic-chatbot-capabilities/"><u>Understanding MetaAI: Beyond Basic Chatbot Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-media-blackout-phenomena/"><u>Understanding Social Media Blackout Phenomena</u></a></li>
 </ul></div>
 

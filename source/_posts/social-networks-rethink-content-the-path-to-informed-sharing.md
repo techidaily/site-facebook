@@ -1,7 +1,7 @@
 ---
 title: "Social Networks Rethink Content: The Path to Informed Sharing"
-date: 2024-11-11T17:48:50.547Z
-updated: 2024-11-17T17:52:32.738Z
+date: 2024-11-22T22:11:54.532Z
+updated: 2024-11-27T03:18:17.409Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Prods Users to Read Before Sharing
 
  Facebook wants you to look past the headline, and actually read the news article you're about to share with your friends.
@@ -33,10 +37,7 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
  Facebook then gives you two ways to reply to this prompt: **Open Article** and **Continue Sharing** . In other words, you can choose to read the article you're about to post, or continue to share it without reading.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Twitter Already Unveiled a Similar Prompt
@@ -48,10 +49,7 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
  While[Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Will Facebook Ever Be Free of Misinformation?
@@ -75,18 +73,18 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-stay-snappin-strategies-for-unbroken-streaks/"><u>[New] In 2024, Stay Snappin' Strategies for Unbroken Streaks</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-syncing-yt-beats-with-visual-timelines/"><u>[Updated] 2024 Approved Syncing YT Beats with Visual Timelines</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-maximizing-profile-visibility-in-snapchat-spotlights-for-2024/"><u>[Updated] Maximizing Profile Visibility in Snapchat Spotlights for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-best-photo-background-blur-apps-for-iphone-and-android-phones/"><u>2024 Approved Best Photo Background Blur Apps for iPhone and Android Phones</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-social-media-giant-persists-unraveling-the-facebook-phenomenon/"><u>A Social Media Giant Persists - Unraveling the 'Facebook Phenomenon'</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-the-reasoning-why-multiple-profiles-are-accepted-under-a-single-account-id/"><u>Analyzing the Reasoning: Why Multiple Profiles Are Accepted Under a Single Account ID</u></a></li>
-<li><a href="https://facebook.techidaily.com/connectivity-cash-flow-the-online-money-mechanics/"><u>Connectivity Cash Flow: The Online Money Mechanics</u></a></li>
-<li><a href="https://facebook.techidaily.com/constructive-approach-to-sidestep-aggressive-advertisements/"><u>Constructive Approach to Sidestep Aggressive Advertisements</u></a></li>
-<li><a href="https://facebook.techidaily.com/control-digital-overload-minimize-suggested-feeds/"><u>Control Digital Overload: Minimize Suggested Feeds</u></a></li>
-<li><a href="https://fox-access.techidaily.com/esteemed-endorsements-elite-online-destinations-for-snapping-alert-music/"><u>Esteemed Endorsements Elite Online Destinations for Snapping Alert Music</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-show-wi-fi-password-on-nokia-c110-by-drfone-android/"><u>How to Show Wi-Fi Password on Nokia C110</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-vivo-v30-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Vivo V30?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/ranked-alternatives-to-sporting-events-in-firstrow-views-for-2024/"><u>Ranked Alternatives to Sporting Events in Firstrow Views for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-path-to-professional-looking-colors-in-gopro-editing/"><u>[Updated] The Path to Professional-Looking Colors in GoPro Editing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-stream-like-a-pro-setting-up-your-dslr-on-personal-computers/"><u>2024 Approved Stream Like a Pro Setting Up Your DSLR on Personal Computers</u></a></li>
+<li><a href="https://win11.techidaily.com/elevate-your-windows-experience-with-these-top-7-tips/"><u>Elevate Your Windows Experience with These Top 7 Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/giving-voice-to-the-whole-crew-in-a-single-facebook-post/"><u>Giving Voice to the Whole Crew in a Single Facebook Post</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-download-facebook-photos-and-videos/"><u>How to Download Facebook Photos and Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-log-into-facebook-if-you-lost-access-to-code-generator/"><u>How to Log Into Facebook If You Lost Access to Code Generator</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-fundamentals-unveiling-internet-storys-essence/"><u>In 2024, Fundamentals Unveiling Internet Story's Essence</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-start-with-crypto-and-nfts-your-simple-creation-plan/"><u>In 2024, Start with Crypto & NFTs Your Simple Creation Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevent-facebook-fraud-identify-14-common-scams-now/"><u>Prevent Facebook Fraud: Identify 14 Common Scams Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/public-perception-of-big-tech-slipping-facebook-takes-the-hit/"><u>Public Perception of Big Tech Slipping; Facebook Takes the Hit?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-rated-mobile-video-editors-for-ios-and-android-for-2024/"><u>Top-Rated Mobile Video Editors for iOS & Android for 2024</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/windows-7-usb-2/"><u>Windows 7リカバリ USB 生成ガイド：簡易手順2つ</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-discloses-pet-goats-name-is-blockchain/"><u>Zuckerberg Discloses: Pet Goat's Name Is 'Blockchain'</u></a></li>
 </ul></div>
 

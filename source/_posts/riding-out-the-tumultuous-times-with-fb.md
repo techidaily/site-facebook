@@ -1,7 +1,7 @@
 ---
 title: Riding Out the Tumultuous Times with FB
-date: 2024-09-01T03:47:11.670Z
-updated: 2024-09-02T03:47:11.670Z
+date: 2024-11-20T17:15:29.667Z
+updated: 2024-11-27T11:26:36.189Z
 tags:
   - facebook
 categories:
@@ -27,11 +27,19 @@ thumbnail: https://thmb.techidaily.com/2bedac5967dc2670719be619f6173feb9adb05006
 
 ![facebook logo on a multicolored pastel background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-logo-on-a-multicolored-pastel-background.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Following the release of the Wall Street Journal's report, whistleblower and former Facebook employee Frances Haugen appeared in a CBS News' 60 Minutes interview, where she made damning accusations against Facebook to back up the report.
 
  And the storm isn't over yet. According to[Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
 
  That's because Facebook had caught wind of an upcoming, coordinated release of the leaked documents from Haugen by a consortium of reporters. In the memo, Clegg encouraged employees to, “listen and learn from criticism when it is fair, and push back strongly when it is not.”
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Who Is the Facebook Whistleblower?
 
@@ -46,15 +54,17 @@ thumbnail: https://thmb.techidaily.com/2bedac5967dc2670719be619f6173feb9adb05006
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is the Facebook Consortium?
 
 ![A visual showing manager instructing resources](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Asana-Reporting-Resource-Management.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  The Facebook Consortium is a group of reporters tasked with releasing information from copies of leaked documents from Haugen. These include publications like the Associated Press, The New York Times, The Washington Post, and CNN. A few European outlets are also included.
 
  The consortium's goal was to amplify findings from the leaked documents by having all these news organizations report on them at the same time, thereby making a significant impact.
@@ -64,22 +74,20 @@ thumbnail: https://thmb.techidaily.com/2bedac5967dc2670719be619f6173feb9adb05006
  However, that plan fell apart when some outlets contacted Facebook shortly after receiving the documents on October 10, 2021, after which the rest of the news outlets—including The New York Times, CNN, NBC News, and Bloomberg—started publishing their stories.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can Facebook Overcome This Storm?
 
  Facebook has had a lot of negative press in recent months. While it has had some challenges over the years, the challenges Facebook now faces are quite serious.
 
  Facebook will probably overcome this current scandal, but its goodwill may be tarnished in the process, given the sensitivity and seriousness of the documents shared by Haugen. However, as to how much damage it will do to Facebook overall, only time will tell.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -88,4 +96,22 @@ thumbnail: https://thmb.techidaily.com/2bedac5967dc2670719be619f6173feb9adb05006
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-uniting-visuals-the-desktop-and-web-way/"><u>[Updated] Uniting Visuals The Desktop & Web Way</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-xiaomi-redmi-note-12t-pro-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Xiaomi Redmi Note 12T Pro</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-nokia-g310-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Nokia G310 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-apple-iphone-15-pro-max-and-browser-drfone-by-drfone-virtual-ios/"><u>In 2024, Prevent Cross-Site Tracking on Apple iPhone 15 Pro Max and Browser | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-strategy-abandoning-facebooks-biometric-tech/"><u>Meta's Strategy: Abandoning Facebook’s Biometric Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-password-and-access-code-challenges-on-facebook/"><u>Overcoming Password and Access Code Challenges on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamp-your-facebook-profile-official-name-change-steps/"><u>Revamp Your Facebook Profile: Official Name Change Steps</u></a></li>
+<li><a href="https://driver-install.techidaily.com/securely-access-your-a6200-adapter-with-updated-software/"><u>Securely Access Your A6200 Adapter with Updated Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-aftermath-of-a-digital-colossus-ceasefire/"><u>The Aftermath of a Digital Colossus Ceasefire</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-users-guide-to-navigating-facebook-outages/"><u>The User's Guide to Navigating Facebook Outages</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/uncovering-old-facebook-stories-with-ease/"><u>Uncovering Old Facebook Stories with Ease</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-gptbot-the-ai-tool-causing-website-bans/"><u>Understanding GPTBot: The AI Tool Causing Website Bans</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-premium-status-buy-your-way-up/"><u>Unlock Premium Status: Buy Your Way Up</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-dictates-which-ads-appear-in-your-news-feed/"><u>What Dictates Which Ads Appear in Your News Feed?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/windows-114/"><u>Windows 11の特定エリアスクリーンショット撮影技術4選 - 詳しく解説</u></a></li>
+</ul></div>
 

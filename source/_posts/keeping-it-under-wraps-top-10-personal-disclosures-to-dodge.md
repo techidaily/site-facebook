@@ -1,7 +1,7 @@
 ---
 title: "Keeping It Under Wraps: Top 10 Personal Disclosures to Dodge"
-date: 2024-09-01T03:44:57.298Z
-updated: 2024-09-02T03:44:57.298Z
+date: 2024-11-23T01:00:38.562Z
+updated: 2024-11-27T01:12:43.180Z
 tags:
   - facebook
 categories:
@@ -15,6 +15,10 @@ thumbnail: https://thmb.techidaily.com/5fe7ecb89bcc6e1487d4d4a1019dead48cda049eb
 
 ## Keeping It Under Wraps: Top 10 Personal Disclosures to Dodge
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Don't share your travel plans or photos while on a trip to avoid advertising that you're away from home and potentially inviting theft.
@@ -26,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/5fe7ecb89bcc6e1487d4d4a1019dead48cda049eb
 ## 1\. Travel Plans
 
 ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
@@ -49,9 +57,6 @@ thumbnail: https://thmb.techidaily.com/5fe7ecb89bcc6e1487d4d4a1019dead48cda049eb
 
  These types of questions are often used as security questions to protect your online accounts. Thankfully, these weak security questions are being phased out on many sites, but they're still a potential attack surface in many cases. Making these answers public could allow someone to break into your account;[stay safe from social engineering](https://www.makeuseof.com/tag/protect-8-social-engineering-attacks/) by keeping this info private.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## 4\. Personal Complaints and Rants
 
  Social media is not the place to air your grievances. If you want to complain about your boss, coworkers, or relatives, social media is a terrible place to do so. Someone will likely see it and let the person know, resulting in a messy situation.
@@ -80,9 +85,6 @@ thumbnail: https://thmb.techidaily.com/5fe7ecb89bcc6e1487d4d4a1019dead48cda049eb
 
  Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## 7\. Personal Advice
 
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
@@ -94,25 +96,19 @@ thumbnail: https://thmb.techidaily.com/5fe7ecb89bcc6e1487d4d4a1019dead48cda049eb
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. Scammy Giveaways and Contests
 
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
  If you constantly share giveaways, contests, and invites to Facebook games, you're probably annoying your friends. Even more importantly, some of these so-called[social media contests are actually scams in disguise](https://www.makeuseof.com/dont-trust-giveaway-contests-social-media/) . You could unknowingly spread malware or trick people into giving away sensitive data.
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## 9\. Privileged Inside Information
 
  It's an easy mistake to accidentally post private information on a public channel. However, you should be careful about exposing insider information on social media. If you're aware of protected details at your job, don't share those anywhere, especially online.
@@ -120,8 +116,9 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10\. Anything You Don't Want to Make Public
 
  This is a bit of a catch-all for anything not covered above. If there's one rule that you should live by on social media, it's this: never post anything that you wouldn't want the whole world to see.
@@ -130,20 +127,21 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What You Shouldn't Share Online
 
  While social media can be a fun way to share with friends you don't see in person, sharing online has many downsides compared to talking in person. It's easy to overshare, not realize the audience that could see your posts, or make other mistakes.
 
  Sharing information online voluntarily lessens your privacy and can open you up to attacks on your security, too. It's wise to be intentional about what you share.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -152,4 +150,26 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-from-static-to-vivid-moments-with-the-new-polaroid-xs-100i/"><u>[New] 2024 Approved From Static to Vivid Moments with the New Polaroid XS 100I</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-time-saving-ways-to-log-vimeo-media/"><u>[New] In 2024, Time-Saving Ways to Log Vimeo Media</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-integrated-capture-camera-and-desktop-together/"><u>[Updated] 2024 Approved Integrated Capture Camera and Desktop Together</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-secrets-of-jaunt-vr/"><u>[Updated] Unveiling the Secrets of Jaunt VR</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-crafting-your-dream-minecraft-house-with-ease/"><u>2024 Approved Crafting Your Dream Minecraft House with Ease</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-honor-magic5-ultimate-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Honor Magic5 Ultimate via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/conversione-gratuita-da-aiff-a-wmv-online-servizi-professionali-di-movavi/"><u>Conversione Gratuita Da AIFF a WMV Online - Servizi Professionali Di Movavi</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-the-top-15-films-featuring-dolby-atmos-for-an-unmatched-home-viewing-experience/"><u>Discover the Top 15 Films Featuring Dolby Atmos for an Unmatched Home Viewing Experience</u></a></li>
+<li><a href="https://windows11.techidaily.com/effective-dns-clearing-on-the-newest-windows-os/"><u>Effective DNS Clearing on the Newest Windows OS</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-rewards-you-with-improved-earnings-mechanisms/"><u>Instagram Rewards You with Improved Earnings Mechanisms</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-queries-revealing-friends-preferences-on-messenger/"><u>Interactive Queries: Revealing Friends' Preferences on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-obtaining-hidden-facebook-vids/"><u>Mastering the Art of Obtaining Hidden Facebook Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-business-facebook-client-partnerships/"><u>Navigating the World of Business-Facebook Client Partnerships</u></a></li>
+<li><a href="https://facebook.techidaily.com/precision-privacy-surgically-removing-public-access-on-facebook/"><u>Precision Privacy: Surgically Removing Public Access on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-decreasing-time-on-social-media-platforms-especially-fb-reels/"><u>Strategies for Decreasing Time on Social Media Platforms, Especially Fb Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-and-significance-of-absent-users-in-messaging/"><u>The Impact and Significance of Absent Users in Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-accuses-g-f-t-of-hindering-free-speech-and-opinions/"><u>Trump Accuses G-F-T of Hindering Free Speech and Opinions</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ultimate-guide-to-the-top-race-rc-rock-crawler-unveiling-an-all-terrain-marvel/"><u>Ultimate Guide to the Top Race RC Rock Crawler - Unveiling an All-Terrain Marvel</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-users-or-professional-networking-pick-your-preferred-groups/"><u>Uniting Users or Professional Networking: Pick Your Preferred Groups</u></a></li>
+</ul></div>
 

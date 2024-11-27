@@ -1,7 +1,7 @@
 ---
 title: "Timing Your FB Friends: When to Follow & Unfollow?"
-date: 2024-11-12T17:13:58.601Z
-updated: 2024-11-17T17:58:45.279Z
+date: 2024-11-26T12:11:06.833Z
+updated: 2024-11-26T20:12:36.513Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/c2bd6ba622504fadfbcb07e0ff1b2943eed89d4f1
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Does Following Mean on Facebook?
 
  The follow feature is one of Facebook's most underused tools. Many people don't realize that you can use it to communicate with almost anyone on the network, even if you're not friends.
@@ -37,6 +41,10 @@ Facebook's follow feature works in two ways:
 
  Interested? Keep reading. We're going to take a closer look at the follow feature and how to make it work for you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Is the Follow Feature Necessary?
 
 There are two reasons to use the follow feature.
@@ -46,6 +54,10 @@ There are two reasons to use the follow feature.
  Today, it's a mess. We've all liked too many pages and got too many friends. Nothing about your news feed feels personal anymore. The Follow feature is one of the ways to make Facebook relevant again.
 
  Secondly, it lets you interact with people you're not connected with. In many ways, it's Facebook's answer to Twitter.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Follow and Unfollow on Facebook
 
@@ -63,13 +75,6 @@ There are two reasons to use the follow feature.
 
 ![facebook unfollow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-unfollow.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
 
 ## How Do You See Who You're Following?
@@ -81,13 +86,6 @@ There are two reasons to use the follow feature.
 ## How Do You Let People Follow You?
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  So, following other people is straightforward enough, but how do you let other people follow your profile and posts?
 
@@ -102,13 +100,6 @@ This same page contains three other settings you need to be aware of:
 ## What Do Your Facebook Followers See?
 
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Followers can see any of your public content. Remember, this doesn't only refer to text-based posts, you can also choose to make pictures, albums, videos, and even your likes public knowledge.
 
@@ -129,10 +120,7 @@ This same page contains three other settings you need to be aware of:
  When a new person follows you who is not already one of your friends, you will receive a notification.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Can You Remove Facebook Followers?
@@ -140,10 +128,7 @@ This same page contains three other settings you need to be aware of:
 ![facebook block](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-block.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  So far, so good? Great. Next, how do you get rid of people who you don't want to follow you anymore?
@@ -177,14 +162,24 @@ This same page contains three other settings you need to be aware of:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/du-stream-100-cutting-edge-learning-yt-for-2024/"><u>[New] Edu-Stream 100 Cutting-Edge Learning YT for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-elevate-viewing-experience-activating-av1-codec-on-youtube/"><u>[Updated] 2024 Approved Elevate Viewing Experience Activating AV1 Codec on YouTube</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-mastering-video-descriptions-on-instagram/"><u>[Updated] In 2024, Mastering Video Descriptions on Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-breakdown-of-facebooks-user-assistance-features/"><u>A Breakdown of Facebook's User Assistance Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/confront-and-combat-fb-watchfulness-via-off-fb-option/"><u>Confront and Combat FB Watchfulness via Off-FB Option</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-erasure-and-security-risks-for-facebook-members/"><u>Data Erasure and Security Risks for Facebook Members</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719154287548-facebook-invites-you-to-shape-tomorrows-metaverse-awaiting-10k/"><u>Facebook Invites You to Shape Tomorrow’s Metaverse, Awaiting 10K!</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-poco-x6-pro-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Poco X6 Pro FRP Without Computer</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-honor-90-lite-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Honor 90 Lite Device</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-construct-humor-memes-via-adobe-for-2024/"><u>[New] Construct Humor Memes via Adobe for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-pre-purchase-key-facts-every-drone-buyer-should-know/"><u>[New] In 2024, Pre-Purchase Key Facts Every Drone Buyer Should Know</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ingenious-wavework-wisdom-casters-companion/"><u>[New] Ingenious Wavework Wisdom Caster's Companion</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-how-to-optimize-audio-capture-top-5-windows-11-strategies/"><u>[Updated] 2024 Approved How to Optimize Audio Capture Top 5 Windows 11 Strategies</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-complete-process-for-selecting-top-online-photo-edits/"><u>[Updated] The Complete Process for Selecting Top Online Photo Edits</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/sd32022/"><u>如何轻松实现SD卡数据救助：3种最新策略（2022版）</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/aomei-backupper-error-code-troubleshooting-guide/"><u>AOMEI Backupper Error Code - Troubleshooting Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-solutions-for-corsair-void-microphone-malfunctions/"><u>Effective Solutions for Corsair Void Microphone Malfunctions</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-oneplus-ace-2-pro-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the OnePlus Ace 2 Pro Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-controversial-move-to-disrupt-facebookinstagram-in-europe/"><u>Meta's Controversial Move to Disrupt Facebook/Instagram in Europe</u></a></li>
+<li><a href="https://facebook.techidaily.com/outsmarting-elite-social-schemes-with-tactics/"><u>Outsmarting Elite Social Schemes with Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-shield-when-will-messenger-get-end-to-end-encryption/"><u>Privacy Shield: When Will Messenger Get End-to-End Encryption?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolved-major-league-baseball-the-show-21-servers-back-online/"><u>Resolved: Major League Baseball The Show 21 Servers Back Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/shared-spaces-online-7-methods-of-collective-engagement/"><u>Shared Spaces Online: 7 Methods of Collective Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-enigma-of-gone-from-facebook/"><u>The Enigma of Gone-From-Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-security-status-of-fb-chat-rooms/"><u>The Security Status of FB Chat Rooms</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-motivations-why-you-should-ditch-facebook/"><u>Top 10 Motivations: Why You Should Ditch Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-psychological-potential-with-isbms-modernized-cbt-framework/"><u>Unlock Psychological Potential with ISBM's Modernized CBT Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-code-messengers-disappearing-dialogue/"><u>Unlocking the Code: Messenger’s Disappearing Dialogue</u></a></li>
 </ul></div>
 

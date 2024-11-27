@@ -1,7 +1,7 @@
 ---
 title: Meta's Race to Redefine Computing Speed - The Supercomputer Evolution
-date: 2024-09-01T03:43:16.216Z
-updated: 2024-09-02T03:43:16.216Z
+date: 2024-11-26T10:54:24.433Z
+updated: 2024-11-27T01:18:27.310Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/8122148ffac7fe0a0e1d193ba9a136b7cccae081b
 
  Meta has announced that it is building the world's fastest AI supercomputer, which will aid its plans to build the metaverse. But why exactly is Meta Building the fastest AI supercomputer in the world? Keep reading to find out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Meta Announces AI Supercomputer
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta has announced an AI supercomputer called "the AI Research SuperCluster" (RSC).
 
@@ -37,9 +45,17 @@ thumbnail: https://thmb.techidaily.com/8122148ffac7fe0a0e1d193ba9a136b7cccae081b
 
  Read more:[The Facebook Metaverse, Explained (And Why You Should Care)](https://www.makeuseof.com/facebook-metaverse-explained/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Meta Is Building the Fastest AI Supercomputer in the World
 
 ![A man typing on a computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/pexels-eduardo-dutra-2115217.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  We've established that Meta's AI supercomputer is the virtual groundwork for building its ultimate metaverse. Now let's look at why Meta is building the fastest AI supercomputer in the world, starting with the context for the RSC.
 
@@ -58,22 +74,20 @@ thumbnail: https://thmb.techidaily.com/8122148ffac7fe0a0e1d193ba9a136b7cccae081b
  Meta believes this is the first time the company is tackling performance, reliability, security, and privacy at such a scale.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Is Betting Big on the Metaverse
 
  Meta's founder Mark Zuckerberg has talked extensively about his vision and plans for the metaverse. The more he shares those plans, the more excited we are to see how they'll turn out.
 
  Meta's announcement of its AI supercomputer is just one more piece of information that makes the picture clearer in our heads—it's another way the company is showing its continued commitment to making the metaverse a reality.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -82,4 +96,21 @@ thumbnail: https://thmb.techidaily.com/8122148ffac7fe0a0e1d193ba9a136b7cccae081b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-transforming-photos-and-videos-from-instagram-to-iphones-for-2024/"><u>[New] Transforming Photos and Videos From Instagram to iPhones for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-boost-interaction-with-crafted-ig-story-queries/"><u>[Updated] 2024 Approved Boost Interaction with Crafted IG Story Queries</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-connoisseurs-challenge-pick-the-prime-language-model/"><u>AI Connoisseurs' Challenge: Pick the Prime Language Model</u></a></li>
+<li><a href="https://win11.techidaily.com/elevate-your-gaming-better-performance-on-roblox-windows-edition/"><u>Elevate Your Gaming: Better Performance on Roblox Windows Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-ears-connecting-hearts-facebooks-audio-venture/"><u>Engaging Ears, Connecting Hearts: Facebook's Audio Venture</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-rules-and-unspoken-guides-to-online-friending/"><u>Hidden Rules and Unspoken Guides to Online Friending</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-a-complete-breakdown-of-lgs-premium-4k-screen-experience/"><u>In 2024, A Complete Breakdown of LG’s Premium 4K Screen Experience</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/leading-the-way-in-facebooks-video-exploration/"><u>Leading the Way in Facebook’s Video Exploration</u></a></li>
+<li><a href="https://win-able.techidaily.com/masterful-methods-to-mend-javascript-errors-in-your-discord-experience/"><u>Masterful Methods to Mend JavaScript Errors in Your Discord Experience</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95543824-9780834800274-mindful-learning/"><u>Mindful Learning | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/symbolic-savvy-on-social-media-a-look-at-facebooks-emoji-ecosystem/"><u>Symbolic Savvy on Social Media - A Look at Facebook’s Emoji Ecosystem</u></a></li>
+<li><a href="https://facebook.techidaily.com/unexpected-disclosure-have-my-phone-details-been-shared-on-fb/"><u>Unexpected Disclosure: Have My Phone Details Been Shared on FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-humanity-under-a-new-name-meta-evolves-from-facebook/"><u>Uniting Humanity Under a New Name - Meta Evolves From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/upcoming-trend-young-people-stepping-away-from-insta/"><u>Upcoming Trend: Young People Stepping Away From Insta</u></a></li>
+</ul></div>
 

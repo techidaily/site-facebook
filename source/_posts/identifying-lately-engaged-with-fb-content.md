@@ -1,7 +1,7 @@
 ---
 title: Identifying Lately Engaged with FB Content
-date: 2024-09-01T03:45:37.553Z
-updated: 2024-09-02T03:45:37.553Z
+date: 2024-11-25T11:42:09.259Z
+updated: 2024-11-27T08:08:37.739Z
 tags:
   - facebook
 categories:
@@ -30,7 +30,16 @@ thumbnail: https://thmb.techidaily.com/92290ca438acc7b53d6d463fb220788f23c7aae03
 3. Click on the**three dots** and choose**Activity log** from the context menu.  
 ![Activity Log option in the Facebook Profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Activity-Log.jpg)
 4. Select the**Videos you've watched** option.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 That's it. Here you will find all the recently watched videos.
 
@@ -52,6 +61,10 @@ That's it. Here you will find all the recently watched videos.
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Recently Watched Facebook Videos on Android and iOS
 
  It's very easy to view recently watched Facebook videos on an Android or iOS device. Here are the steps you need to follow:
@@ -59,15 +72,13 @@ That's it. Here you will find all the recently watched videos.
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 Close
 
 1. Launch the Facebook app on your iOS or Android device and log in to your account.
@@ -79,23 +90,18 @@ Close
 
  You'll now see all the videos you recently watched on your Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Filter Facebook Watched Videos by Date on Android and iOS
 
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
 
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
 1. Open the Activity log window on your Android or iOS device.
@@ -103,21 +109,15 @@ Close
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Never Lose Facebook Videos Again
 
  The disappointment of watching an exciting video on your Facebook Watch page to accidentally refresh the selection and lose it forever is very common nowadays. Fortunately, you can easily find recently watched Facebook videos using the above method.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -126,4 +126,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-from-static-to-dynamic-hyperlapse-video-techniques-for-2024/"><u>[New] From Static to Dynamic Hyperlapse Video Techniques for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-instagrams-guide-to-intellectual-property-in-music-for-2024/"><u>[New] Instagram's Guide to Intellectual Property in Music for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outube-creator-studio-unlocking-the-power-of-your-channel-for-2024/"><u>[New] YouTube Creator Studio Unlocking the Power of Your Channel for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-conquer-the-shadows-5-ways-to-fix-black-screen-with-obs-for-2024/"><u>[Updated] Conquer the Shadows 5 Ways to Fix Black Screen with OBS for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-which-streaming-application-leads-the-race-wirecast-or-obs/"><u>[Updated] In 2024, Which Streaming Application Leads the Race, Wirecast or OBS?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-videos-youtube-trailers-through-filmora/"><u>2024 Approved Elevate Your Videos YouTube Trailers Through Filmora</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/effortless-fix-for-error-0x8007002-during-windows-updates-easy-steps-inside/"><u>Effortless Fix for Error 0X80070#02 During Windows Updates | Easy Steps Inside</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-was-right-to-ban-donald-trump-but-not-indefinitely/"><u>Facebook Was Right to Ban Donald Trump but Not Indefinitely</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-expat-network-a-double-edged-sword/"><u>Facebook's Expat Network – A Double-Edged Sword?</u></a></li>
+<li><a href="https://facebook.techidaily.com/immediate-responses-to-prevent-long-term-damage-from-fb-hack/"><u>Immediate Responses to Prevent Long-Term Damage From FB Hack</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-fb-experience-best-mobile-settings/"><u>Optimize Your FB Experience: Best Mobile Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/restoring-access-a-guide-to-overcoming-sudden-fb-outages/"><u>Restoring Access: A Guide to Overcoming Sudden FB Outages</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-countdown-to-negative-news-on-fb/"><u>The Silent Countdown to Negative News on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-your-social-network-security-key/"><u>Transforming Your Social Network Security Key</u></a></li>
+</ul></div>
 

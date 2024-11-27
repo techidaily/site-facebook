@@ -1,7 +1,7 @@
 ---
 title: "Social Media Ghosting: How to Remove Past Entries"
-date: 2024-09-01T03:42:08.668Z
-updated: 2024-09-02T03:42:08.668Z
+date: 2024-11-25T07:08:53.019Z
+updated: 2024-11-27T12:49:32.999Z
 tags:
   - facebook
 categories:
@@ -29,9 +29,17 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
 
  Its image recognition technology can also identify images containing offensive gestures and whatnot. Apart from flagging the previous posts, it also alerts you if any damaging content appears online from your profiles.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2. Scrubber
 
 ![A visual for Scrubber's home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Scrubber.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The tool empowers you with its features to find out all the embarrassing posts, comments, and pictures you have published on your[social media accounts](https://www.makeuseof.com/free-social-media-management-apps/) . Moreover, it can detect the fake news shared on your profiles and save you from awkwardness.
 
@@ -39,17 +47,10 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
 
  While it doesn’t remove any content by itself, it provides a report flagging content containing profanity, innuendo, and mention of drugs or alcohol.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ## 3. Redact
 
 ![An image of the website homepage of Redact](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Redact.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
  This free app makes cleaning your social profiles a hassle-free task. You can delete various content like posts, images, comments, likes, and follows by using the tool. In addition to that, it lets you set up a recurring schedule for content deletion.
 
  The supported social platforms are Facebook, LinkedIn, Reddit, Twitter, Discord, Pinterest, Instagram, Telegram, Tinder, TikTok, Skype, Twitch, Disqus, and many more.
@@ -58,13 +59,14 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
 
  You can wipe out everything by deletion. Or, you may customize the items through keyword, content category, or sentiment. It also offers the preview mode that you can use to double-check before deletion.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4. TweetDelete
 
 ![An image representing the TweetDelete homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-TweetDelete.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  This service helps you delete your Twitter posts in bulk. You can set a schedule that will make the tool run automatically to delete tweets. You can remove tweets depending on some text it contains or the time of publishing.
 
  It is an ideal tool for removing any regrettable content in your Twitter account for professional or personal reasons. Apart from your tweets, you can also delete likes you have given to other users’ tweets.
@@ -74,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
 ## 5\. Facebook's Manage Posts Feature
 
 ![Image showing the Manage Posts section on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Facebook.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The Manage Activity feature on Facebook is a great way to clean up your profile by archiving or deleting posts in bulk. It lets you revisit, edit, and delete any post or comment you posted since joining the platform. To delete an old post on Facebook, follow these steps:
 
@@ -87,13 +93,14 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
 
  The best thing about this feature is the ample scope for customization; you can find an old post without any hassle.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Twitter Settings
 
 ![An image showing how to delete posts on Twitter](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Twitter.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Using the delete feature on Twitter, you can manually delete unwanted tweets. Follow these simple steps to remove old tweets that you don't want in your profile anymore.
 
 1. Go to your Twitter profile and browse through your posts.
@@ -104,6 +111,10 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
  For those who want to delete multiple tweets at once, Twitter doesn’t offer a batch delete option.
 
  If you want to start afresh with your current username, create another account with a temporary username. Then, switch the username and delete your old account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Manage Shared Content in LinkedIn
 
@@ -121,33 +132,23 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
 
 ![An image of the home page of Social Erase](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Social-Erase.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
  This extension is useful for deleting posts, messages, comments, and photos from Facebook and Twitter. It makes the mass deleting of unwanted content from these platforms seamless.
 
  You can delete your complete Facebook history or choose any particular month or year to delete all things you have posted during that time, straight from the activity log.
 
  For this extension to perform, the default language of your Facebook and Twitter profile should be English.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Fix Your Social Media Profiles
 
  Active social media users tend to post and share various things online, and some of those might be unprofessional. With the tools, extensions, and features mentioned here, you can remove such posts and make your social media profile look more professional.
 
  You may also want to use robust tools for scheduling posts on your social accounts, which will help you build your presence without needing to spend too much time online.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -156,4 +157,22 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-find-your-favorite-skype-ringtones-with-these-4-websites-for-2024/"><u>[Updated] Find Your Favorite Skype Ringtones with These 4 Websites for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-10-memetic-design-innovators-choices/"><u>[Updated] In 2024, 10 Memetic Design Innovators' Choices</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-crafting-the-perfect-introduction-15-viral-youtube-video-intros/"><u>[Updated] In 2024, Crafting the Perfect Introduction 15 Viral YouTube Video Intros</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-practical-ways-keeping-a-record-of-google-voice-interactions-for-2024/"><u>[Updated] Practical Ways Keeping a Record of Google Voice Interactions for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unbox-the-joy-of-9-premium-complete-christmas-movies-for-free/"><u>[Updated] Unbox the Joy of 9 Premium, Complete Christmas Movies for Free</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-vimeo-and-youtube-a-compreayer-of-their-core-philosophies/"><u>[Updated] Vimeo and YouTube A Compreayer of Their Core Philosophies</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-privacy-by-clearing-your-fb-watch-logs/"><u>Ensuring Privacy by Clearing Your FB Watch Logs</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-messenger-and-ig-direct-conversations-stay-unencrypted-until-2022/"><u>FB Messenger & IG Direct Conversations Stay Unencrypted Until 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-discover-intruder-in-your-online-space/"><u>How to Discover Intruder in Your Online Space</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-hash-tags-that-catapult-you-to-6k-views-on-youtube/"><u>In 2024, Hash Tags That Catapult You to 6K Views on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-the-silence-after-fbs-sound/"><u>In the Silence After FB's Sound</u></a></li>
+<li><a href="https://facebook.techidaily.com/invest-in-intelligence-10-free-apps-boosting-social-engagement/"><u>Invest in Intelligence: 10 Free Apps Boosting Social Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-metamorphosis-unveiling-the-top-4-social-transformations/"><u>Online Metamorphosis: Unveiling the Top 4 Social Transformations</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/optimizing-flight-a-list-of-essential-drone-accessories-for-2024/"><u>Optimizing Flight A List of Essential Drone Accessories for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/revamp-your-video-content-with-these-5-superior-mac-subtitle-creators/"><u>Revamp Your Video Content with These 5 Superior Mac Subtitle Creators!</u></a></li>
+</ul></div>
 

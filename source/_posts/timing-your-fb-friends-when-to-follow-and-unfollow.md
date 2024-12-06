@@ -1,7 +1,7 @@
 ---
 title: "Timing Your FB Friends: When to Follow & Unfollow?"
-date: 2024-11-26T12:11:06.833Z
-updated: 2024-11-26T20:12:36.513Z
+date: 2024-11-30T17:23:01.507Z
+updated: 2024-12-06T22:10:51.212Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/c2bd6ba622504fadfbcb07e0ff1b2943eed89d4f1
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Does Following Mean on Facebook?
@@ -41,10 +41,6 @@ Facebook's follow feature works in two ways:
 
  Interested? Keep reading. We're going to take a closer look at the follow feature and how to make it work for you.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Is the Follow Feature Necessary?
 
 There are two reasons to use the follow feature.
@@ -54,10 +50,6 @@ There are two reasons to use the follow feature.
  Today, it's a mess. We've all liked too many pages and got too many friends. Nothing about your news feed feels personal anymore. The Follow feature is one of the ways to make Facebook relevant again.
 
  Secondly, it lets you interact with people you're not connected with. In many ways, it's Facebook's answer to Twitter.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Follow and Unfollow on Facebook
 
@@ -83,9 +75,17 @@ There are two reasons to use the follow feature.
 
  On the next screen, you'll see a new set of tabs. Choose**Following** . If you don't see the option, it means you're not following anyone who isn't also a friend.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do You Let People Follow You?
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  So, following other people is straightforward enough, but how do you let other people follow your profile and posts?
 
@@ -100,6 +100,10 @@ This same page contains three other settings you need to be aware of:
 ## What Do Your Facebook Followers See?
 
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Followers can see any of your public content. Remember, this doesn't only refer to text-based posts, you can also choose to make pictures, albums, videos, and even your likes public knowledge.
 
@@ -120,16 +124,12 @@ This same page contains three other settings you need to be aware of:
  When a new person follows you who is not already one of your friends, you will receive a notification.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Can You Remove Facebook Followers?
 
 ![facebook block](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-block.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  So far, so good? Great. Next, how do you get rid of people who you don't want to follow you anymore?
 
@@ -162,24 +162,14 @@ This same page contains three other settings you need to be aware of:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-construct-humor-memes-via-adobe-for-2024/"><u>[New] Construct Humor Memes via Adobe for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-pre-purchase-key-facts-every-drone-buyer-should-know/"><u>[New] In 2024, Pre-Purchase Key Facts Every Drone Buyer Should Know</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-ingenious-wavework-wisdom-casters-companion/"><u>[New] Ingenious Wavework Wisdom Caster's Companion</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-how-to-optimize-audio-capture-top-5-windows-11-strategies/"><u>[Updated] 2024 Approved How to Optimize Audio Capture Top 5 Windows 11 Strategies</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-complete-process-for-selecting-top-online-photo-edits/"><u>[Updated] The Complete Process for Selecting Top Online Photo Edits</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/sd32022/"><u>如何轻松实现SD卡数据救助：3种最新策略（2022版）</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/aomei-backupper-error-code-troubleshooting-guide/"><u>AOMEI Backupper Error Code - Troubleshooting Guide</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effective-solutions-for-corsair-void-microphone-malfunctions/"><u>Effective Solutions for Corsair Void Microphone Malfunctions</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-oneplus-ace-2-pro-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the OnePlus Ace 2 Pro Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-controversial-move-to-disrupt-facebookinstagram-in-europe/"><u>Meta's Controversial Move to Disrupt Facebook/Instagram in Europe</u></a></li>
-<li><a href="https://facebook.techidaily.com/outsmarting-elite-social-schemes-with-tactics/"><u>Outsmarting Elite Social Schemes with Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-shield-when-will-messenger-get-end-to-end-encryption/"><u>Privacy Shield: When Will Messenger Get End-to-End Encryption?</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolved-major-league-baseball-the-show-21-servers-back-online/"><u>Resolved: Major League Baseball The Show 21 Servers Back Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/shared-spaces-online-7-methods-of-collective-engagement/"><u>Shared Spaces Online: 7 Methods of Collective Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-enigma-of-gone-from-facebook/"><u>The Enigma of Gone-From-Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-security-status-of-fb-chat-rooms/"><u>The Security Status of FB Chat Rooms</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-10-motivations-why-you-should-ditch-facebook/"><u>Top 10 Motivations: Why You Should Ditch Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-psychological-potential-with-isbms-modernized-cbt-framework/"><u>Unlock Psychological Potential with ISBM's Modernized CBT Framework</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-code-messengers-disappearing-dialogue/"><u>Unlocking the Code: Messenger’s Disappearing Dialogue</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-essential-tools-for-youtube-live-broadcasting-reveal-the-7-key-apps/"><u>[Updated] Essential Tools for YouTube LIVE Broadcasting Reveal the 7 Key Apps</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-meizu-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Meizu Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/controversial-titans-in-technology/"><u>Controversial Titans in Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-online-groups-the-dichotomy-of-personal-and-professional/"><u>Exploring Online Groups: The Dichotomy of Personal and Professional</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-gags-and-grins-techniques-in-parody-production/"><u>In 2024, Gags and Grins Techniques in Parody Production</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-non-facebook-direct-message-apps/"><u>Mastering Non-Facebook Direct Message Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-receiving-random-friends-suggestions/"><u>Stop Receiving Random Friends Suggestions</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/streamlining-your-video-creation-ootd-on-a-mac/"><u>Streamlining Your Video Creation OOTD on a Mac</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-showdown-unpacking-the-pros-and-cons-of-nintendo-switch-lite-vs-nintendo-switch-oled/"><u>The Showdown: Unpacking the Pros & Cons of Nintendo Switch Lite Vs Nintendo Switch OLED</u></a></li>
 </ul></div>
 

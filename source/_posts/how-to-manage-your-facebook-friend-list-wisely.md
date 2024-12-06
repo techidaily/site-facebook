@@ -1,7 +1,7 @@
 ---
 title: How To Manage Your Facebook Friend List Wisely
-date: 2024-08-28T03:22:18.112Z
-updated: 2024-08-29T03:22:18.112Z
+date: 2024-11-30T21:43:16.161Z
+updated: 2024-12-06T17:09:04.096Z
 tags:
   - facebook
 categories:
@@ -46,9 +46,6 @@ There are two reasons to use the follow feature.
 
 ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  You automatically follow all your friends. Anyone else, you need to follow manually.
 
  To follow someone, go to their profile page and click on the three dots below the lower right-hand corner of the person's cover photo, then hit**Follow** .
@@ -61,14 +58,11 @@ There are two reasons to use the follow feature.
 
 ![facebook unfollow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-unfollow.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Do You See Who You're Following?
 
@@ -76,9 +70,17 @@ No advertising on the website.
 
  On the next screen, you'll see a new set of tabs. Choose**Following** . If you don't see the option, it means you're not following anyone who isn't also a friend.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do You Let People Follow You?
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  So, following other people is straightforward enough, but how do you let other people follow your profile and posts?
 
@@ -91,8 +93,9 @@ This same page contains three other settings you need to be aware of:
 * **Public Profile Info:** Some of your profile---such as your profile picture, cover image, and short bio---is always public. This setting restricts who can comment on it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Do Your Facebook Followers See?
 
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
@@ -105,14 +108,8 @@ This same page contains three other settings you need to be aware of:
 
 ![facebook see following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-see-following.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## How to See Who Follows You on Facebook
 
  Seeing who is following you is much the same as seeing who you're following.
@@ -121,13 +118,13 @@ This same page contains three other settings you need to be aware of:
 
  When a new person follows you who is not already one of your friends, you will receive a notification.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## How Can You Remove Facebook Followers?
 
 ![facebook block](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-block.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  So far, so good? Great. Next, how do you get rid of people who you don't want to follow you anymore?
 
@@ -145,14 +142,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  If you're the type of person who has a large Facebook friends list while simultaneously liking endless brands and pages, you might find it useful. However, if you've decided to start deleting lots of Facebook friends and avoid liking too much content, you probably won't see any benefit to it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -161,4 +155,26 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-bending-space-and-time-vrs-cinematic-innovation-for-2024/"><u>[New] Bending Space and Time VR's Cinematic Innovation for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-precision-editing-picarts-techniques-for-background-subtraction/"><u>[New] Precision Editing PicArt's Techniques for Background Subtraction</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-rise-on-youtube-initiating-your-chanel-and-earning-pathway/"><u>[Updated] 2024 Approved Rise on YouTube Initiating Your Chanel & Earning Pathway</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-spotifys-1-artists-of-the-month/"><u>[Updated] In 2024, Spotify’s #1 Artists of the Month</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-vimeo-insight-where-streaming-meets-originality/"><u>2024 Approved Vimeo Insight Where Streaming Meets Originality</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-samsung-galaxy-a15-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Samsung Galaxy A15 4G | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/covert-creativity-easy-photo-fixes-for-starters/"><u>Covert Creativity Easy Photo Fixes for Starters</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/deep-dive-into-netgears-powerline-speed-champion-pl1200-aesthetic-vs-performance-analysis/"><u>Deep Dive Into Netgear's Powerline Speed Champion (PL1200) - Aesthetic vs Performance Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-hidden-drain-how-many-leaving/"><u>Facebook's Hidden Drain: How Many Leaving?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/funimate-video-downloader-review-for-2024/"><u>Funimate Video Downloader Review for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/germany-orders-facebook-to-stop-collecting-data-on-whatsapp-users/"><u>Germany Orders Facebook to Stop Collecting Data on WhatsApp Users</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-effortless-4k-video-editing-top-proxy-editing-apps-for-creators/"><u>New 2024 Approved Effortless 4K Video Editing Top Proxy Editing Apps for Creators</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-downloads-of-social-network-memories-from-facebook/"><u>Seamless Downloads of Social Network Memories From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/separating-fact-from-fiction-a-new-lens-on-facebook-reports/"><u>Separating Fact From Fiction: A New Lens on Facebook Reports</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-meets-business-unpacking-facebooks-8-workplace-features/"><u>Social Media Meets Business: Unpacking Facebook's 8 Workplace Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/tally-of-virtual-admirers-for-you/"><u>Tally of Virtual Admirers for You</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-users-facebook-assesses-news-feed-engagement/"><u>Understanding Users: Facebook Assesses News Feed Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/watch-out-screenshots-going-missing-in-messenger/"><u>Watch Out: Screenshots Going Missing in Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-my-facebook-account-disabled-6-possible-causes/"><u>Why Is My Facebook Account Disabled? 6 Possible Causes</u></a></li>
+</ul></div>
 

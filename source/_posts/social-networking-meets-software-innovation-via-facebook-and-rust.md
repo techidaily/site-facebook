@@ -1,7 +1,7 @@
 ---
 title: Social Networking Meets Software Innovation via Facebook and Rust
-date: 2024-11-26T10:25:53.972Z
-updated: 2024-11-26T19:56:18.225Z
+date: 2024-11-30T17:17:49.008Z
+updated: 2024-12-06T21:42:55.194Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Beloved Programming Language
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -61,17 +61,17 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-unleash-creativity-learning-sony-vegas-techniques-for-youtube-video-editing/"><u>[New] 2024 Approved Unleash Creativity Learning Sony Vegas Techniques for YouTube Video Editing</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-explore-and-capture-mountains-with-best-cameras/"><u>[New] In 2024, Explore and Capture Mountains with Best Cameras</u></a></li>
-<li><a href="https://facebook.techidaily.com/english-soccer-teams-are-boycotting-social-media-over-online-abuse/"><u>English Soccer Teams Are Boycotting Social Media Over Online Abuse</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhanced-digital-representation-now-with-oculus/"><u>Enhanced Digital Representation Now With Oculus</u></a></li>
-<li><a href="https://facebook.techidaily.com/harmonizing-social-media-and-playlists-facebooks-boombox-revelation/"><u>Harmonizing Social Media and Playlists: Facebook's Boombox Revelation</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-your-apple-iphone-13-pro-passcode-4-easy-methods-with-or-without-itunes-by-drfone-ios/"><u>In 2024, How to Unlock Your Apple iPhone 13 Pro Passcode 4 Easy Methods (With or Without iTunes)</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-16-from-oneplus-nord-n30-5g-to-other-android-devices-data-transfer-apps-to-switch-phone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 16 from OnePlus Nord N30 5G to Other Android Devices Data Transfer Apps to Switch Phone Easily | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/revolutionize-notes-with-mematic-software-for-2024/"><u>Revolutionize Notes with Mematic Software for 2024</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/solving-your-computers-endless-cycle-issues-effective-solutions-for-windows-10-81-and-8/"><u>Solving Your Computer's Endless Cycle Issues: Effective Solutions for Windows 10, 8.1, and 8</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-tutorial-changing-your-mobile-devices-apparent-gps-position/"><u>Step-by-Step Tutorial: Changing Your Mobile Device's Apparent GPS Position</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-impact-assessment-pros-and-cons-of-facebook-events/"><u>The Impact Assessment: Pros & Cons of Facebook Events</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-account-defenses-implement-2fa-for-email-services-like-googles-gmail-and-microsofts-outlook/"><u>Unlock Account Defenses: Implement 2FA for Email Services Like Google's Gmail and Microsoft's Outlook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/aximizing-video-quality-enabling-av1-on-youtube-for-2024/"><u>[New] Maximizing Video Quality Enabling AV1 on YouTube for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-easy-steps-to-securely-record-your-virtual-gatherings-with-google/"><u>[Updated] Easy Steps to Securely Record Your Virtual Gatherings with Google</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-break-it-down-free-techniques-to-go-frame-by-frame-on-youtube/"><u>[Updated] In 2024, Break It Down Free Techniques to Go Frame by Frame on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-arenas-metas-vs-blue-ticked-treasures/"><u>Authenticity Arenas: Metas Vs. Blue Ticked Treasures</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/create-effective-fb-video-ads-with-free-kit-for-2024/"><u>Create Effective FB Video Ads with FREE Kit for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/easy-guide-transforming-your-videos-format-with-top-online-converters/"><u>Easy Guide: Transforming Your Videos' Format with Top Online Converters</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-wearable-experiment-could-include-two-detachable-cameras/"><u>FB's Wearable Experiment: Could Include Two Detachable Cameras?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-ban-a-profile-from-your-facebook-page/"><u>How to Ban a Profile From Your Facebook Page</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-honor-90-pro-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Honor 90 Pro? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/project-pics-blend-outside-focus-with-radial-filters-psx/"><u>Project Pics Blend Outside Focus with Radial Filters PSX</u></a></li>
+<li><a href="https://facebook.techidaily.com/system-shutdown-fb-wa-ig-services-offline/"><u>System Shutdown: FB, WA, IG Services Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-unplugging-insights-from-instagrams-social-hiatus-push/"><u>The Art of Unplugging: Insights From Instagram's Social Hiatus Push</u></a></li>
 </ul></div>
 

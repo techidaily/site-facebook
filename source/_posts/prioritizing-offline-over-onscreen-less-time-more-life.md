@@ -1,7 +1,7 @@
 ---
 title: "Prioritizing Offline Over Onscreen: Less Time, More Life"
-date: 2024-08-28T03:22:09.175Z
-updated: 2024-08-29T03:22:09.175Z
+date: 2024-11-30T19:34:34.647Z
+updated: 2024-12-06T16:58:06.843Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,15 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 ![Facebook settings screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316389174_799620244463716_5216871409293574070_n.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook settings screen shot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316847752_840461140536450_1736017897063389414_n.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -43,6 +51,10 @@ Close
 
 Close
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Optimize Your Notification Settings
 
  In the same section of**Manage Your Time** , you can click on**Manage Your Notifications.** Options will open up for you to choose which notifications you want to receive. You'll be able to choose comments, tags, reminders, updates from friends, friend requests, as well as events and other promotions you wish (or don't wish) to be notified of.
@@ -50,32 +62,28 @@ Close
  When you're finished making your selection, your feed will be optimized to your preferences, and you'll receive fewer distractions. This will hopefully lead to you spending less time on the app.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Use Apps to Limit Your Social Media Use
 
 ![Woman using Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Woman-using-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  If you are still having trouble staying off Facebook, there is software available, such as apps and plugins that control how much time you are spending on social media. You just have to find the one that works for you and install it on your devices.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## If Nothing Works, Deactivate or Delete Facebook
 
  If you are still having trouble staying off Facebook, the best thing to do is to deactivate it or delete it. This will give you time to get used to being without the app so that you won't get tempted to use it.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -84,4 +92,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-navigating-vsco-for-visual-impact-in-media/"><u>[New] Navigating VSCO for Visual Impact in Media</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-androids-facetime-essentials-explained-for-2024/"><u>[Updated] Android's FaceTime Essentials Explained for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-harnessing-the-power-of-imagery-for-engaging-fb-slideshows-for-2024/"><u>[Updated] Harnessing the Power of Imagery for Engaging FB Slideshows for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-enhances-chat-with-groundbreaking-ar-tech/"><u>Facebook Enhances Chat With Groundbreaking AR Tech</u></a></li>
+<li><a href="https://extra-information.techidaily.com/framing-the-world-from-a-phone-angle/"><u>Framing the World From a Phone Angle</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-comeback-curriculum-learning-from-the-past/"><u>Instagram's Comeback Curriculum: Learning From the Past</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-strangers-out-of-your-facebook-nostalgia-view/"><u>Keep Strangers Out of Your Facebook Nostalgia View</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-friends-close-and-strangers-outdoorsy/"><u>Keeping Friends Close and Strangers Outdoorsy</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-web-of-deceit-spotting-bogus-facebook-accounts/"><u>Navigating the Web of Deceit: Spotting Bogus Facebook Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/sniffing-out-fabricated-facebook-presences/"><u>Sniffing Out Fabricated Facebook Presences</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-xiaomi-civi-3-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Xiaomi Civi 3 Device</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/top-techniques-live-streaming-games-via-obs-for-2024/"><u>Top Techniques Live-Streaming Games via OBS for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-smart-speakers-in-depth-analysis-and-reviews-by-tech-experts-zdnet/"><u>Top-Rated Smart Speakers : In-Depth Analysis & Reviews by Tech Experts | ZDNet</u></a></li>
+</ul></div>
 

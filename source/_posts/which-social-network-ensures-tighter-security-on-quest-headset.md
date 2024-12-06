@@ -1,7 +1,7 @@
 ---
 title: Which Social Network Ensures Tighter Security on Quest Headset?
-date: 2024-11-19T16:03:13.257Z
-updated: 2024-11-27T05:15:57.285Z
+date: 2024-12-02T18:54:47.194Z
+updated: 2024-12-06T17:24:33.606Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/ebac8749de86200184a77a3fa2bb901785d67bf12
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Understanding the Meta Account
@@ -34,19 +34,11 @@ thumbnail: https://thmb.techidaily.com/ebac8749de86200184a77a3fa2bb901785d67bf12
 
 ![The Meta Quest 2 controller still featuring the Oculus logo.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/artifacts-of-oculus.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Oculus still exists as an entity and does Meta’s VR software development. When they were their own company, there was such a thing as an “Oculus account” required to sign into the headsets. Some kind of account is necessary to do things like buy and manage apps, after all. However, Meta retired the Oculus account in lieu of a Facebook login requirement.
 
  Seeing the problems above, including vocal pushback from users, Meta[stopped requiring a Facebook login](https://www.meta.com/help/accounts/?utm%5Fsource=www.bing.com&utm%5Fmedium=dollyredirect) in August 2022\. Instead, they need a “Meta account.” But, if Meta owns Facebook, isn’t having a Meta account at least as bad as having a Facebook account from a privacy perspective?
 
  Some argue that there’s no real difference between using a Meta account and using a Facebook account from a privacy perspective. Others believe that the Meta account requirement is better than a Facebook account requirement. Trying to decide who’s right is less rewarding than presenting both sides of the discussion.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Meta Account Requirement Is Not Better
 
@@ -57,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/ebac8749de86200184a77a3fa2bb901785d67bf12
  There are a lot of[reasons to be concerned about Facebook](https://www.makeuseof.com/why-do-people-hate-facebook/) . It can be tempting to think that giving your data to anyone else is an improvement. But, Meta owns Facebook anyway. Let’s put it another way:
 
  Suppose that you know someone that you see at work as well as socially. There’s something you’re afraid to tell this person, so you tell them at work. This person might keep your secret around friends (or might not) but either way they still have the information. So, giving your information to Meta might just be giving your information to Facebook wearing a different hat.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Two Accounts for Double the Info
 
@@ -73,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/ebac8749de86200184a77a3fa2bb901785d67bf12
  Despite all of the criticisms of the move, Facebook accounts and Meta accounts are different. Yes, that does make a difference.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### VR and Social Media Are Different
@@ -87,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/ebac8749de86200184a77a3fa2bb901785d67bf12
  Friend suggestions were a good example of this in the days of the Facebook requirements. When a Facebook friend linked their accounts to a Quest, other Quest users in their Facebook network got notifications. This doesn’t happen when you sign in with a Meta account because your Meta account doesn’t know (or pretends not to know) who your Facebook friends are.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### You Don’t Need a Facebook Account
@@ -95,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/ebac8749de86200184a77a3fa2bb901785d67bf12
  So far, we’ve been weighing the cons of a Meta account against the cons of a Facebook account. However, since the Meta account option, you don’t need a Facebook account to use a Quest.
 
  If you want to use a Quest but[deleted your Facebook account](https://www.makeuseof.com/delete-facebook-on-android/) or never had one, you can do that now. Before, the only option was to create a Facebook account just to use your Quest.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Pick Your Poison
 
@@ -117,19 +117,24 @@ thumbnail: https://thmb.techidaily.com/ebac8749de86200184a77a3fa2bb901785d67bf12
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/astering-video-spin-a-comprehensive-2023-users-guide-to-youtube-angles/"><u>[New] Mastering Video Spin A Comprehensive 2023 User's Guide to YouTube Angles</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-minimizing-vr-nausea-effective-strategies/"><u>[Updated] Minimizing VR Nausea Effective Strategies</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-perfectly-blend-audiotracks-in-slideshows/"><u>2024 Approved How to Perfectly Blend Audiotracks in Slideshows</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-integrating-sound-a-comprehensive-approach-to-narration/"><u>2024 Approved Integrating Sound A Comprehensive Approach to Narration</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-considerations-before-exiting-social-spaces/"><u>Essential Considerations Before Exiting Social Spaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/exposing-the-covert-users-in-facebooks-decline/"><u>Exposing the Covert Users in Facebook's Decline</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-fix-icloud-lock-from-your-iphone-14-pro-max-and-ipad-by-drfone-ios/"><u>How to fix iCloud lock from your iPhone 14 Pro Max and iPad</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-drops-nft-support-on-instagram-and-facebook-after-short-trial/"><u>Meta Drops NFT Support on Instagram and Facebook After Short Trial</u></a></li>
-<li><a href="https://facebook.techidaily.com/rediscovering-previous-business-networking-events-on-facebook/"><u>Rediscovering Previous Business Networking Events on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-puzzles-the-nature-of-vague-disclosures/"><u>Social Media Puzzles - The Nature of Vague Disclosures</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-world-of-google-ar-accessories-and-beyond-for-2024/"><u>The World of Google AR Accessories, and Beyond for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-account-protection-effective-use-of-2fa-on-major-mail-services/"><u>Unlocking Account Protection: Effective Use of 2FA on Major Mail Services</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/vyncs-link-scrutiny-report-sturdy-surveillance-system-overshadowed-by-perplexing-billing-plans/"><u>Vyncs Link Scrutiny Report: Sturdy Surveillance System Overshadowed by Perplexing Billing Plans</u></a></li>
-<li><a href="https://win-info.techidaily.com/mpe-mkv-movavi/"><u>오토바이오에서 무료로 MPE 프리미퓰자를 MKV로 Movavi 변환</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-secrets-to-designing-impactful-igtv-thumbnails/"><u>[New] 2024 Approved Secrets to Designing Impactful IGTV Thumbnails</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-digital-illustration-turning-your-favorite-vimeo-videos-into-gifs/"><u>[New] Digital Illustration Turning Your Favorite Vimeo Videos Into GIFs</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-the-heart-of-vimeo-celebrating-independent-cinema/"><u>[Updated] In 2024, The Heart of Vimeo Celebrating Independent Cinema</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essential-how-to-for-youtube-comment-control/"><u>[Updated] The Essential How-To for YouTube Comment Control</u></a></li>
+<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-vivo-t2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/barely-spotted-breakthroughs-in-technology-heres-what-you-didnt-see/"><u>Barely Spotted Breakthroughs in Technology - Here's What You Didn't See</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-writing-and-publishing-on-facebook-multi-lang/"><u>Best Practices for Writing and Publishing on Facebook (Multi-Lang)</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-the-world-of-virtual-shopping-on-fb-fridays/"><u>Dive Into the World of Virtual Shopping on FB Fridays</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/eye-of-excellence-a-comprehensive-list-of-8k-cameras-for-2024/"><u>Eye of Excellence A Comprehensive List of 8K Cameras for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-restore-camera-functionality-on-an-hp-laptop-for-windows-11-users/"><u>How To Restore Camera Functionality on an HP Laptop for Windows 11 Users</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-choosing-the-right-video-sharing-platform-tiktok-vs-youtubes-shorts/"><u>In 2024, Choosing the Right Video Sharing Platform TikTok vs YouTubes' Shorts?</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-user-base-resists-app-tracking/"><u>IPhone User Base Resists App Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/lock-your-likes-making-photo-sharing-on-facebook-private/"><u>Lock Your Likes: Making Photo Sharing on Facebook Private</u></a></li>
+<li><a href="https://games-able.techidaily.com/retailer-regret-rescue-how-to-request-refunds-on-xbox/"><u>Retailer Regret Rescue: How to Request Refunds on Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-user-engagement-facebook-vs-apple-with-custom-linkages/"><u>Revolutionizing User Engagement: Facebook Vs. Apple with Custom Linkages</u></a></li>
+<li><a href="https://facebook.techidaily.com/searching-for-archived-facebook-communication/"><u>Searching for Archived Facebook Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-emergence-as-a-formidable-competitor-to-facebook/"><u>TikTok's Emergence as a Formidable Competitor to Facebook</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-correcting-incorrect-installation-of-amds-ryzen-master-tool/"><u>Troubleshooting Guide: Correcting Incorrect Installation of AMD's Ryzen Master Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-vk-the-russian-social-networks-essentials/"><u>Unveiling VK: The Russian Social Network's Essentials</u></a></li>
 </ul></div>
 

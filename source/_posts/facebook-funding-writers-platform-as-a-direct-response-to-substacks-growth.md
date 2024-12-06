@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2024-11-19T23:50:13.702Z
-updated: 2024-11-26T20:21:48.036Z
+date: 2024-12-04T20:32:29.678Z
+updated: 2024-12-06T21:36:02.924Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Growing the Independent Creator Space
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -67,19 +67,20 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-instructional-guide-modify-comment-accessibility-on-youtube/"><u>[New] In 2024, Instructional Guide Modify Comment Accessibility on YouTube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-mastering-the-art-of-obtaining-facebooks-prestigious-blue-badge/"><u>[Updated] In 2024, Mastering the Art of Obtaining Facebook’s Prestigious Blue Badge</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-top-10-budget-friendly-cloud-service-providers/"><u>[Updated] In 2024, Top 10 Budget-Friendly Cloud Service Providers</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unveiling-audio-magic-the-gradual-introduction-with-audition/"><u>[Updated] Unveiling Audio Magic The Gradual Introduction with Audition</u></a></li>
-<li><a href="https://extra-information.techidaily.com/acquiring-fcp-for-zip-legal-strategies-explained-for-2024/"><u>Acquiring FCP for Zip Legal Strategies Explained for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/elite-endorsements-whos-the-crown-jewel-meta-verified-or-blue-badged/"><u>Elite Endorsements: Who's the Crown Jewel – Meta Verified or Blue Badged?</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-past-connections-on-facebook/"><u>Exploring Past Connections on Facebook</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-tecno-spark-go-2023-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Tecno Spark Go (2023) Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-note-visualization-obsidian-canvas-techniques/"><u>Mastering Note Visualization: Obsidian Canvas Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/muting-the-mobile-browser-in-facebook-app/"><u>Muting the Mobile Browser in Facebook App</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-transform-your-videos-a-beginners-guide-to-time-lapse-in-final-cut-pro-for-2024/"><u>New Transform Your Videos A Beginners Guide to Time Lapse in Final Cut Pro for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/prevent-ploys-know-the-signs-of-these-14-facebook-frauds/"><u>Prevent Ploys: Know the Signs of These 14 Facebook Frauds</u></a></li>
-<li><a href="https://facebook.techidaily.com/reconstructing-past-interactions-a-guide-to-social-media-archives-on-facebook/"><u>Reconstructing Past Interactions: A Guide to Social Media Archives on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/transformative-metadata-the-top-4-tools-for-business-breakthroughs/"><u>Transformative Metadata: The Top 4 Tools for Business Breakthroughs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unmatched-gaming-laptops-top-4k-picks-reviewed-for-2024/"><u>[New] Unmatched Gaming Laptops - Top 4K Picks Reviewed for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-guffaw-guild-robotic-raiders/"><u>[Updated] 2024 Approved Guffaw Guild Robotic Raiders</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-seamless-audio-junction-expert-logic-pro-x-tips/"><u>2024 Approved Seamless Audio Junction Expert Logic Pro X Tips</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-hearts-online-facebooks-pioneering-dating-innovations/"><u>Connecting Hearts Online: Facebook’s Pioneering Dating Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/dial-down-the-intensity-of-targeted-advertisement-screens/"><u>Dial Down the Intensity of Targeted Advertisement Screens</u></a></li>
+<li><a href="https://facebook.techidaily.com/expedited-transition-tactics-for-facebook-user-accounts/"><u>Expedited Transition Tactics for Facebook User Accounts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-blaze-pro-5g-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Blaze Pro 5G?</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-breaks-tradition-whatsapp-delivers-2fa-codes/"><u>Instagram Breaks Tradition: WhatsApp Delivers 2FA Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-new-password-implementation-on-facebook/"><u>Instructions: New Password Implementation on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-cannot-log-in-to-your-facebook-profile/"><u>Troubleshooting: Cannot Log In to Your Facebook Profile</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ultimate-eye-candy-for-digital-performances/"><u>Ultimate Eye Candy for Digital Performances</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ultimate-guide-setting-up-your-home-theatre-for-the-super-bowl-experience/"><u>Ultimate Guide: Setting Up Your Home Theatre for the Super Bowl Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-your-audience-for-effective-social-media-marketing/"><u>Understanding Your Audience for Effective Social Media Marketing</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/unlock-your-creativity-with-manycam-the-ultimate-guide-to-online-broadcasting-and-digital-webcams/"><u>Unlock Your Creativity with ManyCam - The Ultimate Guide to Online Broadcasting and Digital Webcams</u></a></li>
 </ul></div>
 

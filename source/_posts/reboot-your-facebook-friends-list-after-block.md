@@ -1,7 +1,7 @@
 ---
 title: Reboot Your Facebook Friends List After Block
-date: 2024-11-23T04:07:34.008Z
-updated: 2024-11-27T10:52:02.135Z
+date: 2024-12-01T19:31:35.774Z
+updated: 2024-12-06T19:15:40.240Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Unblock Someone on Facebook
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 ![Facebook Blocked Users 2021](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Blocked-Users-2021.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Notice that the**Blocking** page has several types of blocking. Anyone in**Block users** cannot see what you post, tag you, chat with you, or send you a friend request. However, you may still see that person if you're both in a group or use the same game.
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
  Use the right option for the situation and you shouldn't have to worry about unblocking and refriending people in the future. Follow our[guide to Facebook blocking](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) for more help.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Refriend Someone on Facebook After Unblocking Them
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 ![Facebook Send Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/Facebook-Send-Friend-Request.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Click that to send them a new friend request; if they accept, you'll be friends again. However, keep in mind that if you've had a bad interaction with this person, they may delete your request. If they do, Facebook provides the**Mark as Spam** option to them, which prevents you from sending more friend requests.
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
  Finally, there's also a chance that your former friend deactivated their Facebook account while you had them blocked. To find out if this is the case, try asking a mutual friend if they're still friends with the person you had blocked. If they aren't using Facebook anymore, you'll have to connect with them elsewhere.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Refriending on Facebook Is Possible, Even After Blocking
@@ -101,24 +101,18 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-revenue-breakdown-cpm-insights/"><u>[New] 2024 Approved YouTube Revenue Breakdown CPM Insights</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-asmrs-upside-exploring-its-health-impacts/"><u>[New] ASMR's Upside Exploring Its Health Impacts</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-secrets-to-dynamic-and-effective-igtv-covers/"><u>[Updated] 2024 Approved Secrets to Dynamic & Effective IGTV Covers</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-proving-your-phones-ability-ios-11-camera-enhancements/"><u>[Updated] Proving Your Phone's Ability IOS 11 Camera Enhancements</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mplayer-xtreme-next-gen-media-player/"><u>2024 Approved MPlayer Xtreme Next-Gen Media Player</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-and-google-face-the-call-for-greater-regulation-against-fraudulent-ads/"><u>Facebook & Google Face the Call for Greater Regulation Against Fraudulent Ads</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-locked-samsung-galaxy-s24plus-phone-by-drfone-android/"><u>How to Reset a Locked Samsung Galaxy S24+ Phone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-gigglegallery-craft-and-share-your-own-funny-faces/"><u>In 2024, GiggleGallery Craft and Share Your Own Funny Faces</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-itel-a70-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Itel A70 Phone?</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-frozen-facebook-accounts/"><u>Navigating the Maze of Frozen Facebook Accounts</u></a></li>
-<li><a href="https://win-able.techidaily.com/quick-tricks-to-boost-your-dayz-frame-rate-seamlessly-and-efficiently/"><u>Quick Tricks to Boost Your DayZ Frame Rate Seamlessly & Efficiently</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-content-meta-drops-in-insta-and-fb-experiment/"><u>Revolutionizing Content: Meta Drops in Insta & FB Experiment</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-every-memory-complete-download-of-facebook-records/"><u>Securing Every Memory: Complete Download of Facebook Records</u></a></li>
-<li><a href="https://facebook.techidaily.com/shared-spaces-a-new-era-for-fb-and-instagram/"><u>Shared Spaces: A New Era for FB and Instagram</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/simple-instructions-to-activate-bluetooth-connectivity-for-windows-11-and-10-users/"><u>Simple Instructions to Activate Bluetooth Connectivity for Windows 11 and 10 Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-synergy-facebook-and-instagrams-new-alliance/"><u>Social Synergy: Facebook & Instagram's New Alliance</u></a></li>
-<li><a href="https://facebook.techidaily.com/solutions-for-disabled-fb-notifications/"><u>Solutions for Disabled FB Notifications</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-identifying-fb-banned-acquaintances/"><u>The Ultimate Guide to Identifying FB Banned Acquaintances</u></a></li>
-<li><a href="https://facebook.techidaily.com/unconfirmed-social-giant-tightens-ad-standards/"><u>Unconfirmed: Social Giant Tightens Ad Standards</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-navigating-to-the-leading-free-accurate-srt-translators-online/"><u>[New] Navigating to the Leading Free, Accurate SRT Translators Online</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-safeguard-your-calls-best-free-and-secure-video-chat-services-for-ios-and-android/"><u>2024 Approved Safeguard Your Calls Best Free and Secure Video Chat Services for iOS & Android</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/add-cinematic-shake-to-images-using-ps/"><u>Add Cinematic Shake to Images Using PS</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-legitimacy-of-security-email-at-facebookmailcom-for-fb/"><u>Assessing Legitimacy of Security Email at facebookmail.com for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-trailblazer-finding-friendly-face-on-fb/"><u>Digital Trailblazer: Finding Friendly Face on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/evasive-internet-use-top-3-places-without-facebook/"><u>Evasive Internet Use: Top 3 Places Without Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-the-tiktok-threat-to-its-revenue-streams/"><u>Facebook Faces the TikTok Threat to Its Revenue Streams</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-newest-intel-wireless-ac-9560-driver-update-for-enhanced-connectivity/"><u>Get the Newest Intel Wireless AC 9560 Driver Update for Enhanced Connectivity</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-nokia-c210-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Nokia C210 to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Xiaomi Redmi Note 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/revolutionary-drone-motors-the-quintessential-guide-to-flight-excellence/"><u>Revolutionary Drone Motors The Quintessential Guide to Flight Excellence</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/streamlining-content-tweeting-videos-on-snapchat/"><u>Streamlining Content Tweeting Videos on Snapchat</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-integration-for-instagrams-2fa-code-delivery/"><u>WhatsApp Integration for Instagram's 2FA Code Delivery</u></a></li>
 </ul></div>
 

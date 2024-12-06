@@ -1,7 +1,7 @@
 ---
 title: How To Stop Using Facebook's In-App Browser
-date: 2024-08-28T03:20:55.452Z
-updated: 2024-08-29T03:20:55.452Z
+date: 2024-12-04T22:33:01.293Z
+updated: 2024-12-06T19:06:05.256Z
 tags:
   - facebook
 categories:
@@ -15,10 +15,18 @@ thumbnail: https://thmb.techidaily.com/b30e132a57c74da538cd27310069cce3986f42cbd
 
 ## How To Stop Using Facebook's In-App Browser
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [Can You Disable Facebook's In-App Browser?](#can-you-disable-facebook-39-s-in-app-browser)
 * [How to Turn Off Facebook's Mobile Browser](#how-to-turn-off-facebook-39-s-mobile-browser)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -29,9 +37,9 @@ thumbnail: https://thmb.techidaily.com/b30e132a57c74da538cd27310069cce3986f42cbd
  The Facebook app opens links in its built-in browser by default. But what if you want to use your own preferred browser app instead? Here's what you need to know about disabling Facebook's in-app browser.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can You Disable Facebook's In-App Browser?
 
  Facebook used to give app users more control over the links they opened, allowing you to open most links in an external browser. However, when we tested the feature in 2024, we saw that this is no longer the case on both the Android and iOS apps.
@@ -41,9 +49,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  So, while you can turn off Facebook's in-app browser for message links, other links will continue to open in the app's browser.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Turn Off Facebook's Mobile Browser
 
  Disabling Facebook's in-app browser is simple. However, the privacy setting to open up links externally only works for links sent in messages.
@@ -75,14 +83,11 @@ Close
 
  Unfortunately, the ability to completely disable Facebook's in-app browser is no longer included in the app. But you can use your privacy settings to disable the built-in browser for message links.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -91,4 +96,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-x-recorder-for-pc-user-friendly-audio-logger/"><u>[Updated] In 2024, X-Recorder for PC User-Friendly Audio Logger</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-focal-flares-amplifying-your-footage-visually/"><u>2024 Approved Focal Flares Amplifying Your Footage Visually</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-integration-mastery-3-proven-methods-for-boosting-excel-with-chatgpt/"><u>AI Integration Mastery: 3 Proven Methods for Boosting Excel with ChatGPT</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/boosting-visibility-key-steps-in-submitting-on-reddit-for-2024/"><u>Boosting Visibility Key Steps in Submitting on Reddit for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-enable-sound-in-cyberpunk-2077-after-upgrading-to-windows-11/"><u>How to Enable Sound in Cyberpunk 2077 After Upgrading to Windows 11</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-crafting-the-ideal-whatsapp-ringtone-ios-and-android-guide/"><u>In 2024, Crafting the Ideal WhatsApp Ringtone - iOS & Android Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/principles-of-producing-potent-online-partnerships-fb/"><u>Principles of Producing Potent Online Partnerships (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-shenanigans-detection-of-fraudulent-entities/"><u>Social Media Shenanigans: Detection of Fraudulent Entities</u></a></li>
+<li><a href="https://facebook.techidaily.com/stall-on-trump-suspension-by-facebook-oversight-entity/"><u>Stall on Trump Suspension by Facebook Oversight Entity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-understated-like-tactic-in-digital-social-circles/"><u>The Understated Like Tactic in Digital Social Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-targets-social-media-giants-in-free-speech-lawsuit/"><u>Trump Targets Social Media Giants in Free Speech Lawsuit</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unbeatable-summer-movie-list-10-familial-classics-for-2024/"><u>Unbeatable Summer Movie List 10 Familial Classics for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unveiling-the-allure-of-apples-latest-creation-the-high-end-ipad-pro-m4/"><u>Unveiling the Allure of Apple's Latest Creation: The High-End iPad Pro (M4)</u></a></li>
+</ul></div>
 

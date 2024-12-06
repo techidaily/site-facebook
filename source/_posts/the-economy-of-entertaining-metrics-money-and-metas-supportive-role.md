@@ -1,7 +1,7 @@
 ---
 title: "The Economy of Entertaining: Metrics, Money & Meta's Supportive Role"
-date: 2024-08-28T03:15:19.778Z
-updated: 2024-08-29T03:15:19.778Z
+date: 2024-11-29T22:35:44.745Z
+updated: 2024-12-06T21:46:46.604Z
 tags:
   - facebook
 categories:
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/90e284fb29c37a4c0c2a2e6970ee3fa6b56745fa4
 
 ![Woman Taking a Selfie in Room](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Woman-Taking-a-Selfie.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Meta is paying creators for Reels, improving how it pays them, and providing them with insights to better understand how their Reels perform.
 
  The announcement came in the form of a[Meta blog post](https://web.facebook.com/creators/reels-content-monetization-updates?%5Frdc=1&%5Frdr) on May 4, 2022\. It read:
@@ -39,15 +43,24 @@ thumbnail: https://thmb.techidaily.com/90e284fb29c37a4c0c2a2e6970ee3fa6b56745fa4
 
  And in its Q1 2022 earnings call, Meta revealed that users spend 20% of their time on Reels on Instagram and 50% of their time on videos on Facebook. That proves that there are earning opportunities for creators in Reels.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Meta Is Helping Creators Make Money Through Reels
 
 ![black woman taking selfie with iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/black-woman-taking-selfie-with-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  There are several ways that Meta is improving the way creators can monetize on Reels, primarily through its invite-only incentives programs for Facebook and Instagram, Reels Play. These include:
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Restructuring the Payments Process for Creators
 
  Meta is changing how it calculates payouts for creators on its Reels Play bonus programs. This ensures that even creators with smaller audiences are adequately rewarded, as long as they produce original Reels of a high standard that resonates with people.
@@ -58,10 +71,6 @@ thumbnail: https://thmb.techidaily.com/90e284fb29c37a4c0c2a2e6970ee3fa6b56745fa4
 
  Meta's restructuring of payments in its bonus program will ensure that the creators in the program are paid out in line with the content they produce instead of the number of followers they have.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ### 2\. New "Challenge" Option for Facebook Reels
 
  Facebook has launched “Challenges”, an incentive that helps creators in the bonus program unveil multiple ways to earn through their content by taking part in a series of challenges. Creators can make up to $4,000 a month through Challenges alone.
@@ -72,18 +81,12 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  When a new month begins, everything is reset, and creators start a new set of challenges.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. Expanding Overlay Ads for Facebook Reels
 
  After rolling out tests of overlay ads on Reels in February 2022, Facebook is expanding them to more creators. Overlay ads are an opportunity for creators who already monetize their Facebook videos with in-stream ads to earn more money as it makes their Reels available to advertisers.
 
  Facebook plans to expand overlay ads to more creators over time. It also says it will look into opportunities for eligible creators to earn a share of the revenue from overlay ads attached to Reels cross-posted from Instagram to Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Insights for Reels Play Creators on Facebook
 
  To help creators in the Reels Play program keep track of how their Reels are performing, Facebook is introducing insights designed specifically for this program.
@@ -93,22 +96,20 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
  This will help them gauge how many more plays they need to earn for a particular challenge to progress to the next one and continue earning.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Is Increasing Earning Opportunities for Creators
 
  Social media can be a gold mine for those who take content creation seriously and know how to grow and keep their followers engaged.
 
  While creators have opportunities to earn money through brand sponsorships and campaigns, Meta is giving its creators even more opportunities to monetize their Reels content.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,4 +118,24 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-prime-platforms-elevating-youtube-success/"><u>[Updated] In 2024, Prime Platforms Elevating YouTube Success</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-demystifying-complexities-a-guide-to-understanding-slug-lines/"><u>2024 Approved Demystifying Complexities A Guide to Understanding Slug Lines</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-with-conciseness-the-essential-smart-list-for-users/"><u>Connecting with Conciseness: The Essential SMART List for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-covid-misinformation-a-roadmap-for-social-networks/"><u>Curbing COVID Misinformation: A Roadmap for Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-potential-partners-in-a-click-facebooks-innovations-for-singles/"><u>Discovering Potential Partners in a Click: Facebook’s Innovations for Singles</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-teardown-tactics-for-social-media-business-pages/"><u>Effective Teardown Tactics for Social Media Business Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tech-updates-forgotten-the-top-4-innovations-to-remember/"><u>Essential Tech Updates Forgotten: The Top 4 Innovations to Remember</u></a></li>
+<li><a href="https://app-tips.techidaily.com/exploring-the-paradox-how-generative-ai-could-increase-labor-demand-despite-efficiency-goals/"><u>Exploring the Paradox: How Generative AI Could Increase Labor Demand Despite Efficiency Goals</u></a></li>
+<li><a href="https://windows11.techidaily.com/exploring-windows-11s-admin-tools/"><u>Exploring Windows 11'S Admin Tools</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Honor Magic 6 Lite? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/interpreting-differences-360-and-virtual-reality-cinematography/"><u>Interpreting Differences 360° and Virtual Reality Cinematography</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-online-identity-consequences-free/"><u>Is Online Identity Consequences-Free?</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-messaging-innovations-roll-out-on-fb-messenger-and-instagram/"><u>New Messaging Innovations Roll Out on FB Messenger & Instagram</u></a></li>
+<li><a href="https://network-issues.techidaily.com/overwatch-displays-error-inadequate-graphics-hardware/"><u>Overwatch Displays Error: Inadequate Graphics Hardware</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rediscovering-elegance-in-functionality-with-samsung-galaxy-s21-a-strategic-retreat/"><u>Rediscovering Elegance in Functionality with Samsung Galaxy S21: A Strategic Retreat?</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-not-to-overlook-when-quitting-social-sites/"><u>Steps Not To Overlook When Quitting Social Sites</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/tiktoks-hidden-treasures-grab-em-all-for-free-for-2024/"><u>TikTok's Hidden Treasures Grab 'Em All for Free for 2024</u></a></li>
+</ul></div>
 

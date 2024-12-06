@@ -1,7 +1,7 @@
 ---
 title: "Narrating Visuals: Auto-Captioning for Instagram & FB"
-date: 2024-11-24T07:49:40.379Z
-updated: 2024-11-27T06:39:28.623Z
+date: 2024-11-30T18:29:47.899Z
+updated: 2024-12-06T16:16:11.585Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/a5bc9c78cbf7ddebb3c4b881340c3ed8f01e0b70f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Use Album Descriptions as Captions on Facebook
 
  On your phone or desktop app, log in to your Facebook profile, go to your**Photos** and either create or find an album you want.
@@ -39,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/a5bc9c78cbf7ddebb3c4b881340c3ed8f01e0b70f
 ![Editing Description of Facebook Photo Album](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/editing-description-of-facebook-photo-album.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  It's a simple way to add a caption to multiple photos on Facebook as you upload them. Then, you can give each photo its own caption, if you want to share extra details with viewers.
@@ -54,13 +58,13 @@ thumbnail: https://thmb.techidaily.com/a5bc9c78cbf7ddebb3c4b881340c3ed8f01e0b70f
 
 ![Tailwind Text Options for Facebook Photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/tailwind-text-options-for-facebook-photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Then, you just design the perfect layout and add the album and photo information in the fields in the right sidebar. When it comes to text, you can add a title, subtitle, and call to action.
 
  Once the photos are on Facebook, you may need to tweak their captions, but most of the work has been done for you—and quite tastefully.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Upload Photos to Facebook From File Management Apps
 
@@ -75,24 +79,20 @@ thumbnail: https://thmb.techidaily.com/a5bc9c78cbf7ddebb3c4b881340c3ed8f01e0b70f
 ![Picture Open on Google Photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/picture-open-on-google-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Adding Caption to Facebook Post From Google Photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/adding-caption-to-facebook-post-from-google-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Adding Captions to Individual Pictures on Google Photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/adding-captions-to-individual-pictures-on-google-photos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  You can use this method to post multiple pictures on Facebook with captions. Once again, check them after uploading to make sure their details are correct.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Learn How to Add Captions and Other Features to Photos on Facebook
 
@@ -115,24 +115,14 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-channel-studio-upgrade-vs-beta-shift-for-2024/"><u>[New] Elevate Your Channel Studio Upgrade Vs. Beta Shift for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-exquisite-photo-amplification-web-and-phone-edition-for-2024/"><u>[New] Exquisite Photo Amplification Web & Phone Edition for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-srt-to-sub-mastery-unveiling-3-key-strategies/"><u>[New] SRT-to-SUB Mastery Unveiling 3 Key Strategies</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-stepwise-guide-to-convert-vimeo-media-to-mp3-for-2024/"><u>[Updated] Stepwise Guide to Convert Vimeo Media to MP3 for 2024</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/3-ways-to-track-apple-iphone-7-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>3 Ways to Track Apple iPhone 7 without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Infinix Hot 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/elite-engagements-unpacking-verified-metas-vs-blue-badges-battlegrounds/"><u>Elite Engagements: Unpacking Verified Metas Vs. Blue Badges Battlegrounds</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-purity-5-must-try-methods/"><u>Facebook Purity: 5 Must-Try Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-latest-hub-podcast-and-live-audio-expansion/"><u>Facebook's Latest Hub: Podcast & Live Audio Expansion</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-htc-vive-comfort-strategies-for-a-smoother-ride/"><u>In 2024, HTC Vive Comfort Strategies for a Smoother Ride</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-metas-enhanced-privacy-policy-changes/"><u>Inside Meta's Enhanced Privacy Policy Changes</u></a></li>
-<li><a href="https://facebook.techidaily.com/instructions-editing-account-details-on-facebook/"><u>Instructions: Editing Account Details on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-your-community-clean-mastery-of-new-facebook-group-policies/"><u>Keeping Your Community Clean: Mastery of New Facebook Group Policies</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/newly-revealed-lead-presence-in-aio-radiators-causes-caseking-to-cease-sales-of-barrow-dabel-products/"><u>Newly Revealed Lead Presence in AIO Radiators Causes CaseKing to Cease Sales of Barrow Dabel Products</u></a></li>
-<li><a href="https://facebook.techidaily.com/revealing-hidden-blacklist-entities-on-facebook-platform/"><u>Revealing Hidden Blacklist Entities on Facebook Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-chats-facebook-introduces-messenger-and-insta-tweaks/"><u>Revolutionizing Chats: Facebook Introduces Messenger & Insta Tweaks</u></a></li>
-<li><a href="https://windows11.techidaily.com/surge-speed-settings-preventing-unexpected-download-plunges/"><u>Surge Speed Settings: Preventing Unexpected Download Plunges</u></a></li>
-<li><a href="https://facebook.techidaily.com/switching-your-facebook-page-for-a-modern-identity/"><u>Switching Your Facebook Page for a Modern Identity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-owcs-mercury-pro-unrivaled-storage-experience/"><u>The Definitive Guide to OWC's Mercury Pro - Unrivaled Storage Experience</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-whats-cooking-10-viral-food-scenes-on-tiktok/"><u>[New] In 2024, What's Cooking? 10 Viral Food Scenes on TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-discreet-content-filtering-by-fb/"><u>Deciphering the Discreet Content Filtering by Fb</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/expert-guidance-on-computing-equipment-toms-hardware-wisdom/"><u>Expert Guidance on Computing Equipment - Tom's Hardware Wisdom</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145974820-goats-and-cryptos-zuckerbergs-unique-choice-for-a-pet/"><u>Goats and Cryptos? Zuckerberg’s Unique Choice for a Pet</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-honor-magic-5-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Honor Magic 5</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-i-screen-mirroring-apple-iphone-13-to-tvlaptop-drfone-by-drfone-ios/"><u>In 2024, How Can I Screen Mirroring Apple iPhone 13 to TV/Laptop? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-honor-play-40c-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Honor Play 40C to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-unplugged-and-back-online/"><u>Instagram Unplugged and Back Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/power-play-enhance-page-oversight-by-appointing-an-admin/"><u>Power Play: Enhance Page Oversight by Appointing an Admin</u></a></li>
 </ul></div>
 

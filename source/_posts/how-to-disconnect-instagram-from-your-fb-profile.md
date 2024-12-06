@@ -1,7 +1,7 @@
 ---
 title: How to Disconnect Instagram From Your FB Profile
-date: 2024-08-28T03:20:54.398Z
-updated: 2024-08-29T03:20:54.398Z
+date: 2024-12-05T21:23:25.443Z
+updated: 2024-12-06T17:17:25.788Z
 tags:
   - facebook
 categories:
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/c9c3286561c0cb162a6f36b6b19f491a65ddd3daf
 
 ![Instagram settings page new](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/instagram-settings-page-new.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Instagram accounts center screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/instagram-accounts-center-screenshot.jpg)
 
 ![Meta connected experience accounts page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/meta-connected-experience-accounts-page.jpg)
@@ -45,6 +49,10 @@ Close
 
  Removing your Facebook or Instagram account from the Accounts Center is not the same as[deleting or deactivating your Instagram account](https://www.makeuseof.com/tag/deactivate-delete-instagram-account/) . You will need to follow different steps to do this.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Remove Instagram Posts From Facebook
 
  If you want to remove your existing Instagram posts from your Facebook profile, there are two ways you could go about it.
@@ -63,6 +71,10 @@ Close
 
 ![Facebook manage post page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-manage-post-page-screenshot.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
 1. Tap the**ellipsis icon** on your profile.
@@ -74,47 +86,34 @@ Close
  You'll see all the posts you've shared from other apps. Mark all the ones posted from Instagram and tap**Trash** at the bottom right of your screen. Facebook will move all the photos to trash and automatically delete them after 30 days.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What to Know Before Disconnecting Your Accounts
 
 ![Instagram on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/instagram-on-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  If you use both Instagram and Facebook, you may have noticed they are connected in many ways. You can cross-share posts and stories, use your Facebook Login to access Instagram, and find your Facebook friends on Instagram. These features can be convenient and help you reach a wider audience with your content.
 
  However, connecting your accounts also means sharing more data between the two platforms. This can affect your privacy and control over who sees your personal information and content. You may also prefer to have different audiences on each platform and tailor your content accordingly.
 
  Disconnecting your Instagram account from Facebook enhances your privacy and allows for more independent account management across the platforms. However, you will lose some of the convenience and features that come with syncing your accounts, such as cross-sharing and login options.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Should You Unsync Your Facebook and Instagram Accounts?
 
  There is no right or wrong answer when it comes to whether you should disconnect your Facebook and Instagram accounts. It all depends on your preferences and what you want to get out of the two social networks.
 
  If you want to keep your Facebook and Instagram separate, follow the steps above to unlink your accounts. If you later decide that you want to link them again, you can always use the Accounts Center to link them again.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,4 +122,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/2024-approved-revolutionize-chromebooks-tone-with-our-essential-list-of-extensions/"><u>2024 Approved Revolutionize Chromebook's Tone with Our Essential List of Extensions</u></a></li>
+<li><a href="https://windows11.techidaily.com/achieving-superior-desktop-images-in-windows-11/"><u>Achieving Superior Desktop Images in Windows 11</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-samsung-galaxy-a24-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Samsung Galaxy A24</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-joins-the-rust-foundation-to-help-grow-the-programming-language/"><u>Facebook Joins the Rust Foundation to Help Grow the Programming Language</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fix-your-league-of-legends-game-crashes-fast-solutions-inside/"><u>Fix Your League of Legends Game Crashes: Fast Solutions Inside!</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-samsung-galaxy-a14-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Samsung Galaxy A14 5G via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-paying-for-verified-status-logical/"><u>Is Paying for Verified Status Logical?</u></a></li>
+<li><a href="https://app-tips.techidaily.com/mastering-the-future-of-ai-in-business-essential-read-for-singapores-smb-workforce-training-expert-advice-by-zdnet/"><u>Mastering the Future of AI in Business: Essential Read for Singapore's SMB Workforce Training – Expert Advice by ZDNET</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1726030262041-mp3/"><u>MP3ファイルのサンプリング周波数変更ガイド</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-journey-backwards-revoking-access-then-vanishing-your-facebook-business-page/"><u>The Journey Backwards: Revoking Access, Then Vanishing Your Facebook Business Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-shift-how-meta-plans-to-kill-off-fbs-face-tech/"><u>The Shift: How Meta Plans to Kill Off FB’s Face Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-social-spot-how-to-silence-your-fb-visibility/"><u>The Unseen Social Spot: How to Silence Your FB Visibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/verified-victory-quest-who-reigns-supreme-gold-metas-or-silver-twitters/"><u>Verified Victory Quest: Who Reigns Supreme, Gold Metas or Silver Twitters?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/izards-guide-to-glitter-and-glamour-creating-your-chanel/"><u>Vid-Wizards Guide to Glitter and Glamour Creating Your Chanel</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-social-media-personalization-is-unchangeable/"><u>Why Social Media Personalization Is Unchangeable?</u></a></li>
+</ul></div>
 

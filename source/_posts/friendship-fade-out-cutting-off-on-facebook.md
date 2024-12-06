@@ -1,7 +1,7 @@
 ---
 title: "Friendship Fade-Out: Cutting Off on Facebook"
-date: 2024-08-28T03:16:43.521Z
-updated: 2024-08-29T03:16:43.521Z
+date: 2024-12-03T20:14:49.020Z
+updated: 2024-12-06T22:25:30.510Z
 tags:
   - facebook
 categories:
@@ -15,11 +15,19 @@ thumbnail: https://thmb.techidaily.com/2406330bf931e26fe8a1a800921df2ca60aab8bad
 
 ## Friendship Fade-Out: Cutting Off on Facebook
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [What Is the "Take a Break" Feature on Facebook?](#what-is-the-quot-take-a-break-quot-feature-on-facebook)
 * [How to Take a Break From Someone on Facebook](#how-to-take-a-break-from-someone-on-facebook)
 * [How to Stop Taking a Break on Facebook](#how-to-stop-taking-a-break-on-facebook)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -49,9 +57,6 @@ thumbnail: https://thmb.techidaily.com/2406330bf931e26fe8a1a800921df2ca60aab8bad
 
  By using the "Take a Break" feature, you can maintain friendships on Facebook while giving yourself a breather from their constant presence in your feed. This can be a useful alternative to unfriending or[blocking someone on Facebook](http://www.makeuseof.com/how-to-block-facebook/) .
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Take a Break From Someone on Facebook
 
  Once you've made up your mind that you've had enough of someone's posts, here's how to go about taking a break from them:
@@ -95,10 +100,9 @@ Here, you'll find three options.
  You don't have to maintain close interactions with all your Facebook friends. You can keep them at a safe distance without completely cutting them out of your digital life.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Stop Taking a Break on Facebook
 
  If you decide it's time to reconnect normally with your friend, you can reverse the "Take a Break" action. Here's how to stop taking a break from someone on Facebook.
@@ -108,9 +112,9 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 ![Take a Break search box on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/take-a-break.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 * You'll find the Take a Break search bar, type the name of the friend you previously took a break from.
 * Click on the name of the friend.
 
@@ -121,41 +125,33 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![Reversing you've chosen to see less of a person's post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/reversing-you-ve-chosen-to-see-less-of-a-person-s-post.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * Select**See X's profile anywhere on Facebook** and click on**Save** .
 
 ![See X's profile anywhere on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/see-x-s-profile-anywhere-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 * Click the back button in the top left corner of the Take a Break menu, and click**Edit** next to**Limit what X's profile will see.**
 * Select**No longer limit what X can see** and click**Save** .
 
 ![No longer limit what a profile can see](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/no-longer-limit-what-a-profile-can-see.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * Click the back button in the top left corner once again, and click**Edit** next to**Edit who can see past posts.**
 * Select**Keep all posts as they are** and click**Save** . Or**Edit all of my posts and posts that I'm tagged in** to edit posts on an individual basis.
 
 ![Keep all posts as they are](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/keep-all-posts-as-they-are.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  With that done, you've successfully stopped taking a break from the friend. You should now see their updates normally.
 
  The Take a Break feature on Facebook provides a useful middle ground between staying friends and completely cutting someone off. It allows you to create some healthy distance and boundaries without burning bridges. By taking advantage of the feature, you can curate a more positive social media experience while still maintaining connections that matter.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -164,4 +160,26 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-top-fullscreen-capturing-software-pcmac-edition/"><u>[New] 2024 Approved Top Fullscreen Capturing Software, PC/Mac Edition</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unleash-the-full-potential-of-your-images-with-instagram-filters/"><u>[New] Unleash the Full Potential of Your Images with Instagram Filters</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-make-the-most-of-your-youtube-watches-gif-magic-for-devices/"><u>[Updated] 2024 Approved How to Make the Most of Your YouTube Watches GIF Magic for Devices</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-picture-perfection-apply-filters-to-your-videos/"><u>[Updated] Picture Perfection Apply Filters to Your Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-pinnacle-of-personal-data-holdings/"><u>[Updated] The Pinnacle of Personal Data Holdings</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-an-all-inclusive-examination-of-inshots-video-edits/"><u>2024 Approved An All-Inclusive Examination of InShot's Video Edits</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-reacting-to-self-viewer-errors-on-popular-social-networks/"><u>2024 Approved Reacting to Self-Viewer Errors on Popular Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-spotify-interface-tips-for-maximum-convenience/"><u>Facebook-Spotify Interface Tips for Maximum Convenience</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-resilience-unveiling-its-longevity-strategy/"><u>Facebook's Resilience: Unveiling Its Longevity Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-on-facebook-three-pivotal-warnings-to-consider/"><u>Metaverse on Facebook: Three Pivotal Warnings to Consider</u></a></li>
+<li><a href="https://facebook.techidaily.com/methods-for-finding-lost-facebook-tweets/"><u>Methods for Finding Lost Facebook Tweets</u></a></li>
+<li><a href="https://facebook.techidaily.com/miniplayer-your-portable-spotify-experience-on-facebook/"><u>Miniplayer: Your Portable Spotify Experience on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-and-reactivating-your-fbs-hidden-security-codes/"><u>Retrieving and Reactivating Your FB's Hidden Security Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-yourself-essential-online-disclosures-to-avoid/"><u>Safeguard Yourself: Essential Online Disclosures to Avoid</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-conceal-like-counts-on-sites/"><u>Secure Your Digital Footprint: Conceal Like Counts on Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-enigma-of-shadowban-and-how-to-circumvent-it/"><u>The Enigma of Shadowban and How to Circumvent It</u></a></li>
+<li><a href="https://techtrends.techidaily.com/understanding-the-variances-between-cat5-and-cat6-ethernet-cables/"><u>Understanding the Variances Between Cat5 and Cat6 Ethernet Cables</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unheard-truth-talk-to-chatgpt-now/"><u>Unheard Truth: Talk to ChatGPT Now!</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unlock-your-potential-transforming-workouts-with-apples-airpods-pro-and-integrated-pulse-monitor-the-next-big-thing-in-fitness-technology/"><u>Unlock Your Potential: Transforming Workouts with Apple's AirPods Pro and Integrated Pulse Monitor - The Next Big Thing in Fitness Technology</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Information Influx: What Will Users Say About FB News?"
-date: 2024-08-28T03:22:16.805Z
-updated: 2024-08-29T03:22:16.805Z
+date: 2024-12-02T22:51:02.928Z
+updated: 2024-12-06T19:50:00.195Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
 
  As Facebook potentially prepares to change up its News Feed algorithm, it wants to hear what you have to say about it. You'll now see surveys more often in your News Feed, and answering them could help Facebook understand what type of content you like best.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Wants Your Opinion on Content in Your News Feed
 
  A post on[the About Facebook blog](https://about.fb.com/news/2021/04/incorporating-more-feedback-into-news-feed-ranking/) revealed that Facebook plans on rolling out more surveys to gauge user response to certain posts. One survey will ask: "Is this post worth your time?" If your response is positive, you'll see similar posts at the top of your News Feed.
@@ -24,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
  Facebook will also start asking if you find certain posts inspirational. Responding to this questionnaire will help Facebook figure out what kinds of posts users find inspiring, as Facebook hopes to place inspirational content towards the top of the News Feed.
 
 ![Facebook inspirational posts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/inspirational-posts-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image Credit: Facebook
 
@@ -41,7 +49,15 @@ Image Credit: Facebook
 
 ![Facebook post hidden options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-post-hidden-options.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image Credit: Facebook
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Works on Improving Its News Feed
 
@@ -49,14 +65,11 @@ Image Credit: Facebook
 
  Just because you decide to be friends with someone on Facebook, doesn't necessarily mean you like what they post. It seems that Facebook is finally realizing this, and will put less priority on posts from friends and Groups, and will focus on individual preferences instead.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -65,8 +78,22 @@ Image Credit: Facebook
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-cam-problem-solved-operation-normal/"><u>[New] In 2024, Cam Problem Solved Operation Normal</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-optimize-iphoneandroid-video-quality-in-online-platforms-for-2024/"><u>[New] Optimize iPhone/Android Video Quality in Online Platforms for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-expert-insights-for-saving-and-curating-insta-stories/"><u>[Updated] In 2024, Expert Insights for Saving and Curating Insta Stories</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-leading-picture-holding-portals/"><u>[Updated] Leading Picture Holding Portals</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-top-10-androidios-weddings-ultimate-countdown-timer-apps/"><u>[Updated] Top 10 Android/iOS Weddings Ultimate Countdown Timer Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/finding-your-voice-online-4-ways-to-shape-your-facebook-visibility/"><u>Finding Your Voice Online: 4 Ways to Shape Your Facebook Visibility</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-the-10-premier-online-church-service-providers/"><u>In 2024, The 10 Premier Online Church Service Providers</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-sea-of-connections-detailed-analysis-of-your-fb-interactions/"><u>Navigating the Sea of Connections: Detailed Analysis of Your FB Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-in-communication-image-based-word-replication-via-facebooks-ai/"><u>New Era in Communication: Image-Based Word Replication via Facebook's AI</u></a></li>
+<li><a href="https://blog-min.techidaily.com/online-photo-conversion-convert-rw2-files-to-jpg-format-at-no-cost-with-movavis-tool/"><u>Online Photo Conversion: Convert .RW2 Files to JPG Format at No Cost with Movavi's Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/pre-deletion-checklist-what-to-weigh-in-on-social-media-departure/"><u>Pre-Deletion Checklist: What to Weigh in on Social Media Departure</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-social-media-expedition-on-facebook/"><u>Tailoring Your Social Media Expedition on Facebook</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-poco-c55-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Poco C55 Device</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/what-does-tag-really-signify-when-referring-to-digital-entities/"><u>What Does 'Tag' Really Signify When Referring to Digital Entities?</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-benefits-from-your-uploaded-pictures/"><u>Who Benefits From Your Uploaded Pictures?</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->

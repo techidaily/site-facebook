@@ -1,7 +1,7 @@
 ---
 title: Why Friending Strangers Can Jeopardize Your Privacy
-date: 2024-09-01T03:41:12.404Z
-updated: 2024-09-02T03:41:12.404Z
+date: 2024-12-03T19:37:41.109Z
+updated: 2024-12-06T21:31:31.520Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/5961427253350c1b74e1650e9c2f8a99858d6dfe3
 
  Safety should be your top priority when using social media. We have compiled a detailed article on why you shouldn't add strangers on Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Risk of Identity Theft
 
 ![Man showing an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-showing-an-image.jpg)
@@ -30,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/5961427253350c1b74e1650e9c2f8a99858d6dfe3
  When someone collects personal data and uses it for their own benefits, it's called identity theft. This is how scammers and internet thieves steal your identity online.
 
  It becomes hard to accuse one person of committing a crime with unknown people in the profile. You can bypass these scams by avoiding anonymous requests or people you don't trust.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Impairment of the Privacy of Your Friends
 
@@ -42,8 +50,9 @@ thumbnail: https://thmb.techidaily.com/5961427253350c1b74e1650e9c2f8a99858d6dfe3
  This allows them to access all this information. It might create long-term problems and a series of trust issues if something wrong happens because of your habit of giving access to anyone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Access to Harmful Links
 
  Over the years, people have exploited Facebook to hack accounts into other people's personal space. Everyone is aware of[phishing and hacking scams](https://www.makeuseof.com/types-of-phishing-attack/) , and for that reason, befriending unknown people might be pretty risky.
@@ -61,16 +70,13 @@ thumbnail: https://thmb.techidaily.com/5961427253350c1b74e1650e9c2f8a99858d6dfe3
  Consistently updating locations on the map has led to multiple robbery and stalking crimes. If you only keep trustworthy people in your profile, it will eliminate the risk of getting stalked, mugged, or robbed from home.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Become Habitual of Isolation From Family
 
 ![Using Facebook on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Using-Facebook-on-smartphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
  Talking to strangers online can be fascinating, especially if you get in touch with some nice ones. This simple app can become your whole life.
 
  People who talk to strangers can suffer from isolation, meaning they are glued to the screen all day instead of meeting new people. Addiction to online socialization reduces your confidence level and willingness to maintain good physical and mental health.
@@ -85,21 +91,19 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Lack of engagement on your Facebook profile gives the impression of being dull and not an exciting person.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Risk of Emotional Damage
 
 ![Man in emotional stress](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-in-emotional-stress.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
  When you talk to people who know you in real life, there is an emotional connection and bonding. However, this is not the case with short-term online relations. These people are just there for fun or scams.
 
  When online ties have a heavy influence on you, it becomes tough to share things with people in real life. Lack of communication with families and loved ones might leave you feeling emotionally drained and damaged.
 
  Sometimes it is possible to find genuine people on Facebook who care for you, but you never know who that is.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Possibility of Communication Gap
 
@@ -119,23 +123,17 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Even if you add people on Facebook, be very hesitant to share your money and other resources.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Avoiding Strangers on Facebook Might Be a Good Idea
 
  Facebook is the most popular platform of all time. It allows you to interact with others and make friends online. Sometimes, interacting with strangers and adding them to your profile might not be as good as it sounds. Other than getting your personal space invaded, there is also a possibility of getting scammed.
 
  Strangers can also hack your personal information like address, location, and pictures. People can become addicted to using social media, which results in damaged physical and mental health. Hence, you should avoid adding strangers unless they come from a trustworthy source.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,4 +142,21 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-perfecting-auto-captioned-content-in-instagram-reels/"><u>[New] 2024 Approved Perfecting Auto-Captioned Content in Instagram Reels</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-xbox-chronicles-essential-steps-in-gameplay-documentation-for-2024/"><u>[New] The Xbox Chronicles Essential Steps in Gameplay Documentation for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-crafting-compelling-instagram-stories-a-guide-to-scaled-visuals/"><u>[Updated] Crafting Compelling Instagram Stories A Guide to Scaled Visuals</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-elite-selection-7-superior-fps-games/"><u>2024 Approved Elite Selection 7 Superior FPS Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-facebook-a-brand-reborn-as-the-innovative-meta-network/"><u>From 'Facebook': A Brand Reborn as the Innovative Meta Network</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-7-plus-to-other-iphone-12-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 7 Plus To Other iPhone 12 devices? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-motorola-defy-2-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Motorola Defy 2 Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-7-plus-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone 7 Plus Without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/ignored-yet-impactful-a-look-at-the-top-4-overlooked-tech-updates/"><u>Ignored Yet Impactful: A Look at the Top 4 Overlooked Tech Updates</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premium-audio-modification-solutions-magically-effective/"><u>In 2024, Premium Audio Modification Solutions Magically Effective</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-social-network-a-deep-dive-into-facebooks-transparency-center/"><u>Navigating the Social Network: A Deep Dive Into Facebook's Transparency Center</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/parrots-advanced-ar-drone-assessment-report/"><u>Parrot's Advanced AR Drone - Assessment Report</u></a></li>
+<li><a href="https://facebook.techidaily.com/reel-rewards-navigating-monetization-streams-with-metas-insight/"><u>Reel Rewards: Navigating Monetization Streams with Meta’s Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-facebook-account-was-hacked-4-things-to-do-immediately/"><u>Your Facebook Account Was Hacked? 4 Things to Do Immediately</u></a></li>
+</ul></div>
 

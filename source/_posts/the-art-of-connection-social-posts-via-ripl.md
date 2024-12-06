@@ -1,7 +1,7 @@
 ---
 title: "The Art of Connection: Social Posts via Ripl"
-date: 2024-08-28T03:17:57.833Z
-updated: 2024-08-29T03:17:57.833Z
+date: 2024-11-30T18:52:23.565Z
+updated: 2024-12-06T17:35:51.905Z
 tags:
   - facebook
 categories:
@@ -29,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/29a05cd0ac7c666a10c5dac5d641535795c3a88c9
 
 **Download** : Ripl for[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2000374/https://play.google.com/store/apps/details?id=com.ripl.android&hl=en%5FUS&gl=US) |[iOS](https://apps.apple.com/us/app/ripl-social-videos-posts/id1030906799) (Subscription required, free trial available)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Getting Started With Ripl
 
 ![Image showing the home page of Ripl app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Ripl-for-SM-Contents-05.jpg)
@@ -45,13 +49,18 @@ thumbnail: https://thmb.techidaily.com/29a05cd0ac7c666a10c5dac5d641535795c3a88c9
 
  Related:[Social Media Platforms That Pay You to Create Content](https://www.makeuseof.com/social-media-platforms-that-pay-creators/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Setting Up Your Personal Brand
 
 ![Visualization of My Brand Creative tab of Ripl](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-06.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Ripl allows you to customize your profile by setting up a personal brand. By doing so, you can easily access your preferred logo, color palettes, and fonts. Follow these steps to get set up:
 
 1. At the top of the screen, click on**My brand** .
@@ -63,8 +72,9 @@ thumbnail: https://thmb.techidaily.com/29a05cd0ac7c666a10c5dac5d641535795c3a88c9
  Related:[How to Brand Your Personal Social Media Accounts](https://www.makeuseof.com/tag/brand-personal-social-media-accounts/)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Creating Social Media Content From Templates
 
  Crafting impressive visuals with Ripl is easy using the ready-made templates. You can access a wide selection via your Ripl home page.
@@ -72,15 +82,17 @@ thumbnail: https://thmb.techidaily.com/29a05cd0ac7c666a10c5dac5d641535795c3a88c9
  Click the**See all** link at the right of each section to get the complete list of template options for that category. And scroll down for more template categories.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Creating a Collage With Ripl
 
 ![Visualization of Ripl editor with collage template](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-08.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  To create a remarkable family photo collage for your Facebook or Instagram feed, try these steps:
 
 1. From your**Ripl** home page, click on the**Search** box—type in**collages** and press**Enter** .
@@ -103,16 +115,14 @@ thumbnail: https://thmb.techidaily.com/29a05cd0ac7c666a10c5dac5d641535795c3a88c9
 
  Related:[Best Video Editors for Creating Social Media Posts](https://www.makeuseof.com/tag/best-video-editors-social-media/)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Creating a Ripl Slideshow
 
 ![Visualization of a Ripl template for slideshow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-13.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Slideshow posts are perfect when you want to tell a story or showcase several images. Ripl enables you to convert each photo into a single slide. You can also add unique text to customize your slideshow deck.
 
 To create a slideshow:
@@ -124,16 +134,10 @@ To create a slideshow:
 
 ![Illustrating the Size tab functions of Ripl editor](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
  5\. Click on the**Fill Style tab** to choose between**Solid** ,**Gradient** , or**Stripes** .
 
 ![Image showing the Fill Style tab of Ripl editor](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-15.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
  6\. Now, click the**Media tab** . You may either upload photos from your computer or use stock photos from the Ripl content library.
 
 ![Visualization of inserting stock photos to the slideshow template of Ripl](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-16.jpg)
@@ -164,9 +168,6 @@ Here are some tips to control the pace of slideshow elements:
 
 ![Image showing file upload from local computer to Ripl](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Ripl-for-SM-Contents-18.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
  7\. Select two images. They’ll appear above the**Upload from computer** button.
 
 8\. Drag and reposition the images if you'd like.
@@ -185,14 +186,11 @@ Here are some tips to control the pace of slideshow elements:
 
  Designing exceptional graphics for social media doesn't have to be complicated. With sites like Ripl, you can focus less on the mechanics of design software and more on content that makes an impact on your audience.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -201,4 +199,19 @@ Here are some tips to control the pace of slideshow elements:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-starting-an-impactful-fb-community-giving-campaign/"><u>[New] Starting an Impactful FB Community Giving Campaign</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-crafting-successful-videos-on-youtube-for-beginners-for-2024/"><u>[Updated] Crafting Successful Videos on YouTube for Beginners for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/getting-your-gone-facebook-comments-back/"><u>Getting Your Gone Facebook Comments Back</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-amend-your-birthday-details-on-facebook/"><u>How to Amend Your Birthday Details on Facebook</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-v30-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-oppo-a38-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Oppo A38 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/install-the-latest-drivers-to-unleash-full-performance-of-amd-gpus-rx-6900-xt-on-windows-1011-systems/"><u>Install the Latest Drivers to Unleash Full Performance of AMD GPUs (RX 6900 XT) on Windows 10/11 Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-threat-landscape-of-online-identity-theft/"><u>Navigating the Threat Landscape of Online Identity Theft</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/simple-steps-to-restore-microphone-functionality-in-google-hangouts/"><u>Simple Steps to Restore Microphone Functionality in Google Hangouts</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-spreading-your-message-broadly-on-fb/"><u>Strategies for Spreading Your Message Broadly on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-trap-of-convenience-your-data-at-stake/"><u>The Trap of Convenience: Your Data at Stake</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-chatbot-potential-20-prime-prompts-from-githubs-top-picks-for-gpt-3-conversations/"><u>Unlocking Chatbot Potential: 20 Prime Prompts From GitHub's Top Picks for GPT-3 Conversations</u></a></li>
+</ul></div>
 

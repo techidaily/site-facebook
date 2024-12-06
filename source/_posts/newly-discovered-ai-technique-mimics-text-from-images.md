@@ -1,7 +1,7 @@
 ---
 title: Newly Discovered AI Technique Mimics Text From Images
-date: 2024-08-28T03:15:55.533Z
-updated: 2024-08-29T03:15:55.533Z
+date: 2024-11-29T17:21:03.218Z
+updated: 2024-12-06T19:42:59.665Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/00e6694a6e8523368549c14f60a0299171aaa2659
 
  From identity theft to fake news, we've seen all the bad side of this tech. But Facebook's one company that wants to use it for future innovations instead.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is TextStyleBrush?
 
  Researchers over at Facebook have introduced their new self-supervised AI model, "TextStyleBrush" on[Newsroom](https://about.fb.com/news/2021/06/ai-can-now-emulate-text-style-in-images-in-one-shot-using-just-a-single-word/) . Using just one image of a single word, it can edit and replace the text while copying the font or visual style that it was written in.
@@ -26,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/00e6694a6e8523368549c14f60a0299171aaa2659
  The tool works on both handwritten text and text in real-word scenes. It's an impressive feat, because—as Facebook itself notes—the AI has to understand "unlimited" text styles.
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-textstylebrush-examples.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Not only is there all sorts of different kinds of typography and calligraphy out there, but there's so many stylistic details that need to be taken into consideration. What if someone writes on a slant or a curve? Or the surface that the text is on makes it hard to read? What about background clutter or image noise?
 
@@ -39,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/00e6694a6e8523368549c14f60a0299171aaa2659
 
  Related: [Google Translate Mobile Features You Must Know](https://www.makeuseof.com/tag/google-translate-mobile-features/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Faces Aren't the Only Thing That Can Be Deepfaked
 
  We're hearing about this research because Facebook hopes that by publishing it, there will be even more research and discussion on deepfake text attacks.
@@ -47,14 +59,11 @@ thumbnail: https://thmb.techidaily.com/00e6694a6e8523368549c14f60a0299171aaa2659
 
  If AI researchers and practitioners can get ahead of bad actors, Facebook says, then it'll be easier to detect when deepfakes are used maliciously, and to build systems to combat them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -63,8 +72,22 @@ thumbnail: https://thmb.techidaily.com/00e6694a6e8523368549c14f60a0299171aaa2659
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-elevate-your-snapstreak-game-with-savvy-tactics/"><u>[New] In 2024, Elevate Your Snapstreak Game with Savvy Tactics</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-leading-limitless-time-tracker-apps/"><u>[New] In 2024, Leading Limitless Time Tracker Apps</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-screenmaster-review-the-latest-in-tech-capture/"><u>[New] ScreenMaster Review The Latest in Tech Capture</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-comprehensive-guide-to-capturing-lol-games-for-2024/"><u>[Updated] Comprehensive Guide to Capturing LOL Games for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-top-10-stress-relieving-games/"><u>[Updated] Top 10 Stress Relieving Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-conversations-with-messengers-soundmojis/"><u>Enhancing Conversations with Messenger’s Soundmojis</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-effective-strategies-for-podcast-on-insta-story-and-posts/"><u>In 2024, Effective Strategies for Podcast on Insta Story & Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-about-next-step-for-oculus-quest-series/"><u>Silent About Next Step for Oculus Quest Series</u></a></li>
+<li><a href="https://facebook.techidaily.com/snapshots-of-disabled-account-stories/"><u>Snapshots of Disabled Account Stories</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-oneplus-open-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on OnePlus Open with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/steer-clear-of-facebooks-intrusive-history-feature/"><u>Steer Clear of Facebook's Intrusive History Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-reducing-your-online-social-network-habits/"><u>Strategies for Reducing Your Online Social Network Habits</u></a></li>
+<li><a href="https://facebook.techidaily.com/teaching-friends-share-your-location-in-fbmessenger/"><u>Teaching Friends: Share Your Location in FBMessenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-extended-timelines-in-implementing-end-to-end-encryption/"><u>The Case for Extended Timelines in Implementing End-to-End Encryption</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/winxvideo-ai-revolutionare-videostabilisierung-und-bearbeitung-mit-skalierungs-konvertierungs-und-aufnahmefunktionen/"><u>WinxVideo AI: Revolutionäre Videostabilisierung Und -Bearbeitung Mit Skalierungs-, Konvertierungs- Und Aufnahmefunktionen</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

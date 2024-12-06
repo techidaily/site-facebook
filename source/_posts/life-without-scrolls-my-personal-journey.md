@@ -1,7 +1,7 @@
 ---
 title: "Life Without Scrolls: My Personal Journey"
-date: 2024-08-28T03:14:58.371Z
-updated: 2024-08-29T03:14:58.371Z
+date: 2024-12-04T17:42:54.772Z
+updated: 2024-12-06T16:48:04.295Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/605743c45d46920946cf620896ea214cdef6126e4
  In 2013, I deleted all of my social media accounts. Now, years later, I'm glad I took that "extreme" step. If you're planning to quit social media yourself, you might have questions about what comes next and how to begin preparing for this drastic change.
 
 Speaking from my own experience, here's what you can expect.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Unexpected Reactions
 
@@ -46,8 +50,9 @@ Speaking from my own experience, here's what you can expect.
 ![Happy Girls Laughing at Smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Happy-Group-Looking-at-Phone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  You know those moments when everybody knows what's going on and you're the only clueless person around? Expect many more of them.
 
  Not staying up to date on Facebook statuses, Instagram updates, Twitter goings-on, and social media slang equals missing out on all the juicy references in conversations. Quite often, you won't get jokes because "you had to be there". You'll also have to field requests to join other, often obscure, social networks.
@@ -56,23 +61,18 @@ Speaking from my own experience, here's what you can expect.
 
  To[counter your fear of missing out on social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) , you might increase your activity on group messaging apps like WhatsApp or Discord. You'll also need to find alternative, sometimes old-school ways to keep in touch with friends and family. Keep in mind that the solutions need to be convenient for both parties.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## 4\. Limited Access to Certain Sites
 
 ![Screenshot showing how to sign up for an Adobe CC account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/screenshot-2023-01-19-at-10-33-26.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Only when you have deleted your Facebook and Twitter accounts will you grasp the extent to which the web depends on the[top social media sites](https://www.makeuseof.com/tag/top-social-media-apps-sites/) .
 
  You might have to forgo many interesting services for the sole reason that you don't have a Facebook or Twitter login to sign up for an account. What happened to good old email signups?
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## 5\. Derailed Job Searches
 
  Job hunts are the worst hit by the lack of a social media presence. "Awesome social media skills" seem like a permanent fixture in job descriptions these days. It's a pity that these skills are at times considered more important than the technical skills you need to fulfill a role.
@@ -80,8 +80,9 @@ Speaking from my own experience, here's what you can expect.
  Staying up-to-date on LinkedIn, participating in Twitter chats, joining discussions in Facebook groups—these definitely open up more[opportunities to get ahead in your career](https://www.makeuseof.com/tips-let-people-know-you-open-to-work/) . (That's not a bad thing at all.) Naturally, you might feel tempted to resurrect your social media profiles.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. More Headspace
 
  I have saved the best for last. When you quit social media and get past the first few months of withdrawal symptoms, you'll begin to enjoy the headspace you have reclaimed.
@@ -93,22 +94,20 @@ Speaking from my own experience, here's what you can expect.
  Sure, you'll want to binge on social media feeds a few times a year. Don't feel guilty when that happens. Indulge yourself occasionally. Seeing the same old stuff you wanted to escape in the first place will put the situation in perspective for you.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## When It Comes to Social Media, Never Say Never
 
  You'll have to be ready to go back to social media if some part of your work requires it. See if you can find a suitable workaround instead, like setting an app timer. If not, think of social media as a means to an end—like a tool—rather than something that's a part of your lifestyle.
 
  Many people thrive on and enjoy the kind of dynamic, fast-paced interaction that social media provides. But for many others, it can have negative effects. As I see it, there's no definitive right or wrong approach to social media. There's only what works for you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,4 +116,18 @@ Speaking from my own experience, here's what you can expect.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-easy-igtv-video-grabs-for-ios-and-android-devices/"><u>[Updated] 2024 Approved Easy IGTV Video Grabs for iOS and Android Devices</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-securing-virtual-triumphs-mastering-screen-captures-in-pc-games/"><u>[Updated] In 2024, Securing Virtual Triumphs - Mastering Screen Captures in PC Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-tips-on-choosing-the-perfect-fb-profile-photo/"><u>Expert Tips on Choosing the Perfect Fb Profile Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/final-goodbye-to-the-social-networking-empire/"><u>Final Goodbye to the Social Networking Empire</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-the-ace-guide-to-smooth-laptop-video-editing-via-inshot/"><u>In 2024, The Ace Guide to Smooth Laptop Video Editing via Inshot</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigating-hardware-choices-made-easy-by-toms-tech-wisdom/"><u>Navigating Hardware Choices Made Easy by Tom's Tech Wisdom</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/noise-free-listening-in-minutes-quick-fixes-for-your-astro-a50-speaker-woes/"><u>Noise-Free Listening in Minutes: Quick Fixes for Your Astro A50 Speaker Woes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-wave-of-negativity-set-to-hit-facebook/"><u>The Wave of Negativity Set to Hit Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-consensus-platforms-are-overwhelmingly-negative/"><u>U.S. Consensus: Platforms Are Overwhelmingly Negative</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-vivo-y100a-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Vivo Y100A FRP Bypass</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-variance-in-social-media-identity-labels/"><u>Unpacking the Variance in Social Media Identity Labels</u></a></li>
+</ul></div>
 

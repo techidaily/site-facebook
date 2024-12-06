@@ -1,7 +1,7 @@
 ---
 title: Facebook Fosters Better Communication in Messenger, Instagram Apps
-date: 2024-08-28T03:13:55.866Z
-updated: 2024-08-29T03:13:55.866Z
+date: 2024-12-03T22:53:41.642Z
+updated: 2024-12-06T17:37:32.514Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/dd8665fd574b8b8849bc905e8ab75258e662c1b7c
 
  Facebook has added a host of new messaging features to Messenger and Instagram. These come in the form of new themes, as well as improved audio messaging on Facebook Messenger.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Two New Themes Added to Messenger and Instagram
 
  In a press release on the[Facebook Newsroom](https://about.fb.com/news/2021/05/better-ways-to-express-yourself-new-messenger-features/) , the company announced the release of two new chat themes. The new themes are based on Star Wars and Netflix's Selena: The Series.
@@ -26,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/dd8665fd574b8b8849bc905e8ab75258e662c1b7c
  Along with new themes, Facebook has also added new camera stickers to Messenger and Messenger Kids that celebrate the "diversity and impact of Asian and Pacific Islanders (API)."
 
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
 
@@ -40,8 +48,9 @@ thumbnail: https://thmb.techidaily.com/dd8665fd574b8b8849bc905e8ab75258e662c1b7c
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## New Inbox Management Features
 
 Both Messenger and Instagram have received some inbox-centric changes.
@@ -54,14 +63,11 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
  While these new features cannot be called overhauls, they will definitely help improve the overall user experience. Especially, features such as tap-to-record and the new read receipts on Instagram.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -70,4 +76,24 @@ Both Messenger and Instagram have received some inbox-centric changes.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-pc-upload-simplified-essential-file-transfer-strategies/"><u>[New] In 2024, PC Upload Simplified Essential File Transfer Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-channel-your-earnings-effective-youtube-money-methods/"><u>[Updated] Channel Your Earnings Effective YouTube Money Methods</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-the-art-of-editing-movie-maker-on-w11-in-detail/"><u>[Updated] Mastering the Art of Editing Movie Maker on W11 in Detail</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-nightly-narratives-video-guide-and-critiques/"><u>2024 Approved Nightly Narratives Video Guide & Critiques</u></a></li>
+<li><a href="https://win11.techidaily.com/addressing-error-0x87e00017-when-downloading-ms-games/"><u>Addressing Error 0X87e00017 When Downloading MS Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-who-you-want-to-be-on-social-media-with-facebook/"><u>Becoming Who You Want to Be on Social Media with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-online-reputation-the-best-free-tools-for-social-management/"><u>Boost Your Online Reputation - The Best FREE Tools for Social Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-who-sees-your-fb-photos/"><u>Controlling Who Sees Your Fb Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-updated-navigation-and-tabs-concept/"><u>Decoding Facebook’s Updated Navigation and Tabs Concept</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-fb-content-scheduling-top-5-low-cost-techniques/"><u>Effective FB Content Scheduling: Top 5 Low-Cost Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-digital-presence-sharing-hd-media-mobilely/"><u>Elevate Your Digital Presence: Sharing HD Media Mobilely</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-xiaomi-redmi-k70-pro-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Xiaomi Redmi K70 Pro in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-oppo-a78-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Oppo A78 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-setup-a-google-account-a-detailed-walkthrough/"><u>How to Easily Setup a Google Account: A Detailed Walkthrough</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-evolution-facebooks-transformation-into-meta/"><u>Interactive Evolution: Facebook's Transformation Into Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pathway-to-restoring-deleted-facebook-likes/"><u>The Pathway to Restoring Deleted Facebook Likes</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/ultimate-arena-crafting-the-quintessential-7-total-war-tactics-for-2024/"><u>Ultimate Arena Crafting the Quintessential 7 Total War Tactics for 2024</u></a></li>
+</ul></div>
 

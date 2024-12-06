@@ -1,7 +1,7 @@
 ---
 title: "Year in Review: Unpacking This Year's Favorite Podcasts"
-date: 2024-08-28T03:20:46.267Z
-updated: 2024-08-29T03:20:46.267Z
+date: 2024-12-03T18:06:07.262Z
+updated: 2024-12-06T20:32:39.322Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/16a9b35c6bd9fc401c0908fd1a1024fa5ae9f4d4f
 
  You can subscribe to the Really Useful Podcast on[Apple Podcasts](https://podcasts.apple.com/gb/podcast/the-really-useful-podcast/id1437847131?mt=2) ,[Spotify](https://open.spotify.com/show/283gDxLd6OTNEpRq6tN7ha) ,[Google Podcasts](https://www.google.com/podcasts?feed=aHR0cHM6Ly9hbmNob3IuZm0vcy8zMWJlNDcwL3BvZGNhc3QvcnNz) ,[Amazon Music and Audible](https://music.amazon.co.uk/podcasts/20ab73d4-5da2-46c7-a17f-dc6eb39bdb48/The-Really-Useful-Podcast) ,[Player FM](https://player.fm/series/the-really-useful-podcast-2491856) , or copy the[RSS feed](https://feeds.transistor.fm/the-really-useful-podcast) into your podcast player.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Shownotes
 
 Here's everything we discuss in this week's 2022 special:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### High points of 2022
 
@@ -30,8 +38,9 @@ Here's everything we discuss in this week's 2022 special:
 * Right to Repair growth
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Low points of 2022
 
 * [Cryptocurrency crash](https://www.makeuseof.com/us-justice-department-seizes-billions-bitcoin/)
@@ -42,8 +51,9 @@ Here's everything we discuss in this week's 2022 special:
 * [Raspberry Pi's lack of availability](https://www.makeuseof.com/eben-upton-raspberry-pi-shortages-400-pico/)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Best devices of 2022
 
 * [Nothing Phone (1)](https://www.makeuseof.com/nothing-phone-1-review/)
@@ -51,8 +61,9 @@ Here's everything we discuss in this week's 2022 special:
 * Airpod Pro 2nd Generation Earbuds
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Best games of 2022
 
 * [Vampire Survivors](https://poncle.itch.io/vampire-survivors)
@@ -63,14 +74,11 @@ Here's everything we discuss in this week's 2022 special:
 
  Christian Cawley, Gavin Phillips, and Ben Stegner host this podcast. You can contact them on Twitter:[@thegadgetmonkey](https://twitter.com/thegadgetmonkey) ,[@gavinspavin](https://twitter.com/gavinspavin) , and[@stegnersaurus](https://twitter.com/stegnersaurus) , with your suggestions for future topics.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -79,4 +87,22 @@ Here's everything we discuss in this week's 2022 special:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/updated-the-evolution-of-color-formats-from-rgb-to-srgb-for-2024/"><u>[Updated] The Evolution of Color Formats From Rgb to Srgb for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-infinix-note-30-pro-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Infinix Note 30 Pro Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://discover-help.techidaily.com/2-what-types-of-dvds-are-readable-by-your-device-understanding-format-compatibility/"><u>2. What Types of DVDs Are Readable by Your Device? Understanding Format Compatibility.</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/8-superb-tablet-titans-to-take-your-photo-editing-skills-further/"><u>8 Superb Tablet Titans to Take Your Photo Editing Skills Further</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/can-your-xbox-360-read-blu-ray-disc-media-the-complete-facts-revealed/"><u>Can Your Xbox 360 Read Blu-Ray Disc Media? The Complete Facts Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/expand-your-horizon-effective-strategies-for-group-posting/"><u>Expand Your Horizon: Effective Strategies for Group Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-manage-apps-and-websites-connected-to-your-facebook/"><u>How to Manage Apps and Websites Connected to Your Facebook</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-6s-plus-with-a-mask-on-by-drfone-ios/"><u>How to Unlock Apple iPhone 6s Plus with a Mask On</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-audience-captivation-through-crossfade-mastery-in-audacity/"><u>In 2024, Audience Captivation Through Crossfade Mastery in Audacity</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-lava-storm-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Lava Storm 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/into-new-realities-the-emergence-and-explanation-of-metaverse-by-fb/"><u>Into New Realities: The Emergence and Explanation of Metaverse by FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/mind-over-feedback-the-top-10-reasons-to-escape-facebooks-clutches/"><u>Mind Over Feedback: The Top 10 Reasons to Escape Facebook's Clutches</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-gridlock-all-major-social-networks-down/"><u>Online Gridlock: All Major Social Networks Down</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-still-photographs-into-diverse-textual-manifestations-facebook-ai/"><u>Transforming Still Photographs Into Diverse Textual Manifestations - Facebook AI</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebook-actual-user-drop-rates/"><u>Unveiling Facebook: Actual User Drop Rates?</u></a></li>
+</ul></div>
 

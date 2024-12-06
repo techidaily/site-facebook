@@ -1,7 +1,7 @@
 ---
 title: "NFT Revolution: Meta Drops on Popular Networks Tested"
-date: 2024-08-28T03:18:12.229Z
-updated: 2024-08-29T03:18:12.229Z
+date: 2024-11-29T16:00:48.648Z
+updated: 2024-12-06T19:36:40.593Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 
  Before it has even truly begun, Meta has announced that it will end its NFT tools on Instagram and Facebook.The revelation, made by Meta commerce and fintech lead Stephane Kasriel, comes as a surprise given Facebook's pivot to Meta in recognition of its new focus on the metaverse.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Meta Is "Winding Down" NFTs on Instagram and Facebook
 
  On 13 March 2023, Stephane Kasriel revealed that Meta was moving its focus from NFTs to other areas of focus where the company can make an impact.
@@ -24,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
  For now, at least, Meta is "winding down digital collectibles (NFTs) for now to focus on other ways to support creators, people, and businesses," moving focus to other monetization opportunities like Meta Pay and Reels.
 
  Meta rolled out[NFT sales for Instagram creators in November 2022](https://www.makeuseof.com/meta-pushes-instagram-nfts-who-is-buying/) , so its quick retraction and change of direction won't do much to inspire confidence in the social media giant's other metaverse and Web3 plans.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What's Next for Meta, Crypto, and the Metaverse?
 
@@ -37,14 +45,11 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 
  Whether the scramble to roll back NFT support on Instagram and Facebook is purely cost-cutting or is the start of a new approach to the metaverse for Meta remains to be seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -53,8 +58,19 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveil-creativity-15plus-free-tools-for-youtube-intros/"><u>[New] Unveil Creativity 15+ Free Tools for YouTube Intros</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-icons-of-illusion-youtubes-most-influential-gurus/"><u>[Updated] Icons of Illusion YouTube's Most Influential Gurus</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-barely-there-to-top-rated-the-youtube-growth-arc/"><u>[Updated] In 2024, From Barely There to Top Rated The Youtube Growth Arc</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-secrets-to-superior-youtube-videos-mastering-post-upload-editing-for-2024/"><u>[Updated] Secrets to Superior YouTube Videos Mastering Post-Upload Editing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-through-the-competition-with-unique-facebook-reels/"><u>Break Through the Competition with Unique Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-data-step-by-step-photovideo-save/"><u>Decoding Facebook's Data – Step by Step Photo/Video Save</u></a></li>
+<li><a href="https://facebook.techidaily.com/distilling-key-events-that-defined-googles-2022/"><u>Distilling Key Events That Defined Google's 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/essentials-of-message-icons-on-social-media-platforms-like-fb/"><u>Essentials of Message Icons on Social Media Platforms Like FB</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-hands-on-the-updated-magicard-rio-pro-driver-for-windows-os/"><u>Get Your Hands on the Updated Magicard Rio Pro Driver for Windows OS</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 10 Best Spy Watches For your Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-insiders-scoop-on-how-telegram-has-revolutionized-digital-communication/"><u>The Insider's Scoop on How Telegram Has Revolutionized Digital Communication</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-resource-for-downloading-gigabytes-gc-wb867d-i-video-card-software/"><u>Ultimate Resource for Downloading Gigabyte's GC-WB867D-I Video Card Software</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->

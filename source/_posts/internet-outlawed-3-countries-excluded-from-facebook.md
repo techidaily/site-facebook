@@ -1,7 +1,7 @@
 ---
 title: "Internet Outlawed: 3 Countries Excluded From Facebook"
-date: 2024-08-28T03:20:52.214Z
-updated: 2024-08-29T03:20:52.214Z
+date: 2024-12-05T16:04:43.026Z
+updated: 2024-12-06T20:33:19.828Z
 tags:
   - facebook
 categories:
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/0e3580ccebe105ec59bd0096cd99a066bfc6309ad
 
 ![iPhone with facebook on screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/countries-where-facebook-is-banned.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Facebook seemingly took the fall for refusing to disclose the organizers’ identity. The company argued that the activists were exercising their freedom of speech on the social platform.
 
  This block on Facebook added it to the list of previously blocked western internet companies, including YouTube (and all Google products), Twitter, and Microsoft.
@@ -37,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/0e3580ccebe105ec59bd0096cd99a066bfc6309ad
 
  People who wish to use Facebook can still do so from some places in China, including Hong Kong and Macau. They can also bypass the block by[using a VPN](https://www.makeuseof.com/what-is-a-vpn/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Iran
 
  The restriction of Facebook in Iran is ironic given that some of its political leaders use the platform regardless of its blocked status.
@@ -45,17 +53,16 @@ thumbnail: https://thmb.techidaily.com/0e3580ccebe105ec59bd0096cd99a066bfc6309ad
 
 ![laptop with facebook on screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/places-where-facebook-is-banned.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The restriction initially lasted a few hours but Iran reinstated it with no explanation and it's remained ever since.
 
  The minister of culture, Ali Jannati, raised hopes for a restoration of the service in 2013\. He remarked that social networks should be accessible to ordinary Iranians. But this plea was not honored and the restrictions remain in place.
 
  Several top Iranian officials, religious and political, have Facebook pages and the Iranian masses reportedly skirt government restrictions by using a VPN.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ## 3\. North Korea
 
  North Korea is one of the most secretive countries in the world due to its heavy restrictions on movement and communication.
@@ -65,8 +72,9 @@ The powerful video editing program for your Windows PC</a>
 ![laptop with facebook homepage on screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/places-you-cant-use-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  The ban seemed targeted at visitors and foreign residents since locals already lacked access to Facebook due to the general restrictions on internet use.
 
  Related: [What Is Facebook's Oversight Board and What Does It Do?](https://www.makeuseof.com/what-is-facebook-oversight-board/)
@@ -74,9 +82,9 @@ The powerful video editing program for your Windows PC</a>
  According to The Guardian, the goal of the restriction is to make it more difficult for visitors or the small community of foreign residents to post real-time information about North Korea to the outside world. The ban will further limit the ability of North Koreans with internet access to view information about their country posted elsewhere.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Restrictions on Facebook Are Not So Effective
 
  You’ve probably already noticed that, regardless of the restrictions in place in the countries listed above, users can still access Facebook at will. In China, people living in autonomous zones (Hong Kong, Macau, etc.) have unbridled access to Facebook. Those living in mainland China can also access Facebook by using VPNs.
@@ -85,14 +93,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  It's not just Facebook that suffers from bans, of course. Restrictive regimes have banned other social media companies. With its vast selection of video footage from around the globe, YouTube is another common target.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -101,4 +106,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-digital-footprints-on-instagram-effective-photo-watermarking/"><u>[New] Digital Footprints on Instagram Effective Photo Watermarking</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-beginners-guide-to-editing-content-on-windows-11/"><u>[New] The Beginner's Guide to Editing Content on Windows 11</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unveiling-your-individual-playlist-paradise-on-youtube/"><u>[New] Unveiling Your Individual Playlist Paradise on YouTube</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-live-stream-to-high-fidelity-choosing-budget-friendly-wav-tools-for-2024/"><u>[Updated] From Live Stream to High Fidelity Choosing Budget-Friendly WAV Tools for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723209309454-asus-laptop-issues-heres-a-solution-for-non-responsive-fn-keys/"><u>ASUS Laptop Issues? Here's a Solution for Non-Responsive Fn Keys!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/exploring-the-future-with-ios-18-key-highlights-from-apples-wwdc-2024-presentation-and-the-rise-of-artificial-intelligence-gizmoworld/"><u>Exploring the Future with iOS 18 - Key Highlights From Apple's WWDC 2024 Presentation and the Rise of Artificial Intelligence | GizmoWorld</u></a></li>
+<li><a href="https://facebook.techidaily.com/fans-gain-free-access-to-wnba-via-fb-and-twt/"><u>Fans Gain Free Access to WNBA via FB & Twt</u></a></li>
+<li><a href="https://facebook.techidaily.com/first-facebook-smartwatch-potential-for-dual-cameras/"><u>First Facebook Smartwatch: Potential for Dual Cameras?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-metadata-management-preventing-pics-spread-online/"><u>Mastering Metadata Management: Preventing Pics Spread Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-the-seo-jungle-top-tools-for-tripling-traffic/"><u>Navigating the SEO Jungle Top Tools for Tripling Traffic</u></a></li>
+<li><a href="https://facebook.techidaily.com/participating-in-distribution-claiming-a-piece-from-facebooks-deal/"><u>Participating in Distribution: Claiming a Piece From Facebook’s Deal</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-your-online-identity-after-fb-account-infiltration/"><u>Safeguard Your Online Identity After FB Account Infiltration</u></a></li>
+<li><a href="https://win-data.techidaily.com/seamless-switch-transitioning-from-traditional-sim-to-esim-on-iphones/"><u>Seamless Switch: Transitioning From Traditional SIM to eSIM on iPhones</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-guide-getting-your-money-back-from-fb-transactions/"><u>Stepwise Guide: Getting Your Money Back From FB Transactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-facebook-community-guidelines/"><u>Tailoring Your Facebook Community Guidelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-guide-to-mentioning-every-member-online/"><u>The Complete Guide to Mentioning Every Member Online</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-guide-to-creating-a-lucrative-snapchat-lifestyle-brand-for-2024/"><u>The Guide to Creating a Lucrative Snapchat Lifestyle Brand for 2024</u></a></li>
+</ul></div>
 

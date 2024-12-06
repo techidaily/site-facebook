@@ -1,7 +1,7 @@
 ---
 title: "Revising Profile Rules: Forward, No Backward to Faith or Politics"
-date: 2024-11-25T02:53:27.151Z
-updated: 2024-11-27T11:55:31.107Z
+date: 2024-12-02T16:53:49.796Z
+updated: 2024-12-06T21:40:44.500Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook to Remove Sensitive Information
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 ![facebook sensitive information deprecation notice](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-sensitive-information-deprecation-notice.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The ability to fill in these fields pending their removal also appears to have been retired. However, on profiles that already have these fields filled in, the information remains. The company says that users can[download their Facebook data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) before the update if they want to have a record of this information.
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
  But the new update seems to take a step further, removing this information from profiles completely.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Say Goodbye to Sensitive Information Fields on Facebook
@@ -75,21 +75,19 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-the-ultimate-roadmap-for-spotify-ad-mastery/"><u>[Updated] The Ultimate Roadmap for Spotify Ad Mastery</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-vlc-media-recording-evaluation/"><u>[Updated] VLC Media Recording Evaluation</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-the-official-fix-for-your-wireless-card-model-killer-combocard-pro-1535/"><u>Download the Official Fix for Your Wireless Card - Model: Killer ComboCard Pro 1535</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-your-logitech-bluetooth-mouse-driver-on-windows-pcs-here/"><u>Get Your Logitech Bluetooth Mouse Driver on Windows PCs Here!</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-mastering-the-art-of-capturing-dynamic-images-on-ios-devices/"><u>In 2024, Mastering the Art of Capturing Dynamic Images on iOS Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-netizen-language-30-must-learn-abbreviations/"><u>Navigating Netizen Language: 30 Must-Learn Abbreviations</u></a></li>
-<li><a href="https://facebook.techidaily.com/restoring-access-reclaiming-the-missing-two-factor-code-from-fb/"><u>Restoring Access: Reclaiming the Missing Two-Factor Code From FB</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/secrets-to-optimize-gopro-camera-energy-consumption/"><u>Secrets to Optimize GoPro Camera Energy Consumption</u></a></li>
-<li><a href="https://facebook.techidaily.com/skillful-newsfeed-management-bypassing-fb-reels/"><u>Skillful Newsfeed Management: Bypassing Fb Reels</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/tech-hacks-to-stop-usb-devices-from-losing-connection/"><u>Tech Hacks to Stop USB Devices From Losing Connection</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-anonymous-advocates-playbook/"><u>The Anonymous Advocate's Playbook</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-facebooks-potential-new-title/"><u>Understanding Facebook's Potential New Title</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-impact-on-protection-the-deletion-of-user-faceprints-on-fb/"><u>Unraveling the Impact on Protection: The Deletion of User Faceprints on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebook-layout-and-navigation-updates/"><u>Unveiling Facebook Layout & Navigation Updates</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/windows-10-video-editor-guide-learn-how-to-create-movies-on-windows-10-and-11/"><u>Windows 10 Video Editor Guide - Learn How to Create Movies on Windows 10 & 11</u></a></li>
-<li><a href="https://driver-install.techidaily.com/windows-11-boosts-instant-acer-driver-tweaks/"><u>Windows 11 Boosts - Instant Acer Driver Tweaks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ow-to-broadcast-your-online-meeting-via-youtube-google-meet-steps/"><u>[New] How To Broadcast Your Online Meeting via YouTube - Google Meet Steps</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-unveiling-stardew-valleys-most-innovative-game-updates/"><u>2024 Approved Unveiling Stardew Valley's Most Innovative Game Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-enhanced-commitment-to-user-privacy/"><u>Decoding Meta’s Enhanced Commitment to User Privacy</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-the-ultimate-2022-eco-friendly-solar-gift-ideas-ranked-by-zdnet/"><u>Discover the Ultimate 2022 Eco-Friendly Solar Gift Ideas Ranked by ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/frontiersmen-of-tech-clashes-the-elite-six/"><u>Frontiersmen of Tech Clashes: The Elite Six</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-mdm-on-iphone-15-with-ease-via-third-tools-by-drfone-ios-unlock-ios-unlock/"><u>How to Bypass MDM on iPhone 15 with Ease Via third Tools?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-nubia-red-magic-8s-proplus-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Nubia Red Magic 8S Pro+</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-this-years-most-puzzling-tech-failures/"><u>Investigating This Year's Most Puzzling Tech Failures</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/optimize-your-pc-now-swift-installation-of-updated-intel-iris-540-video-card-drivers/"><u>Optimize Your PC Now: Swift Installation of Updated Intel Iris 540 Video Card Drivers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-to-correct-xerox-error-code-0x800f020b-for-windows-users/"><u>Step-by-Step Guide to Correct Xerox Error Code 0X800F020B for Windows Users</u></a></li>
+<li><a href="https://win-forum.techidaily.com/step-by-step-tutorial-troubleshooting-and-solving-secure-internet-connectivity-problems-on-windows-pcs/"><u>Step-by-Step Tutorial: Troubleshooting & Solving Secure Internet Connectivity Problems on Windows PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-online-presence-effective-follow-and-unfollow-techniques-on-facebook/"><u>Tailoring Your Online Presence: Effective Follow & Unfollow Techniques on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-6-benefits-cutting-ties-with-facebook-for-a-better-life/"><u>Top 6 Benefits: Cutting Ties with Facebook for a Better Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-listen-to-spotify-on-a-miniplayer-in-the-facebook-app/"><u>You Can Now Listen to Spotify on a Miniplayer in the Facebook App</u></a></li>
 </ul></div>
 

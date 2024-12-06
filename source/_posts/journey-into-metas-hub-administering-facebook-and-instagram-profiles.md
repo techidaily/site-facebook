@@ -1,7 +1,7 @@
 ---
 title: "Journey Into Meta's Hub: Administering Facebook & Instagram Profiles"
-date: 2024-11-20T10:23:08.055Z
-updated: 2024-11-26T17:33:33.264Z
+date: 2024-12-03T21:04:38.697Z
+updated: 2024-12-06T21:58:02.990Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/a4fdcd80183f244d65d1a43dcdc553851a248e6cf
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook and Instagram: Navigating to the Accounts Center
 
 ![Title card for Meta Accounts Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143112---Copy.jpg)
@@ -36,21 +32,25 @@ thumbnail: https://thmb.techidaily.com/a4fdcd80183f244d65d1a43dcdc553851a248e6cf
 
  Here's a brief look at how to access the Accounts Center on Instagram and Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Finding the Accounts Center on Instagram
 
 ![Instagram page with images of cats](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151629.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Instagram page with settings window open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151639.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Settings menu for Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151644.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -68,10 +68,14 @@ Here's how you can access the Accounts Center on Instagram:
 ![Settings menu for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143358.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Meta Accounts Center hub with options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143112.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -82,10 +86,6 @@ Here's how to access the Accounts Center on Facebook:
 3. Scroll all the way to the bottom and tap the**Accounts Center** tab.
 
  Opening the Accounts Center on both apps is relatively straightforward. After following these steps, you're ready to start testing its features.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Accounts Center Is Optional For Now
 
@@ -108,20 +108,24 @@ Here's how to access the Accounts Center on Facebook:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/avoid-legal-pitfalls-pre-upload-video-copyright-on-tiktok/"><u>Avoid Legal Pitfalls Pre-Upload Video Copyright on TikTok</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-cloud-to-hard-drive-your-facebook-photos-and-videos-journey/"><u>From Cloud to Hard Drive: Your Facebook Photos & Videos Journey</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/guide-running-older-software-with-compatibility-settings-in-windows-nx/"><u>Guide: Running Older Software with Compatibility Settings in Windows nX</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-realme-narzo-60-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Realme Narzo 60 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/identity-illuminators-which-shines-brighter-metalogue-gold-or-twitter-luster/"><u>Identity Illuminators: Which Shines Brighter, Metalogue Gold or Twitter Luster?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-fcps-ultimate-effect-upgrade-the-best-10-plugins/"><u>In 2024, FCP’s Ultimate Effect Upgrade The Best 10 Plugins</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-transform-gameplay-into-a-masterpiece-using-fbx/"><u>In 2024, Transform Gameplay Into a Masterpiece Using FBX</u></a></li>
-<li><a href="https://facebook.techidaily.com/inaccessible-online-spaces-discover-the-3-no-facebook-nations/"><u>Inaccessible Online Spaces: Discover the 3 No-Facebook Nations</u></a></li>
-<li><a href="https://extra-support.techidaily.com/orchestrating-pictures-with-musical-accompaniment-for-2024/"><u>Orchestrating Pictures with Musical Accompaniment for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/restoring-right-side-up-display-in-windows-10-fixed/"><u>Restoring Right Side Up Display in Windows 10 [Fixed]</u></a></li>
-<li><a href="https://games-able.techidaily.com/save-big-on-premium-55-roku-smart-led-tv-now-at-an-unbeatable-price-of-649-dont-miss-out-this-labor-day-sale/"><u>Save Big on Premium 55 Roku Smart LED TV: Now at an Unbeatable Price of $649! Don't Miss Out This Labor Day Sale!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-guide-verifying-available-storage-on-your-windows-11-pc/"><u>Step-by-Step Guide: Verifying Available Storage on Your Windows 11 PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategizing-your-events-with-a-focus-on-facebooks-features/"><u>Strategizing Your Events with a Focus on Facebook's Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-language-of-facebooks-emoji-keyboard/"><u>The Language of Facebook's Emoji Keyboard</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-voyage-charting-facebooks-course-to-meta/"><u>Virtual Voyage: Charting Facebook's Course to Meta</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-expert-video-grabbing-kit-perfect-for-firefox-browser-users-for-2024/"><u>[New] Expert Video Grabbing Kit Perfect for FireFox Browser Users for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-capturecraft-elite-precision-for-windowsmac-snaps/"><u>[New] In 2024, CaptureCraft Elite Precision for Windows/Mac Snaps</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-best-affordable-flying-tech-today/"><u>[Updated] 2024 Approved Best Affordable Flying Tech Today</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-a-guide-to-seamless-video-integration-pip-techniques-for-mac-users/"><u>[Updated] A Guide to Seamless Video Integration PIP Techniques for Mac Users</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-exclusive-changes-in-photo-backgrounds-visionshift-elite-for-2024/"><u>[Updated] Exclusive Changes in Photo Backgrounds VisionShift Elite for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-breaking-barriers-next-level-strategies-for-fb-video-success/"><u>2024 Approved Breaking Barriers Next-Level Strategies for FB Video Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-tale-of-transformation-why-facebook-staff-are-now-metamates/"><u>A Tale of Transformation: Why Facebook Staff Are Now 'Metamates'</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-art-and-tech-with-meta-drops-social-platform-testing/"><u>Bridging Art & Tech with Meta Drops' Social Platform Testing</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-4-trends-impacting-facebook-users/"><u>Examining 4 Trends Impacting Facebook Users</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/heif-vs-jpeg-compared-a-comprehensive-guide-for-photographers/"><u>HEIF Vs. JPEG Compared: A Comprehensive Guide for Photographers</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-your-time-on-social-media-fbs-reels/"><u>Limiting Your Time on Social Media - FB's Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/photo-uploads-digital-ownership-questions/"><u>Photo Uploads: Digital Ownership Questions</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quick-drivers-improvement-for-amd-radeon-rx-5500xt/"><u>Quick Drivers Improvement for AMD Radeon RX 5500XT</u></a></li>
+<li><a href="https://facebook.techidaily.com/screenshot-your-sanctuary-eradicating-fb-notifications/"><u>Screenshot Your Sanctuary: Eradicating FB Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-transition-to-spotify-while-staying-in-facebook-app/"><u>Seamless Transition to Spotify While Staying in Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-merits-of-swipe-and-tap-in-social-media-platforms/"><u>The Merits of Swipe and Tap in Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/total-quietude-in-the-face-of-facebook-alerts/"><u>Total Quietude in the Face of Facebook Alerts</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transferring-your-shows-bible-a-three-step-guide-with-images-on-moving-videots-files-to-your-hard-drive/"><u>Transferring Your Show's BIBLE: A Three-Step Guide With Images on Moving Video_TS Files to Your Hard Drive</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-guide-to-the-premier-pc-gaming-rigs-professional-evaluation-zdnet/"><u>Ultimate Guide to the Premier PC Gaming Rigs : Professional Evaluation | ZDNET</u></a></li>
 </ul></div>
 

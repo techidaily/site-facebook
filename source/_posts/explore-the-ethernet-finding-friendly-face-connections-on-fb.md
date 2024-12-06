@@ -1,7 +1,7 @@
 ---
 title: "Explore the Ethernet: Finding Friendly Face Connections on FB"
-date: 2024-11-23T13:32:26.151Z
-updated: 2024-11-26T17:27:46.987Z
+date: 2024-12-05T16:47:37.290Z
+updated: 2024-12-06T16:28:16.112Z
 tags:
   - facebook
 categories:
@@ -44,10 +44,6 @@ To find your own Facebook profile link:
 
 ![Your Facebook URL](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Your-facebook-URL.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To find the Facebook profile URL of another user:
 
  1.**Search** the profile you want to share.
@@ -58,6 +54,10 @@ To find the Facebook profile URL of another user:
 
  3\. Copy the URL from the address bar and paste it at the desired location. The format for the URL is <https://www.facebook.com/username>.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Finding a Facebook Profile URL on Mobile
 
  You can find a Facebook profile URL on your smartphone through the Facebook mobile app or the browser.
@@ -66,13 +66,13 @@ To find the Facebook profile URL of another user:
 
 ![Open menu on the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Open-menu-on-Facebook-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Go to see your profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Go-to-see-your-profile.jpg)
 
 ![Copy link of your URL](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-of-your-URL.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -90,20 +90,12 @@ Close
 
 ![Three horizontal bars on the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Three-horizontal-bars-on-the-Facebook-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Go to your Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Go-to-your-Facebook-profile.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Copy link from the drop down menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-from-the-drop-down-menu.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -119,10 +111,14 @@ Close
 ![Search a profile on the browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Search-a-profile-on-the-browser.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![URL of another user on the browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/URL-of-another-user-on-the-browser.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -139,10 +135,6 @@ Close
 2. Use the search bar on the top left of the home page to find the page and select it.
 3. Copy the link in the address bar. This is the page's URL.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Finding a Facebook Page Link on a Smartphone
 
  You can find a Facebook page URL through the Facebook app or web browser.
@@ -154,7 +146,7 @@ If you're using the Facebook app:
 ![Copy link of the Facebook page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-of-the-Facebook-page.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -167,6 +159,10 @@ In case you're using a mobile web browser, follow these steps:
 
 ![Search for the page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Search-for-the-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Tap on the three dots](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tap-on-the-three-dots.jpg)
 
 Close
@@ -174,10 +170,6 @@ Close
 1. Use the**Search Bar** to look for the page and select it.
 2. Click the three dots on the right to open a new menu. Select**Share** if you want to post it on your profile.
 3. Copy the link in the address bar as it’s the URL of the page.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Find a Facebook Group URL
 
@@ -191,6 +183,10 @@ Close
 
 ![Go to Share and Copy Link](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Go-to-Share-and-Copy-Link.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Find a Facebook Group Link on Mobile
 
  When using a smartphone, you can use your Facebook app or browser to find the URL of any group.
@@ -199,7 +195,15 @@ If you opt for the Facebook app:
 
 ![Share Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Share-Facebook-group.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Copy link of Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-of-Facebook-group.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -219,10 +223,6 @@ Close
 2. Use the**Search Bar** to look for the group. Then select the group.
 3. Tap on**More** to share the group on your timeline.
 4. Select the link on the address bar and copy it to paste on other platforms.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Sharing Made Simple With Facebook
 
@@ -245,17 +245,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/approved-pioneers-designing-the-online-avengers-landscape/"><u>2024 Approved Pioneers Designing the Online Avengers Landscape</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/decoding-the-scope-of-googles-ai-gemini-venture/"><u>Decoding the Scope of Google's AI Gemini Venture</u></a></li>
-<li><a href="https://facebook.techidaily.com/guiding-your-child-through-safe-data-edits-on-messenger/"><u>Guiding Your Child Through Safe Data Edits on Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-reset-security-codes-not-sent-by-facebook/"><u>How to Reset Security Codes Not Sent by Facebook</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-or-minimizing-the-real-story-of-expat-facebook-groups/"><u>Maximizing or Minimizing? The Real Story of Expat Facebook Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/platform-policy-temporal-suspension-of-trump-a-step-forward/"><u>Platform Policy: Temporal Suspension of Trump, a Step Forward</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solved-overcoming-audio-glitches-in-mass-effects-definitive-edition/"><u>Solved: Overcoming Audio Glitches in Mass Effect's Definitive Edition</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solving-silence-a-step-by-step-guide-to-restoring-audio-in-fallout-4/"><u>Solving Silence: A Step-by-Step Guide to Restoring Audio in Fallout 4</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-and-using-safety-features-on-fb/"><u>Understanding and Using Safety Features on FB</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722973426228-update-your-epson-l3150-printer-software-on-windows-11-8-or-7-download-and-install-today/"><u>Update Your Epson L3150 Printer Software on Windows 11, 8 or 7: Download & Install Today</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-sony-vegas-vs-adobe-premiere-which-one-is-better-in-2024/"><u>Updated Sony Vegas VS Adobe Premiere, Which One Is Better, In 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-prime-authorship-workshop/"><u>[New] 2024 Approved Prime Authorship Workshop</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-rookie-recommendations-simple-profitable-youtube-purchases/"><u>[New] 2024 Approved Rookie Recommendations Simple, Profitable YouTube Purchases</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-why-is-my-instagram-video-rotated-unnaturally/"><u>[Updated] In 2024, Why Is My Instagram Video Rotated Unnaturally?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-pinnacle-of-insta-grids-our-curated-list-of-best-tools/"><u>[Updated] The Pinnacle of Insta Grids Our Curated List of Best Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/background-tunes-to-boost-your-status-for-2024/"><u>Background Tunes to Boost Your Status for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/boost-creativity-how-to-use-movie-maker-on-windows-8-for-2024/"><u>Boost Creativity How to Use Movie Maker on Windows 8 for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/enhancing-media-workflow-the-rise-of-magix-vpx-for-2024/"><u>Enhancing Media Workflow The Rise of Magix VPX for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-account-security-the-facebook-two-factor-way/"><u>Ensuring Account Security: The Facebook Two-Factor Way</u></a></li>
+<li><a href="https://facebook.techidaily.com/framework-for-founding-fledgling-forum-groups-on-fb/"><u>Framework for Founding Fledgling Forum Groups on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-facebook-to-meta-unveiling-the-social-media-giants-future-vision/"><u>From 'Facebook' To Meta: Unveiling the Social Media Giant's Future Vision</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-vivo-s17e-lock-screen-password-by-drfone-android/"><u>How to Reset your Vivo S17e Lock Screen Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/january-review-the-status-of-trumps-page/"><u>January Review: The Status of Trump's Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-privacy-intact-remove-facebook-history/"><u>Keep Your Privacy Intact: Remove Facebook History</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mastering-multiframe-view-microsoft-edges-pip/"><u>Mastering Multiframe View Microsoft Edge's PIP</u></a></li>
+<li><a href="https://facebook.techidaily.com/most-effective-social-sites-for-senior-users/"><u>Most Effective Social Sites For Senior Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-through-fb-safeguarding-processes/"><u>Navigate Through FB Safeguarding Processes</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-based-resetting-facebooks-response-to-user-data-breaches/"><u>Tech-Based Resetting - Facebook's Response to User Data Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-risks-of-shadowing-online-profiles/"><u>The Hidden Risks of Shadowing Online Profiles</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/troubleshooting-xvid-file-support-issues-with-plex-easy-solutions/"><u>Troubleshooting Xvid File Support Issues with Plex: Easy Solutions!</u></a></li>
 </ul></div>
 

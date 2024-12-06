@@ -1,7 +1,7 @@
 ---
 title: "Networking Paradigms Shifted: Unveiling the Four Main Changes in Online Society"
-date: 2024-11-22T22:23:41.623Z
-updated: 2024-11-27T14:32:48.984Z
+date: 2024-11-30T23:15:59.079Z
+updated: 2024-12-06T21:49:19.153Z
 tags:
   - facebook
 categories:
@@ -25,23 +25,19 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Facebook’s Increased Focus on the Metaverse
 
 ![logo of meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/logo-of-meta.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Meta originally announced their company name change from Facebook in 2021, but 2022 saw an intense push from the platform for the metaverse. Several advertisers have joined the metaverse in 2022, and Meta developed and released high-tech VR headsets for users, according to[CNN](https://www.cnn.com/2022/10/30/tech/meta-metaverse-transition/index.html) .
 
  This focus has not yet translated to popular use though. Most Facebook users are not in the metaverse yet or even own a VR headset. According to[Forbes](https://www.forbes.com/sites/danidiplacido/2022/08/21/mark-zuckerberg-upgraded-his-metaverse-avatar-after-the-entire-internet-laughed-at-him/?sh=5e6c88ab35a3) , the upgraded metaverse avatar that Mark Zuckerberg unveiled in 2022 was also widely unpopular. Although, one[2023 social media prediction](http://www.makeuseof.com/social-media-predictions-2023/) is that as Meta continues to push the metaverse, consumers may finally join in.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Elon Musk Took Over Twitter
@@ -53,16 +49,12 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
  Potential changes to Twitter’s community guidelines and policies have also been the subject of controversy in 2022 as Musk prioritized “free speech” on the platform.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Reels, Reels, Reels
 
 ![Instagram reel on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Instagram-Reel-Idea.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Instagram made a major shift from a photo-sharing app to just about an everything social media app in 2022\. The app’s main focus has been pushing Instagram Reels and supporting creators who make and post Reels by showing their content to more people on the algorithmic home feed.
 
@@ -74,9 +66,17 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 
  BeReal didn’t just popularize the once-per-day photo. The app has proven that audiences want more authentic content and less of the perfect photoshopped influencer content that other platforms have become known for. Even if BeReal itself doesn’t last, the impact on the kind of content we see all over social media will likely last beyond 2022.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Social Media in 2022
 
 ![social media apps on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/social-media-apps-on-phone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  2022 was a defining year for social media all over the world. Many of the changes we saw are likely not just trends; they are transformations to our favorite platforms that will continue to evolve as we use social media differently.
 
@@ -97,24 +97,24 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-pixelcasting-app-reviews/"><u>[New] PixelCasting App Reviews</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-picture-perfect-moments-for-morale-boost/"><u>[Updated] In 2024, Picture Perfect Moments for Morale Boost</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-facebook-is-defining-satirical-expression/"><u>How Facebook Is Defining Satirical Expression</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-step-by-step-to-activate-pip-in-youtube-iphone-app/"><u>In 2024, Step-by-Step to Activate PIP in YouTube iPhone App</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-your-facebook-sanctity-intact-detect-breaches/"><u>Keep Your Facebook Sanctity Intact – Detect Breaches</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/les-10-outils-serieux-pour-la-prise-de-screen-en-mode-windows-11-movavi/"><u>Les 10 Outils Sérieux Pour La Prise De Screen en Mode Windows 11 - Movavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-your-facebook-visibility-settings/"><u>Mastering Your Facebook Visibility Settings</u></a></li>
-<li><a href="https://windows11.techidaily.com/quash-insufficient-requirement-notice-windows-11/"><u>Quash Insufficient Requirement Notice Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/revive-your-facebook-session-common-fixes-at-hand/"><u>Revive Your Facebook Session: Common Fixes at Hand</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-significance-showdown-decoding-status-hierarchies-in-twitter-and-meta/"><u>Social Significance Showdown: Decoding Status Hierarchies in Twitter and Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-tale-of-two-sides-to-joining-expat-groups-online/"><u>The Tale of Two Sides to Joining Expat Groups Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-8-crowdflower-tools-that-boost-campaign-performance/"><u>Top 8 CrowdFlower Tools That Boost Campaign Performance</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-music-from-lava-yuva-3-pro-by-fonelab-android-recover-music/"><u>Undelete lost music from Lava Yuva 3 Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/underappreciated-innovations-the-most-important-unnoticed-tech-news/"><u>Underappreciated Innovations: The Most Important Unnoticed Tech News</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unveiling-the-potent-blend-of-style-and-speed-an-in-depth-review-of-the-dell-xps-13-2-in-1-notebook/"><u>Unveiling the Potent Blend of Style and Speed: An In-Depth Review of the Dell XPS 13 2-in-1 Notebook</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-intuitive-acoustic-sifting-gadgets-for-first-timers-and-seasoned-artists/"><u>Updated Intuitive Acoustic Sifting Gadgets for First-Timers and Seasoned Artists</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-itel-p40plus-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Itel P40+ Phones</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/what-tech-enthusiasts-are-expecting-from-apples-upcoming-event-a-deep-dive-into-potential-m4-mac-minis-innovative-ipads-and-future-of-apple-ai-analysis/"><u>What Tech Enthusiasts Are Expecting From Apple’s Upcoming Event – A Deep Dive Into Potential M4 Mac Minis, Innovative iPads, and Future of Apple AI | Analysis</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-you-should-incorrantegate-sleep-mode-into-your-daily-routine-with-messenger-kids/"><u>Why You Should Incorrantegate Sleep Mode Into Your Daily Routine with Messenger Kids</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-discover-8-trustworthy-online-content-promoters/"><u>[New] 2024 Approved Discover 8 Trustworthy Online Content Promoters</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-pinnacle-of-macro-photography-and-cinematography/"><u>[New] The Pinnacle of Macro Photography and Cinematography</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-immersive-visual-spectacle-gears-challenge-to-lgcam/"><u>[Updated] 2024 Approved Immersive Visual Spectacle Gear's Challenge to LGCam</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-art-of-amassing-attention-on-ig-a-guide-for-a-thousand-likesmonth/"><u>[Updated] In 2024, The Art of Amassing Attention on IG A Guide for a Thousand Likes/Month</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-making-the-most-out-of-your-films-b-roll/"><u>[Updated] Making the Most Out of Your Film's B-Roll</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/adjusting-surface-pro-7s-visual-flux/"><u>Adjusting Surface Pro 7'S Visual Flux</u></a></li>
+<li><a href="https://facebook.techidaily.com/attain-elite-status-metas-pay-to-verify-advantage/"><u>Attain Elite Status: Meta's Pay-to-Verify Advantage</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/cookiebot-driven-site-optimization-enhance-your-websites-traffic-and-conversions/"><u>Cookiebot-Driven Site Optimization: Enhance Your Website's Traffic and Conversions</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-the-issue-how-to-get-msi-afterburner-to-recognize-your-gpu-in-windows-11/"><u>Fixing the Issue: How to Get MSI Afterburner to Recognize Your GPU in Windows 11</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-first-look-at-organizing-zoom-session-rooms/"><u>In 2024, First Look at Organizing Zoom Session Rooms</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-someone-else-impersonating-you-on-social-media/"><u>Is Someone Else Impersonating You on Social Media?</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-multiple-group-platforms-for-increased-impact/"><u>Leveraging Multiple Group Platforms for Increased Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/lifelog-legends-who-holds-the-crown-the-gilded-meta-or-silver-ticked-twitters/"><u>Lifelog Legends: Who Holds the Crown, The Gilded Meta or Silver-Ticked Twitters?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-intersections-in-your-xbox-experience/"><u>Navigating Social Intersections in Your Xbox Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/photodna-explained-a-tool-for-digital-forensics/"><u>PhotoDNA Explained: A Tool for Digital Forensics</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154626988-strengthen-your-security-end-to-end-encrypted-messaging-on-facebooks-social-network/"><u>Strengthen Your Security: End-to-End Encrypted Messaging on Facebook’s Social Network</u></a></li>
+<li><a href="https://discover-help.techidaily.com/synology-naswindows-10aomei-backupper/"><u>Synology NAS上でWindows 10の安全な保存:AOMEI Backupper利用ガイド</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-digital-workspace-revolution-discovering-facebooks-8-strategies/"><u>The Digital Workspace Revolution: Discovering Facebook's 8 Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-to-unveil-multi-device-support-for-whatsapp/"><u>Zuckerberg to Unveil Multi-Device Support for WhatsApp</u></a></li>
 </ul></div>
 

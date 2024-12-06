@@ -1,7 +1,7 @@
 ---
 title: The Push for Non-Partisan, Non-Denominational Profile Spaces
-date: 2024-08-28T03:14:18.935Z
-updated: 2024-08-29T03:14:18.935Z
+date: 2024-12-01T23:08:27.780Z
+updated: 2024-12-06T17:56:27.473Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/4a8a85a143c0d3d9775ca5a0e81916a22ae62d07a
 
  Facebook will be removing "sensitive information" from user profiles, including addresses, political views, sexual orientation, and religious views. These fields have existed for years on the social media platform, but will be deprecated in a December update.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook to Remove Sensitive Information
 
  Facebook gathers plenty of data from users and has extensive profile fields that allow users to link to family members, show their job history, and flag major life milestones. However, the social media site has attracted controversy in the past for how advertisers were able to use more sensitive data about users to target ads.
@@ -26,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/4a8a85a143c0d3d9775ca5a0e81916a22ae62d07a
  But the notice has also started appearing to more users, including MUO staff. Depending on what sensitive information you have on your profile, the notice may differ. However, it confirms that the information will be removed starting 1 December 2022\. Fields that will be removed include**Address** ,**Political Views** ,**Religious Views** , and**Interested In** .
 
 ![facebook sensitive information deprecation notice](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-sensitive-information-deprecation-notice.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The ability to fill in these fields pending their removal also appears to have been retired. However, on profiles that already have these fields filled in, the information remains. The company says that users can[download their Facebook data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) before the update if they want to have a record of this information.
 
@@ -39,18 +47,19 @@ thumbnail: https://thmb.techidaily.com/4a8a85a143c0d3d9775ca5a0e81916a22ae62d07a
 
  But the new update seems to take a step further, removing this information from profiles completely.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Say Goodbye to Sensitive Information Fields on Facebook
 
  How this update will play out in terms of targeted advertising remains to be seen. While the removal of this information prevents users from directly noting this information in profile fields, advertisers still have plenty of other ways to target you according to these categories by using other data points.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -59,8 +68,20 @@ thumbnail: https://thmb.techidaily.com/4a8a85a143c0d3d9775ca5a0e81916a22ae62d07a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/updated-quickening-media-display-on-ppt/"><u>[Updated] Quickening Media Display on PPT</u></a></li>
+<li><a href="https://win-unique.techidaily.com/direct-run-exe-conversion-for-personalized-flipbooks-with-flipbuilder-tools/"><u>Direct Run EXE Conversion for Personalized Flipbooks with FlipBuilder Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/enhance-your-live-video-sessions-using-manycams-powerful-virtual-webcam-features/"><u>Enhance Your Live Video Sessions Using ManyCam's Powerful Virtual Webcam Features</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/enterprise-level-data-wipe-tool-discover-video-demo-of-bitraser-solutions/"><u>Enterprise-Level Data Wipe Tool: Discover Video Demo of BitRaser Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-guide-to-discovering-facebook-pages-and-groups-links/"><u>Essential Guide to Discovering Facebook Pages & Groups Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-the-portal-go-making-the-portal-portable-for-the-first-time/"><u>Facebook Launches the Portal Go, Making the Portal Portable for the First Time</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/geavanceerde-tips-voor-uitwisseling-van-wechat-geschiedenis-vanaf-android-opschreiden-op-ios/"><u>Geavanceerde Tips Voor Uitwisseling Van WeChat Geschiedenis Vanaf Android Opschreiden Op iOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-users-on-friend-activity-sharing-controls/"><u>Guiding Users on Friend Activity Sharing Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/misinformers-among-top-social-media-influencers/"><u>Misinformers Among Top Social Media Influencers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/poco-data-recovery-recover-lost-data-from-poco-c55-by-fonelab-android-recover-data/"><u>Poco Data Recovery – recover lost data from Poco C55</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/revolutionary-dialogue-engine-anticipated-traits-of-gpt-5/"><u>Revolutionary Dialogue Engine: Anticipated Traits of GPT-5</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-of-integrated-facebook-exploration/"><u>Steering Clear of Integrated Facebook Exploration</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/text-transformation-tactics-avoiding-3d-missteps-for-2024/"><u>Text Transformation Tactics Avoiding 3D Missteps for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

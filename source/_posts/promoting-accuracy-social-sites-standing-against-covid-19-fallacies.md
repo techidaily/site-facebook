@@ -1,7 +1,7 @@
 ---
 title: "Promoting Accuracy: Social Sites Standing Against COVID-19 Fallacies"
-date: 2024-08-28T03:21:30.259Z
-updated: 2024-08-29T03:21:30.259Z
+date: 2024-11-30T18:46:52.865Z
+updated: 2024-12-06T22:13:28.723Z
 tags:
   - facebook
 categories:
@@ -41,6 +41,10 @@ Here's what social media platforms can do to tackle the issue.
 
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-2.png)
 
 Close
@@ -60,8 +64,9 @@ YouTube also removes videos that violate its COVID-19 policy.
  Read more: [Is Facebook Doing Enough to Tackle Misinformation?](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Social Media Companies Can Protect Users From Harmful Misinformation
 
  In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
@@ -72,16 +77,14 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  They can also share their personal experiences around getting vaccinated.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Establish Shared Online Standards Across Social Media Platforms
 
  Social media platforms have algorithms to detect fake news. However, they can take it a step further by establishing a shared online standard of conduct regarding the treatment of fake news.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Establish a Clear Threshold for Enforcement Action
 
  A low threshold, such as two strikes, would allow for moderate enforcement prior to removal—such as the restriction of a page’s ability to go live or post video content without moderated review.
@@ -93,38 +96,34 @@ YouTube also removes videos that violate its COVID-19 policy.
  Social media platforms can show users who have been exposed to content in violation of the COVID-19 policy corrective posts from experts and trusted sources.
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. Add Warning Screens When Users Click Links to Misinformation Sites
 
  Companies should consider adding a warning screen in front of third-party websites or untrustworthy sources housing COVID-19-related misinformation.
 
  Related: [The Best Fact-Checking Sites for Finding Unbiased Truth](https://www.makeuseof.com/tag/true-5-factchecking-websites/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 6\. Ban Private and Secret Anti-Vaccine Facebook Groups
 
  Ban private groups that traffic primarily in vaccine disinformation and prevent groups that require a Facebook disclaimer from existing as private or secret groups, as anti-vaxxers rely on the privacy of these groups to spread dangerous anti-vaccine misinformation.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Social Media Companies Play a Key Role in Reducing COVID-19 Related Misinformation Online
 
  As the COVID-19 pandemic has highlighted, the role played by social media in the spread of misinformation can have serious social and public health consequences. Mass vaccination remains the most likely successful strategy to achieve long-term control of the pandemic.
 
  In order to improve COVID-19 awareness and vaccine uptake, social media companies have a key role to play in ensuring that the correct information is presented to users on its platforms, while tackling misinformation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,4 +132,24 @@ YouTube also removes videos that violate its COVID-19 policy.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/aming-history-told-by-top-video-makers/"><u>[New] Gaming History Told by Top Video Makers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-unlocking-youtube-subtitles-a-guide-with-3-efficient-techniques/"><u>[New] In 2024, Unlocking YouTube Subtitles A Guide with 3 Efficient Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mastering-social-media-video-for-superior-fb-outcomes-for-2024/"><u>[New] Mastering Social Media Video for Superior FB Outcomes for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-social-media-integration-for-amplified-youtube-shorts-reach/"><u>[Updated] Social Media Integration for Amplified YouTube Shorts Reach</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-virtual-reality-wisdom-30plus-metaverse-quotes-for-2024/"><u>[Updated] Virtual Reality Wisdom 30+ Metaverse Quotes for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-comprehensible-approach-to-adding-dates-on-youtube-videos/"><u>A Comprehensible Approach to Adding Dates on YouTube Videos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-claims-behind-giphy-facebook-sale-speculations/"><u>Examining the Claims Behind Giphy-Facebook Sale Speculations</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-reels-as-the-answer-to-tiktok-on-facebook/"><u>Exploring Reels as the Answer to TikTok on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-idea-to-income-metrics-and-money-making-magic-with-creator-reels/"><u>From Idea to Income: Metrics and Money-Making Magic with Creator Reels</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-filmoras-blueprint-for-stellar-youtube-trailers/"><u>In 2024, Filmora's Blueprint for Stellar YouTube Trailers</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-timeline-with-impactful-facebook-cover-pics/"><u>Master Your Timeline with Impactful Facebook Cover Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/netting-profits-through-digital-dialogues/"><u>Netting Profits Through Digital Dialogues</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-flawless-fb-images/"><u>Strategies for Flawless FB Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactics-for-boosting-fb-reach/"><u>Tactics for Boosting Fb Reach</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-october-2024-pc-and-laptop-discounts-unbeatable-savings-ahead-of-black-friday-techradar/"><u>Top October 2024 PC & Laptop Discounts: Unbeatable Savings Ahead of Black Friday | TechRadar</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-potential-best-budget-apps-to-manage-social-sites/"><u>Unleash Potential - Best Budget Apps to Manage Social Sites</u></a></li>
+</ul></div>
 

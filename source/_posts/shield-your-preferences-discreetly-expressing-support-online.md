@@ -1,7 +1,7 @@
 ---
 title: "Shield Your Preferences: Discreetly Expressing Support Online"
-date: 2024-11-25T05:58:31.955Z
-updated: 2024-11-26T22:32:31.579Z
+date: 2024-12-02T23:12:27.463Z
+updated: 2024-12-06T16:15:41.366Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b65
  Facebook has announced that it is giving users the ability to hide public like counts on Instagram and Facebook. Likes will be visible by default, but you can now opt out of seeing them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Instagram and Facebook Finally Remove Likes
@@ -30,7 +30,7 @@ thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b65
 ![instagram hide likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/instagram-hide-likes.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://about.fb.com/news/2021/05/giving-people-more-control/)
@@ -58,17 +58,16 @@ thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b65
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-optimizing-video-capture-with-mov-on-windows-10/"><u>[New] In 2024, Optimizing Video Capture with MOV on Windows 10</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/best-cloud-apps-android-list-seamless-backup-and-sync-edition-for-2024/"><u>Best-Cloud-Apps-Android-List Seamless Backup and Sync Edition for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-videos-from-iphone-xr-without-backup-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Videos from iPhone XR Without Backup? | Stellar</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/in-2024-bridging-social-channels-the-journey-of-video-content-to-whatsapp/"><u>In 2024, Bridging Social Channels The Journey of Video Content to WhatsApp</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-the-potential-comprehensive-analysis-of-dji-phantom-4/"><u>In 2024, Unlocking the Potential Comprehensive Analysis of DJI Phantom 4</u></a></li>
-<li><a href="https://facebook.techidaily.com/influencer-network-behind-widespread-covid-19-misinformation/"><u>Influencer Network Behind Widespread Covid-19 Misinformation</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/pro-video-editing-tools-on-your-phone-for-2024/"><u>Pro Video Editing Tools on Your Phone for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-tutorial-achieving-ideal-sync-with-bose-soundlink-devices/"><u>Step-by-Step Tutorial: Achieving Ideal Sync with Bose Soundlink Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-anti-big-tech-movement-understanding-regulatory-intentions/"><u>The Anti-Big Tech Movement: Understanding Regulatory Intentions</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-rated-family-wifi-protectors-the-ultimate-router-selection/"><u>Top-Rated Family WiFi Protectors: The Ultimate Router Selection</u></a></li>
-<li><a href="https://facebook.techidaily.com/tutorial-removing-fb-new-message-indicators/"><u>Tutorial: Removing Fb New Message Indicators</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-of-facebook-and-its-common-issues/"><u>Unlocking the Secrets of Facebook & Its Common Issues</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-one-stop-solution-mastering-gif-downloads-across-all-devices-and-systems/"><u>[Updated] 2024 Approved One-Stop Solution Mastering GIF Downloads Across All Devices & Systems</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-fundamentals-of-income-for-t-series-on-youtube/"><u>[Updated] The Fundamentals of Income for T-Series on YouTube</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/7-ways-to-lock-apps-on-apple-iphone-13-pro-and-ipad-securely-by-drfone-ios/"><u>7 Ways to Lock Apps on Apple iPhone 13 Pro and iPad Securely</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/avoiding-and-mending-internal-error-with-windows-11s-rdp/"><u>Avoiding and Mending Internal Error with Windows 11'S RDP</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-an-unadulterated-newsfeed-experience-on-facebook/"><u>Creating an Unadulterated Newsfeed Experience on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-hidden-gems-in-your-facebook-archive/"><u>Discovering Hidden Gems in Your Facebook Archive</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-latest-feature-ray-ban-stories-functions-and-pricing/"><u>Facebook's Latest Feature: Ray-Ban Stories - Functions & Pricing</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/how-to-loop-a-video-with-imovie-on-mac-and-iphone/"><u>How to Loop a Video with iMovie on Mac and iPhone</u></a></li>
+<li><a href="https://facebook.techidaily.com/rumors-swirl-over-facebooks-ethical-commerce-stance/"><u>Rumors Swirl Over Facebook's Ethical Commerce Stance</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/step-by-step-tutorial-acquiring-and-setting-up-hevc-encoder-in-windows-10-without-costs/"><u>Step-by-Step Tutorial: Acquiring and Setting Up HEVC Encoder in Windows 10 Without Costs</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-list-leading-ups-batteries-this-year/"><u>Ultimate List: Leading UPS Batteries This Year</u></a></li>
 </ul></div>
 

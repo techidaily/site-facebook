@@ -1,7 +1,7 @@
 ---
 title: "Social Evolution: Growth Post-Internet Exit"
-date: 2024-08-28T03:20:05.782Z
-updated: 2024-08-29T03:20:05.782Z
+date: 2024-12-04T16:30:20.765Z
+updated: 2024-12-06T21:59:47.705Z
 tags:
   - facebook
 categories:
@@ -31,9 +31,17 @@ Speaking from my own experience, here's what you can expect.
 
  In any case, eventually, those around you will accept your decision or at least, their reactions won't affect you one way or the other. Be sure to have a standard line ready to explain your absence from social media while making small talk.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Feeling Directionless Online
 
 ![Social media app icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/curate-social-media-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Every time you open your browser, you might be at a loss to decide what to do. You won't know where to go next, because your go-to web hangouts—Facebook and Twitter—are gone.
 
@@ -41,13 +49,6 @@ Speaking from my own experience, here's what you can expect.
 
  Planning to quit social media to avoid information overload? Watch out for the continued temptation of social networking sites like Instagram. These sites let you browse their content without an account.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## 3\. Being Out of the Loop
 
 ![Happy Girls Laughing at Smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Happy-Group-Looking-at-Phone.jpg)
@@ -60,23 +61,22 @@ No advertising on the website.
 
  To[counter your fear of missing out on social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) , you might increase your activity on group messaging apps like WhatsApp or Discord. You'll also need to find alternative, sometimes old-school ways to keep in touch with friends and family. Keep in mind that the solutions need to be convenient for both parties.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Limited Access to Certain Sites
 
 ![Screenshot showing how to sign up for an Adobe CC account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/screenshot-2023-01-19-at-10-33-26.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Only when you have deleted your Facebook and Twitter accounts will you grasp the extent to which the web depends on the[top social media sites](https://www.makeuseof.com/tag/top-social-media-apps-sites/) .
 
  You might have to forgo many interesting services for the sole reason that you don't have a Facebook or Twitter login to sign up for an account. What happened to good old email signups?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Derailed Job Searches
 
  Job hunts are the worst hit by the lack of a social media presence. "Awesome social media skills" seem like a permanent fixture in job descriptions these days. It's a pity that these skills are at times considered more important than the technical skills you need to fulfill a role.
@@ -84,8 +84,9 @@ No advertising on the website.
  Staying up-to-date on LinkedIn, participating in Twitter chats, joining discussions in Facebook groups—these definitely open up more[opportunities to get ahead in your career](https://www.makeuseof.com/tips-let-people-know-you-open-to-work/) . (That's not a bad thing at all.) Naturally, you might feel tempted to resurrect your social media profiles.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. More Headspace
 
  I have saved the best for last. When you quit social media and get past the first few months of withdrawal symptoms, you'll begin to enjoy the headspace you have reclaimed.
@@ -96,23 +97,17 @@ No advertising on the website.
 
  Sure, you'll want to binge on social media feeds a few times a year. Don't feel guilty when that happens. Indulge yourself occasionally. Seeing the same old stuff you wanted to escape in the first place will put the situation in perspective for you.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## When It Comes to Social Media, Never Say Never
 
  You'll have to be ready to go back to social media if some part of your work requires it. See if you can find a suitable workaround instead, like setting an app timer. If not, think of social media as a means to an end—like a tool—rather than something that's a part of your lifestyle.
 
  Many people thrive on and enjoy the kind of dynamic, fast-paced interaction that social media provides. But for many others, it can have negative effects. As I see it, there's no definitive right or wrong approach to social media. There's only what works for you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,4 +116,19 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-starting-strong-in-screen-sharpness-your-first-tutorial-on-hd-video/"><u>[New] In 2024, Starting Strong in Screen Sharpness Your First Tutorial on HD Video</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-securing-your-stylized-content-insta-photo-watermarking-basics/"><u>2024 Approved Securing Your Stylized Content Insta Photo Watermarking Basics</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722978858291-download-and-install-corsair-void-pro-drivers-on-windows-simple-steps/"><u>Download and Install Corsair Void Pro Drivers on Windows - Simple Steps!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-honor-magic-6-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Honor Magic 6 without App | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-androids-favorite-is-pickup-superior-to-other-photo-editors/"><u>In 2024, Android’s Favorite Is PickUp Superior to Other Photo Editors?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-digital-artistry-on-the-huion-inspiroy-g10t-device-insights-into-its-elite-quality-and-functional-prowess/"><u>Mastering Digital Artistry on the Huion Inspiroy G10T Device: Insights Into Its Elite Quality and Functional Prowess</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-to-a-safer-online-experience-without-facebook-history/"><u>Navigating to a Safer Online Experience Without Facebook History</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/the-complete-guide-to-podcast-editing-with-audacity/"><u>The Complete Guide to Podcast Editing with Audacity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-imperative-for-more-stringent-online-fraud-control-by-tech-firms/"><u>The Imperative for More Stringent Online Fraud Control by Tech Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mystery-of-shadowbanning-definition-and-prevention/"><u>The Mystery of Shadowbanning: Definition & Prevention</u></a></li>
+<li><a href="https://facebook.techidaily.com/upcoming-verdict-from-facebooks-governance-board-on-trump-ban/"><u>Upcoming Verdict From Facebook's Governance Board on Trump Ban</u></a></li>
+</ul></div>
 

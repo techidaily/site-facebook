@@ -1,7 +1,7 @@
 ---
 title: Initiating a Robust Cybersecurity Regime for Youth on FB
-date: 2024-08-28T03:20:11.885Z
-updated: 2024-08-29T03:20:11.885Z
+date: 2024-12-04T22:56:36.660Z
+updated: 2024-12-06T22:01:35.977Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
  You can show them how to perform a privacy check on Facebook by going through it with them, or by doing it for them. Let's take a look at what you should be checking.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is a Privacy Check on Facebook?
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
@@ -27,11 +31,19 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -40,8 +52,9 @@ Close
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Privacy Setting Basics
 
  There are some[privacy settings on Facebook that you should change](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) as soon as you get a moment. With so many[Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) out there, you should address the issue of privacy for your teen's account before they fall victim to one of them.
@@ -68,22 +81,16 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Check Ad Settings
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
  Facebook's news feeds show more than just the activity of friends and people your teen follows. They also show numerous advertisements. After you've checked the age of your teen to make sure they are not being shown inappropriate ads, you can also go to ad settings to optimize the kind of ads they see.
@@ -92,23 +99,17 @@ Close
 
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Why Online Safety Is More Important Than Ever
 
  Both posts and advertisements that your teen sees are unpredictable, and there is no such thing as being one hundred percent safe online. If you've never thought about checking their privacy settings on Facebook, it may be time to do so.
 
  By doing this, you will be able to make sure that when your teen posts something, it is only being seen by their close circle. You will also make sure that spammers have a limited chance of reaching them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,4 +118,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-gigglegallery-log-in-and-make-magic-videos/"><u>[New] GiggleGallery Log In and Make Magic Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-essential-guide-to-vitas-complete-video-editing-software/"><u>[New] In 2024, The Essential Guide to Vita's Complete Video Editing Software</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-premium-audio-devices-for-online-recording-reviewed-2023/"><u>[New] Premium Audio Devices for Online Recording Reviewed 2023</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-your-photo-archives-new-eden-mix-no-fee-infinite-with-paid-cloud-spaces/"><u>[New] Your Photo Archive's New Eden Mix No-Fee Infinite with Paid Cloud Spaces</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-navigating-apples-screen-recording-tools/"><u>[Updated] Navigating Apple's Screen Recording Tools</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-gopros-new-era-a-detailed-max-360-vs-hero-11-analysis/"><u>2024 Approved GoPro's New Era A Detailed Max 360 vs Hero 11 Analysis</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/easy-tutorial-on-using-windows-11s-media-creation-utility-for-a-fresh-os-install/"><u>Easy Tutorial on Using Windows 11'S Media Creation Utility for a Fresh OS Install</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-strength-of-online-social-groups-on-both-sides/"><u>Examining the Strength of Online Social Groups on Both Sides</u></a></li>
+<li><a href="https://facebook.techidaily.com/furtive-features-fb-like-privacy-settings-guide/"><u>Furtive Features: FB Like Privacy Settings Guide</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-lava-blaze-2-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Lava Blaze 2 5G without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-it-confidential-top-privacy-blunders-to-escape-on-social-media/"><u>Keep It Confidential! Top Privacy Blunders to Escape on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-solutions-for-its-most-frequent-glitches/"><u>Mastering FaceBook: Solutions for Its Most Frequent Glitches</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-battle-plan-for-a-new-social-order-in-europe/"><u>Meta's Battle Plan for a New Social Order in Europe</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/next-level-experience-in-metaverse-with-top-8-accessories-for-2024/"><u>Next-Level Experience in Metaverse with Top 8 Accessories for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-facebooks-operational-secrets-with-a-new-hub/"><u>Unraveling Facebook's Operational Secrets with a New Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-a-facebook-cloning-scam/"><u>What Is a Facebook Cloning Scam?</u></a></li>
+<li><a href="https://facebook.techidaily.com/whistleblowers-pleased-as-germany-halts-facebook-from-collecting-whatsapp-user-info/"><u>Whistleblowers Pleased as Germany Halts Facebook From Collecting WhatsApp User Info</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-past-social-sharing-become-invisible/"><u>Will Past Social Sharing Become Invisible?</u></a></li>
+</ul></div>
 

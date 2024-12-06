@@ -1,7 +1,7 @@
 ---
 title: No More FB Memories? Here's How To Delete Them, Android
-date: 2024-08-28T03:18:18.150Z
-updated: 2024-08-29T03:18:18.150Z
+date: 2024-11-30T18:34:28.645Z
+updated: 2024-12-06T18:12:25.444Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/1501cba3c5f4c4b803b623584f546bd1f9723b8ea
  Facebook can be a major time-waster. One way to get control of your time is by using the digital wellbeing tools available on Android to set timers for the Facebook app. But if that's not working, another option is deleting your Facebook account for good.
 
  Here's how to delete your Facebook account on your Android phone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What's the Difference Between Deactivating and Deleting Your Facebook Account?
 
@@ -44,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/1501cba3c5f4c4b803b623584f546bd1f9723b8ea
 
 ![Facebook Android menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Android-menu-options.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook Settings and Privacy option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Settings-Android.jpg)
 
 ![Permissions section in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Permissions-settings.jpg)
@@ -51,6 +59,10 @@ thumbnail: https://thmb.techidaily.com/1501cba3c5f4c4b803b623584f546bd1f9723b8ea
 Close
 
  Next, you should add an email and a password as a login option to each of these connected services to avoid losing access to your accounts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Delete Your Facebook Account on Mobile
 
@@ -63,9 +75,6 @@ Close
 
 ![Facebook Settings and privacy page on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-settings-and-privacy-page-android.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![Personal account information page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Personal-account-information-facebook-android.jpg)
 
 ![Account deactivation and deletion options on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/account-ownership-and-control-facebook.jpg)
@@ -82,13 +91,11 @@ Close
 ![Facebook account deletion and deactivation page on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Delete-facebook-account-selected-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Account deletion page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-account-deletion-page-android.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook account deletion confirmation on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-android-account-deletion-confirmation.jpg)
 
 Close
@@ -100,8 +107,9 @@ Close
  Once you've deleted your Facebook account, the next step is to uninstall the app. Here's a step-by-step guide on[how to remove unwanted Android apps](https://www.makeuseof.com/tag/remove-unwanted-apps-android-device/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deactivate Your Facebook Account on Android
 
  If the risk that comes with deleting your Facebook account isn't worth it, here's how to deactivate it instead:
@@ -116,13 +124,11 @@ Close
 ![Deactivate account option on Facebook for Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Deactivate-facebook-account-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Key reasons for deactivating a Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/deactivating-facebook-account-reasons.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![Final step in deactivating a Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/deactivating-facebook-account-android.jpg)
 
 Close
@@ -135,14 +141,11 @@ Close
 
  But before doing so, you should download your history and add different login methods for apps and websites that use your Facebook credentials. You can also deactivate your account temporarily if you wish to return later.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -151,4 +154,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-propel-your-social-media-success-best-6-apps-for-instagram-reels/"><u>[New] Propel Your Social Media Success Best 6 Apps for Instagram Reels</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-realme-note-50-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-ultimate-screen-capture-tool-2021/"><u>2024 Approved Ultimate Screen Capture Tool 2021</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151874818-communication-breakdown-here-are-your-first-timer-room-tips/"><u>Communication Breakdown? Here Are Your First-Timer Room Tips!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/connecting-playstation-vr-to-your-computer-easy-instructions/"><u>Connecting PlayStation VR to Your Computer - Easy Instructions</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/expert-reviews-ranking-the-10-most-effective-pc-video-editing-tools-of-the-year/"><u>Expert Reviews: Ranking the 10 Most Effective PC Video Editing Tools of the Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-a-sanctuary-from-politics/"><u>Facebook: A Sanctuary From Politics</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-algorithms-to-anecdotes-gathering-opinions-on-news-delivery/"><u>From Algorithms to Anecdotes: Gathering Opinions on News Delivery</u></a></li>
+<li><a href="https://facebook.techidaily.com/germany-cracks-down-on-facebooks-data-collection-from-whatsapp-userbase/"><u>Germany Cracks Down on Facebook's Data Collection From WhatsApp Userbase</u></a></li>
+<li><a href="https://win-data.techidaily.com/how-to-recover-deleted-files-from-the-recycle-bin-for-windows-111087/"><u>How to Recover Deleted Files From the Recycle Bin for Windows 11/10/8/7</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-a-new-safeguard-code-for-fb/"><u>Implementing a New Safeguard Code for FB</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-economical-sky-craftsmen-top-5-budget-friendly-drones/"><u>In 2024, Economical Sky Craftsmen Top 5 Budget-Friendly Drones</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-xiaomi-civi-3-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Xiaomi Civi 3</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-transforming-youtube-footage-the-essentials-of-wm-maker-use/"><u>In 2024, Transforming YouTube Footage The Essentials of WM Maker Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/silicon-valleys-reality-check-americas-new-tech-laws/"><u>Silicon Valley's Reality Check: America's New Tech Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/socializing-into-savings-how-websites-bank-on-relationships/"><u>Socializing Into Savings: How Websites Bank on Relationships</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-excluding-users-from-your-fb-business-page/"><u>Steps for Excluding Users From Your FB Business Page</u></a></li>
+</ul></div>
 

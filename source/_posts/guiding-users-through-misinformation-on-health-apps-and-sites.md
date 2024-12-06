@@ -1,7 +1,7 @@
 ---
 title: Guiding Users Through Misinformation on Health Apps & Sites
-date: 2024-08-28T03:20:32.352Z
-updated: 2024-08-29T03:20:32.352Z
+date: 2024-12-05T19:20:11.329Z
+updated: 2024-12-06T21:30:33.840Z
 tags:
   - facebook
 categories:
@@ -60,8 +60,9 @@ YouTube also removes videos that violate its COVID-19 policy.
  Read more: [Is Facebook Doing Enough to Tackle Misinformation?](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Social Media Companies Can Protect Users From Harmful Misinformation
 
  In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
@@ -77,13 +78,9 @@ YouTube also removes videos that violate its COVID-19 policy.
  Social media platforms have algorithms to detect fake news. However, they can take it a step further by establishing a shared online standard of conduct regarding the treatment of fake news.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Establish a Clear Threshold for Enforcement Action
 
  A low threshold, such as two strikes, would allow for moderate enforcement prior to removal—such as the restriction of a page’s ability to go live or post video content without moderated review.
@@ -91,15 +88,13 @@ YouTube also removes videos that violate its COVID-19 policy.
  This would still allow the user to exercise their right to free speech while being moderated for the type of information they upload.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Display Corrective Posts to Users Exposed to Disinformation
 
  Social media platforms can show users who have been exposed to content in violation of the COVID-19 policy corrective posts from experts and trusted sources.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Add Warning Screens When Users Click Links to Misinformation Sites
 
  Companies should consider adding a warning screen in front of third-party websites or untrustworthy sources housing COVID-19-related misinformation.
@@ -107,29 +102,28 @@ YouTube also removes videos that violate its COVID-19 policy.
  Related: [The Best Fact-Checking Sites for Finding Unbiased Truth](https://www.makeuseof.com/tag/true-5-factchecking-websites/)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 6\. Ban Private and Secret Anti-Vaccine Facebook Groups
 
  Ban private groups that traffic primarily in vaccine disinformation and prevent groups that require a Facebook disclaimer from existing as private or secret groups, as anti-vaxxers rely on the privacy of these groups to spread dangerous anti-vaccine misinformation.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Social Media Companies Play a Key Role in Reducing COVID-19 Related Misinformation Online
 
  As the COVID-19 pandemic has highlighted, the role played by social media in the spread of misinformation can have serious social and public health consequences. Mass vaccination remains the most likely successful strategy to achieve long-term control of the pandemic.
 
  In order to improve COVID-19 awareness and vaccine uptake, social media companies have a key role to play in ensuring that the correct information is presented to users on its platforms, while tackling misinformation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,4 +132,19 @@ YouTube also removes videos that violate its COVID-19 policy.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-innovative-recorder-options-without-latency-anxiety-for-2024/"><u>[New] Innovative Recorder Options Without Latency Anxiety for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-broadcast-elegance-gamers-guide-to-using-obs/"><u>[Updated] 2024 Approved Broadcast Elegance Gamers' Guide to Using OBS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-learning-the-process-of-acquiring-movie-maker-6/"><u>[Updated] Learning the Process of Acquiring Movie Maker 6</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-subscriber-threshold-raised-for-profits/"><u>2024 Approved Subscriber Threshold Raised for Profits</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tless-youtube-playback-downloading-content-to-idevices-for-2024/"><u>Effortless Youtube Playback Downloading Content to iDevices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-fb-presence-with-a-great-pic/"><u>Elevating Your FB Presence with a Great Pic</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/every-third-sentence-must-have-hidden-messages-spelled-out-by-using-the-first-letter-of-each-word-sequentially-without-changing-the-overall-meaning-or-flow-28/"><u>Every Third Sentence Must Have Hidden Messages Spelled Out by Using the First Letter of Each Word Sequentially without Changing the Overall Meaning or Flow of the Text.</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-vivo-x-fold-2-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Vivo X Fold 2 To Phone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-beyond-like-and-share-on-facebook/"><u>Life Beyond Like-and-Share on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sphere-stewardship-implementing-the-new-features-for-group-management-on-fb/"><u>Social Sphere Stewardship: Implementing the New Features for Group Management on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-truth-why-did-major-apps-crash/"><u>Unveiling the Truth: Why Did Major Apps Crash?</u></a></li>
+<li><a href="https://facebook.techidaily.com/vital-actions-ensuring-fb-access-on-demand/"><u>Vital Actions: Ensuring FB Access on Demand</u></a></li>
+</ul></div>
 

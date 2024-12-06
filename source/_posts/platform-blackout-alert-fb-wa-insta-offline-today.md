@@ -1,7 +1,7 @@
 ---
 title: "Platform Blackout Alert: FB, WA, Insta Offline Today"
-date: 2024-08-28T03:22:29.255Z
-updated: 2024-08-29T03:22:29.255Z
+date: 2024-12-03T17:20:40.835Z
+updated: 2024-12-06T18:28:11.756Z
 tags:
   - facebook
 categories:
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/53c515418786e92ebed3c6206ea33f7c074dbdb11
 
 ![facebook outage chart downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-outage-chart-downdetector.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
 
 ## Why Is Facebook Down? Is Facebook Up Yet?
@@ -44,8 +48,9 @@ thumbnail: https://thmb.techidaily.com/53c515418786e92ebed3c6206ea33f7c074dbdb11
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### What Are BGP Routes?
 
  Facebook is down because it has withdrawn its BGP routes from the internet. But, what is a BGP route, anyway?
@@ -57,15 +62,17 @@ thumbnail: https://thmb.techidaily.com/53c515418786e92ebed3c6206ea33f7c074dbdb11
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
 
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Hashtag #facebookdown Trends on Twitter
 
  Within minutes of Facebook, WhatsApp, and Instagram going down, the hashtag #facebookdown was trending on Twitter, amassing hundreds of thousands of tweets. #whatsappdown and #instadown also shot to the top of the Twitter trending charts as panicked users flocked en masse to the social network in an attempt to find out why Facebook is down.
@@ -73,22 +80,20 @@ thumbnail: https://thmb.techidaily.com/53c515418786e92ebed3c6206ea33f7c074dbdb11
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## When Will Facebook Come Back Online?
 
  Right now, there is no specific timeframe available for Facebook coming back online, nor WhatsApp, Instagram, or any other affected service. The Facebook outage is affecting the company in more ways than one. For example, Facebook staffers couldn't access buildings at Facebook HQ to begin assessing the damage because of internal networking issues brought about by the outage.
 
  Furthermore, other experts believe that it will take some time for Facebook and its associated services to return to full capacity. It isn't just a case of flicking a switch and restarting the system. Restoring a distributed network of Facebook's size will require patience from the company and of course, its users.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -97,4 +102,23 @@ thumbnail: https://thmb.techidaily.com/53c515418786e92ebed3c6206ea33f7c074dbdb11
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/updated-quick-and-easy-capturing-the-perfect-mac-snapped-footage/"><u>[Updated] Quick & Easy Capturing the Perfect Mac-Snapped Footage</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-iphone-macro-mastery-tips-for-clear-detail-focused-photos/"><u>2024 Approved IPhone Macro Mastery Tips for Clear, Detail-Focused Photos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-top-screen-savers-ideal-meet-backgrounds-list/"><u>2024 Approved Top Screen Savers Ideal Meet Backgrounds List</u></a></li>
+<li><a href="https://facebook.techidaily.com/everyone-counts-ensuring-group-listings-on-fb-posts/"><u>Everyone Counts: Ensuring Group Listings on FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/expeditious-transition-tactics-between-unique-fb-users/"><u>Expeditious Transition Tactics Between Unique FB Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-friendship-or-foes-balancing-with-facebooks-new-group-regulation-features/"><u>Fostering Friendship or Foes: Balancing with Facebook's New Group Regulation Features</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-fix-difficulties-with-csr8510-a10-drivers-under-windows-comprehensive-solutions-unveiled/"><u>How to Fix Difficulties with CSR8510 A10 Drivers Under Windows - Comprehensive Solutions Unveiled</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-pro-thumbnails-made-simple-macos-style/"><u>In 2024, Pro Thumbnails Made Simple MacOS Style</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-facebooks-troubleshooting-platform/"><u>Inside Facebook's Troubleshooting Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-your-facebook-portal-tv-to-enhance-communication/"><u>Navigating Your Facebook Portal TV to Enhance Communication</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-two-screens-one-goal-the-best-split-screen-video-apps-for-ios-and-android-users/"><u>New In 2024, Two Screens, One Goal The Best Split-Screen Video Apps for iOS and Android Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-social-music-platform-boombox-by-facebook-and-spotify/"><u>New Social-Music Platform: Boombox by Facebook & Spotify?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/optimizing-income-through-youtube-short-tutorials/"><u>Optimizing Income Through YouTube Short Tutorials</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategies-to-resolve-the-blue-screen-error-code-0x8007007e/"><u>Strategies to Resolve the Blue Screen Error: Code 0X8007007E</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-associates-secure-fb-friendships/"><u>Unseen Associates: Secure FB Friendships</u></a></li>
+<li><a href="https://blog-min.techidaily.com/andfc2/"><u>オンラインビデオダウンロード&変換・編集のテクニック：FC2・ニコニコ・ギャオーで使える専門ガイド</u></a></li>
+</ul></div>
 

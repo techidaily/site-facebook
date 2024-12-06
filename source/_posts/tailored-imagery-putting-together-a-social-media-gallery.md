@@ -1,7 +1,7 @@
 ---
 title: "Tailored Imagery: Putting Together a Social Media Gallery"
-date: 2024-08-28T03:19:56.164Z
-updated: 2024-08-29T03:19:56.164Z
+date: 2024-12-01T19:41:22.618Z
+updated: 2024-12-06T20:25:26.133Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/ffbfddf161d0ac60a22be92f9cba6a955de35f0f8
 
  This article will walk you through the steps of how to make a photo collage on Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Collage Maker: Does Facebook Have a Built-In Tool?
 
  If you’ve tried to make a collage on Facebook before, you’ll have noticed that there’s no collage maker feature on the Facebook app.
@@ -31,15 +35,31 @@ To do this, you'll use Instagram’s collage app Layout.
 
 **Download** : Layout for[iOS](https://apps.apple.com/us/app/layout-from-instagram/id967351793) ǀ[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU96430/https://play.google.com/store/apps/details?id=com.instagram.layout&hl=en&gl=US) (Free)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Make a Photo Collage for Facebook Using Layout
 
  To create your photo collage, you’ll first need to download the Layout app from Google Play or the Apple App Store.
 
 ![instagram layout home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/instagram-layout-home-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![instagram layout select photo page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/instagram-layout-select-photo-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![instagram layout edit photo page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/instagram-layour-edit-photo-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -56,23 +76,17 @@ After downloading the app, follow these steps:
 
  Related:[How to Enable Dark Mode on Facebook](https://www.makeuseof.com/how-to-facebook-dark-mode/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Preserve More Memories on Facebook With Photo Collages
 
  Photo collages have a way of telling more than a single photo can. As they’re an excellent way to display many photos at once and get your message across in one simple view.
 
  Follow this collage-making process to make Facebook collages that tell a story that’s uniquely yours.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -81,4 +95,24 @@ After downloading the app, follow these steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-top-android-3d-viewer-experience/"><u>[New] Top Android 3D Viewer Experience</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-ideal-websites-for-extracting-text-visual-upgrades-for-2024/"><u>[Updated] Ideal Websites for Extracting Text Visual Upgrades for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-art-of-voice-manipulation-in-ps-console-titles/"><u>2024 Approved The Art of Voice Manipulation in PS Console Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/enabling-facebooks-security-measures-a-user-guide/"><u>Enabling Facebook’s Security Measures: A User Guide</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fix-the-missing-or-corrupt-mss32dll-error-effectively-and-quickly/"><u>Fix the 'Missing or Corrupt MSS32.dll' Error Effectively and Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/group-gatherings-galore-which-social-site-wins/"><u>Group Gatherings Galore: Which Social Site Wins?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-vivo-x-fold-2-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Vivo X Fold 2 Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-interruption-the-impact-of-taking-a-step-back-online/"><u>Instagram Interruption: The Impact of Taking a Step Back Online</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-auto-gpt-installation-on-ubuntu-expert-instructions-and-insights/"><u>Mastering Auto-GPT Installation on Ubuntu - Expert Instructions and Insights</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/quick-guide-transforming-dall-e-3-webp-photos-into-jpg-and-png-images/"><u>Quick Guide: Transforming DALL-E 3 WebP Photos Into JPG and PNG Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/reboot-your-facebook-friends-list-after-block/"><u>Reboot Your Facebook Friends List After Block</u></a></li>
+<li><a href="https://facebook.techidaily.com/refusing-new-whatsapp-privacy-changes-unrestricted-feature-access/"><u>Refusing New WhatsApp Privacy Changes: Unrestricted Feature Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/revising-profile-rules-forward-no-backward-to-faith-or-politics/"><u>Revising Profile Rules: Forward, No Backward to Faith or Politics</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/revive-your-logitech-g733-ultimate-guide-to-mic-repair/"><u>Revive Your Logitech G733 - Ultimate Guide to Mic Repair</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platforms-ranked-by-security-first/"><u>Social Platforms Ranked by Security First</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-fixing-your-lunaclient-continuous-computer-malfunctions/"><u>Troubleshooting Guide: Fixing Your LunaClient Continuous Computer Malfunctions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-art-of-negotiating-a-refund-via-fb/"><u>Unlocking the Art of Negotiating a Refund via FB</u></a></li>
+</ul></div>
 

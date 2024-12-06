@@ -1,7 +1,7 @@
 ---
 title: "Elevating Community Governance: Facebook Unveils New Admin Features"
-date: 2024-11-22T00:12:02.836Z
-updated: 2024-11-27T05:58:16.665Z
+date: 2024-11-30T23:03:53.671Z
+updated: 2024-12-06T18:26:04.349Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Launches New Admin Tools to Moderate Groups
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -83,20 +83,22 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/mplify-your-videos-impact-increasing-view-count-on-youtube-shorts/"><u>[New] Amplify Your Video's Impact Increasing View Count on YouTube Shorts</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-exclusive-list-of-premium-sound-recording-mics/"><u>[Updated] 2024 Approved Exclusive List of Premium Sound Recording Mics</u></a></li>
-<li><a href="https://blog-min.techidaily.com/video-downloadhelper/"><u>制限なしロゴ無し:Video Downloadhelperライセンスを完全に活用する手順</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-the-greatest-chef-programs-on-netflix-our-top-picks/"><u>Discover the Greatest Chef Programs on Netflix: Our Top Picks!</u></a></li>
-<li><a href="https://facebook.techidaily.com/eliminate-fb-tracking-with-off-facebook-activity-controls/"><u>Eliminate FB Tracking with Off-Facebook Activity Controls</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/ensuring-precision-the-art-of-skype-call-documentation-for-2024/"><u>Ensuring Precision The Art of Skype Call Documentation for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-the-secure-and-intuitive-arlo-smart-home-surveillance/"><u>Experience the Secure and Intuitive Arlo Smart Home Surveillance</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-password-cracking-tools-for-meizu-21-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Meizu 21</u></a></li>
-<li><a href="https://facebook.techidaily.com/large-digital-entities-face-distrust-but-facebook-leads/"><u>Large Digital Entities Face Distrust, But Facebook Leads</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-2023-release-news-for-upcoming-oculus-quest-model/"><u>No 2023 Release News for Upcoming Oculus Quest Model</u></a></li>
-<li><a href="https://facebook.techidaily.com/regulating-visibility-of-facebook-interactions/"><u>Regulating Visibility of Facebook Interactions</u></a></li>
-<li><a href="https://driver-download.techidaily.com/resolving-bluetray-errors-in-windows-10-a-comprehensive-guide/"><u>Resolving BlueTray Errors in Windows 10: A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/silent-tech-rise-probing-facebooks-clandestine-wrist-device/"><u>Silent Tech Rise: Probing Facebook's Clandestine Wrist Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-scope-expansion-locating-page-and-profile-links-on-fb/"><u>Social Scope Expansion: Locating Page and Profile Links on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-to-reaccess-facebook-without-original-codes/"><u>Strategies to Reaccess Facebook Without Original Codes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-a-step-by-step-guide-through-the-landscape-of-srt/"><u>[New] A Step-by-Step Guide Through the Landscape of SRT</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-essential-sandbox-experiences-for-gamers/"><u>[New] In 2024, Essential Sandbox Experiences for Gamers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-zooming-into-success-a-guide-to-sharper-views-on-google-meets-for-2024/"><u>[Updated] Zooming Into Success A Guide to Sharper Views on Google Meets for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-leading-online-convertor-audio-to-written-text/"><u>2024 Approved Leading Online Convertor Audio to Written Text</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/aviation-gaming-the-ultimate-drone-race-course-and-best-models/"><u>Aviation Gaming The Ultimate Drone Race Course and Best Models</u></a></li>
+<li><a href="https://facebook.techidaily.com/confirming-the-authenticity-of-(securityfacebookmailcom)-as-fbs-safety-mail/"><u>Confirming the Authenticity of @<security@facebookmail.com> as FB's Safety Mail</u></a></li>
+<li><a href="https://facebook.techidaily.com/conquer-fb-surveillance-using-the-off-fb-toolset/"><u>Conquer FB Surveillance Using the Off-FB Toolset</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-instagram-creativity-with-musical-elements-for-2024/"><u>Elevate Instagram Creativity with Musical Elements for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/engaging-conversations-with-your-youtube-audience/"><u>Engaging Conversations with Your YouTube Audience</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-internship-to-impact-unveiling-the-metamate-identity/"><u>From Internship to Impact: Unveiling the Metamate Identity</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/innovative-economical-switch-replicas/"><u>Innovative Economical Switch Replicas</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-outage-alert-facebook-whatsapp-and-instagram-offline/"><u>Platform Outage Alert: Facebook, WhatsApp & Instagram Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/revel-in-social-network-supporters/"><u>Revel in Social Network Supporters</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-essential-guide-to-popular-social-media-connect-on-facebook-twitter-instagram-and-youtube/"><u>The Essential Guide to Popular Social Media: Connect on Facebook, Twitter, Instagram, and YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-ten-no-cost-applications-for-social-media-supremacy/"><u>Top Ten No-Cost Applications for Social Media Supremacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-facebooks-embedded-web-experience/"><u>Turn Off Facebook's Embedded Web Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-brand-growth-on-facebook-the-strength-of-pages-over-personal/"><u>Unlocking Brand Growth on Facebook: The Strength of Pages Over Personal</u></a></li>
 </ul></div>
 

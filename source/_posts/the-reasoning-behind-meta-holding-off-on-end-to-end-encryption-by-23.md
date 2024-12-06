@@ -1,7 +1,7 @@
 ---
 title: The Reasoning Behind Meta Holding Off on End-to-End Encryption by '23
-date: 2024-11-25T06:03:11.132Z
-updated: 2024-11-27T02:29:13.474Z
+date: 2024-12-05T22:43:13.010Z
+updated: 2024-12-06T23:33:30.936Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Does Meta Want End-to-End Encryption?
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 ![hacker typing on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/hacker-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Meta's goal is to integrate all functionalities on Facebook, Facebook Messenger, Instagram, and WhatsApp. This will enable users to post messages across the four apps, with each app's existing features available across the board.
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
@@ -85,18 +85,19 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-discovering-the-secrets-to-targeted-youtubes-likes-and-views/"><u>[New] Discovering the Secrets to Targeted YouTubes Likes and Views</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-stealthy-watcher-of-digital-tales-for-2024/"><u>[New] Stealthy Watcher of Digital Tales for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-unrivaled-script-authority-place/"><u>[New] Unrivaled Script Authority Place</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/deciding-on-a-device-comparing-iphones-with-android-phones-for-you/"><u>Deciding on a Device: Comparing iPhones with Android Phones for You</u></a></li>
-<li><a href="https://win-updates.techidaily.com/effective-steps-to-disable-and-eliminate-faux-microsoft-edge-security-warnings/"><u>Effective Steps to Disable and Eliminate Faux Microsoft Edge Security Warnings</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-pushback-why-it-continues-to-evolve-and-thrive/"><u>Facebook's Pushback: Why It Continues to Evolve and Thrive</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/mastering-technology-trends-through-toms-hardware-analysis/"><u>Mastering Technology Trends Through Tom's Hardware Analysis</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolving-gpu-issues-maximize-your-gaming-experience-with-warzone-on-new-windows-os/"><u>Resolving GPU Issues - Maximize Your Gaming Experience with Warzone on New Windows OS</u></a></li>
-<li><a href="https://facebook.techidaily.com/sever-instagrams-ties-with-fb-a-compreenasional-approach/"><u>Sever Instagram's Ties with FB: A Compreenasional Approach</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/share-your-gaming-highlights-screen-capture-techniques-for-the-nintendo-switch/"><u>Share Your Gaming Highlights: Screen Capture Techniques for the Nintendo Switch</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotify-announces-undercover-tracking-for-unhindered-streaming-experience/"><u>Spotify Announces Undercover Tracking for Unhindered Streaming Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-metaai-beyond-basic-chatbot-capabilities/"><u>Understanding MetaAI: Beyond Basic Chatbot Capabilities</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-social-media-blackout-phenomena/"><u>Understanding Social Media Blackout Phenomena</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-easy-guide-to-see-youtube-liked-comments/"><u>2024 Approved Easy Guide to See YouTube Liked Comments</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-easy-methods-to-unlock-icloud-locked-apple-iphone-7-plusipadipod-by-drfone-ios/"><u>3 Easy Methods to Unlock iCloud Locked Apple iPhone 7 Plus/iPad/iPod</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-on-apple-iphone-6-plus-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out On Apple iPhone 6 Plus How to Bypass?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/detecting-duplicitous-acquaintances-strategies-for-recognizing-bogus-buddies-online/"><u>Detecting Duplicitous Acquaintances: Strategies for Recognizing Bogus Buddies Online</u></a></li>
+<li><a href="https://techtrends.techidaily.com/free-online-converter-change-wmv-files-into-mp4-format-on-macos-and-windows-11/"><u>Free Online Converter: Change WMV Files Into MP4 Format on macOS and Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-swiftly-severing-online-group-ties-on-fb/"><u>Guide to Swiftly Severing Online Group Ties on FB</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-smartwatch-rumors-facebook-prototype-might-feature-dual-cams/"><u>Innovative Smartwatch Rumors: Facebook Prototype Might Feature Dual Cams</u></a></li>
+<li><a href="https://facebook.techidaily.com/intellectual-property-users-photographic-domain/"><u>Intellectual Property: User's Photographic Domain</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-the-technique-to-initiate-windows-in-safe-mode-restart/"><u>Mastering the Technique to Initiate Windows in Safe Mode Restart</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153446795-the-cryptic-connection-zuckerberg-goats-and-crypto-names/"><u>The Cryptic Connection: Zuckerberg, Goats & Crypto Names</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-insiders-guide-to-ultimate-audio-equipment/"><u>The Insider's Guide to Ultimate Audio Equipment</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitter-to-facebook-inspiring-information-posting-models/"><u>Twitter to Facebook: Inspiring Information Posting Models</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlocking-your-phones-features-how-to-navigate-snapchat-from-your-personal-computer/"><u>Unlocking Your Phone's Features: How to Navigate Snapchat From Your Personal Computer</u></a></li>
 </ul></div>
 

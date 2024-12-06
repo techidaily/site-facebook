@@ -1,7 +1,7 @@
 ---
 title: Exploring Grievances Against Online Connectivity Platforms
-date: 2024-11-20T06:40:30.339Z
-updated: 2024-11-26T19:19:26.308Z
+date: 2024-12-04T18:31:07.674Z
+updated: 2024-12-06T22:50:59.873Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. The Platform's Overabundance of Features
 
 ![Browsing Facebook on PC and Phone](https://thmb.techidaily.com/c614df743851cde902b9dc7b624e356646f565efb6b83602d7f5ffd347873428.jpg)
@@ -38,10 +42,6 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 
 ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
 
  Another big reason people hate Facebook is because of privacy concerns. The Cambridge Analytica scandal exposed how much user data Facebook really had and how it was being used. This revelation made many people question whether they could trust Facebook with their personal information.
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
  This lack of privacy is a big turnoff for many people and is one of the main reasons they hate Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Data Breaches
@@ -68,21 +68,17 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 
  TikTok's rise has reduced some addiction-related criticisms of Facebook, but with its new Reels feature, it looks like the criticisms won't be gone for long.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Fake News
 
 ![fake-news-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/fake-news-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Another big problem with Facebook is the spread of fake news. With so much information shared on the platform, it's hard to know what's true and what's not. This has led to the spread of false information and conspiracy theories.
 
  While Facebook has taken some steps to combat fake news, many people still feel like the problem is out of control.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Its Impact on Mental Health
 
@@ -91,12 +87,16 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
  This can lead to feelings of inadequacy, loneliness, and depression.[Several studies have linked social media platforms to increased in anxiety](http://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) and depression, especially in young people. While Facebook is not the only social media platform with this problem, it gets the most criticism because of its size and reach.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Perceived Inaction on Hate Speech
 
 ![man holding hate is a virus sign](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/man-holding-hate-is-a-virus-sign.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Another reason people hate Facebook is because of the company's perceived inaction on hate speech. The platform has been used to spread hateful and divisive content, with grave consequences.
 
@@ -125,20 +125,17 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-become-a-zoom-screenshare-pro-in-minutes/"><u>[New] 2024 Approved Become a Zoom Screenshare Pro in Minutes</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-from-novice-to-virtuoso-taking-control-with-screen-recordings-in-macos/"><u>[New] From Novice to Virtuoso Taking Control with Screen Recordings in macOS</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unlock-igtv-master-video-submission/"><u>[New] In 2024, Unlock IGTV Master Video Submission</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-expert-selection-ranking-the-finest-6-head-mounted-gopros/"><u>[Updated] Expert Selection Ranking the Finest 6 Head-Mounted GOPROs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/ensuring-profit-tracking-on-your-channel-for-2024/"><u>Ensuring Profit Tracking on Your Channel for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/friendly-directions-share-on-facebook-messenger/"><u>Friendly Directions: Share on Facebook Messenger</u></a></li>
-<li><a href="https://fox-links.techidaily.com/giving-life-a-curtain-call-blackout-in-pro/"><u>Giving Life a Curtain Call Blackout in Pro</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Oppo A58 4G | Dr.fone</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-the-ultimate-guide-to-rapid-video-trimming-on-mac-updated-2023/"><u>In 2024, The Ultimate Guide to Rapid Video Trimming on Mac (Updated 2023)</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-resurrects-trumps-social-media-presence/"><u>Meta Resurrects Trump's Social Media Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/nft-adoption-meta-drops-tested-on-social-giants/"><u>NFT Adoption: Meta Drops Tested on Social Giants</u></a></li>
-<li><a href="https://facebook.techidaily.com/reactivate-facebook-post-phone-loss-quick-2fa-guide/"><u>Reactivate Facebook Post-Phone Loss: Quick 2FA Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/shaping-your-digital-space-the-art-of-fb-feed-customization/"><u>Shaping Your Digital Space: The Art of FB Feed Customization</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-caused-the-social-media-blackout-epidemic/"><u>What Caused the Social Media Blackout Epidemic?</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-to-post-for-best-social-media-results/"><u>When to Post for Best Social Media Results</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-facebook-feed-breakthroughs-seeing-your-videos/"><u>[New] 2024 Approved Facebook Feed Breakthroughs Seeing Your Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-capturing-horizon-views-for-successful-drone-livestreams-for-2024/"><u>[Updated] Capturing Horizon Views for Successful Drone Livestreams for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-instagram-edge-a-quick-guide-to-editing-vertical-footage-in-final-cut/"><u>[Updated] In 2024, The Instagram Edge A Quick Guide to Editing Vertical Footage in Final Cut</u></a></li>
+<li><a href="https://video-capture.techidaily.com/capture-and-save-memories-webcam-recordings-in-vlc-format/"><u>Capture & Save Memories Webcam Recordings in VLC Format</u></a></li>
+<li><a href="https://facebook.techidaily.com/channels-as-pathways-within-facebook-communities/"><u>Channels as Pathways Within Facebook Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealing-your-images-simplified-fb-guide/"><u>Concealing Your Images, Simplified: FB Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-deeper-rethinking-the-stigma-around-fb-reports/"><u>Digging Deeper: Rethinking The Stigma Around FB Reports</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-s17-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Vivo S17</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-optimal-tech-finest-mac-software-for-videography/"><u>In 2024, Optimal Tech Finest Mac Software for Videography</u></a></li>
+<li><a href="https://facebook.techidaily.com/lost-and-found-precise-steps-to-restore-your-fb-sign-in/"><u>Lost and Found: Precise Steps to Restore Your FB Sign-In</u></a></li>
+<li><a href="https://facebook.techidaily.com/quell-the-public-forum-strategies-for-curtailing-comments-in-facebook/"><u>Quell the Public Forum: Strategies for Curtailing Comments in Facebook</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-the-ultimate-list-of-online-collage-makers-for-photos-and-videos/"><u>Updated The Ultimate List of Online Collage Makers for Photos and Videos</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unexpected Silence in Digital Communication Realms
-date: 2024-11-22T10:22:18.606Z
-updated: 2024-11-27T06:29:17.484Z
+date: 2024-12-03T18:01:06.916Z
+updated: 2024-12-06T22:20:23.587Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/058506d9dfd3499ce050a0189a74f361c7f5cd9f1
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -51,20 +51,22 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-step-by-step-strategy-for-unearthing-secret-youtube-videos/"><u>[Updated] In 2024, Step-by-Step Strategy for Unearthing Secret YouTube Videos</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-unified-event-tracking-harmonizing-phone-and-tablet-with-pc-zoom/"><u>[Updated] Unified Event Tracking Harmonizing Phone & Tablet with PC Zoom</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensuring-nobody-else-taps-into-your-facebook-space/"><u>Ensuring Nobody Else Taps Into Your Facebook Space</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-iphone-13-pro-drfone-by-drfone-ios/"><u>Everything You Need To Know About Unlocked iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/mastering-metadata-the-power-of-accurate-video-tags-for-2024/"><u>Mastering Metadata The Power of Accurate Video Tags for 2024</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-s-hottest-vlog-editor-apps-for-ios-and-android-devices/"><u>New 2024 Approved S Hottest Vlog Editor Apps for iOS and Android Devices</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/nextgen-android-for-immersive-3d-viewing-for-2024/"><u>NextGen Android for Immersive 3D Viewing for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/shaping-your-digital-face-on-facebook/"><u>Shaping Your Digital Face on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-giants-bold-investment-of-5m-targeting-content-creators-and-writers/"><u>Social Media Giant's Bold Investment of $5M Targeting Content Creators & Writers</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-best-calendar-software-for-social-media-consistency/"><u>The Best Calendar Software for Social Media Consistency</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-monetizing-machine-how-reels-and-revenue-are-revolutionized-by-meta/"><u>The Monetizing Machine: How Reels and Revenue Are Revolutionized by Meta</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-ultimate-guide-to-design-and-build-your-own-4k-editing-system-for-2024/"><u>The Ultimate Guide to Design and Build Your Own 4K Editing System for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-apps-and-online-tools-to-track-sony-xperia-1-v-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Sony Xperia 1 V Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-facebooks-recent-user-drop/"><u>Understanding Facebook's Recent User Drop</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-you-shouldnt-opt-in-to-facebooks-link-history-feature/"><u>Why You Shouldn't Opt In to Facebook's Link History Feature</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-toontown-full-analysis-and-tutorial-24-edition/"><u>[Updated] 2024 Approved ToonTown Full Analysis & Tutorial '24 Edition</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-facebook-to-mp3-converter-tool/"><u>2024 Approved Facebook to MP3 Converter Tool</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/eco-friendly-total-renewable-energy-for-fb/"><u>Eco-Friendly: Total Renewable Energy for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/embark-on-a-digital-romance-journey-with-facebook/"><u>Embark on a Digital Romance Journey with Facebook</u></a></li>
+<li><a href="https://win11.techidaily.com/expert-advice-on-navigating-folder-tabs-with-windows-11/"><u>Expert Advice on Navigating Folder Tabs with Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-blacklist-why-it-occurs/"><u>Facebook Blacklist: Why It Occurs</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>How to Turn Off Google Location to Stop Tracking You on Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-users-youve-blocked-on-fb/"><u>Identifying Users You've Blocked on FB</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-exclusive-endorsements-premier-portals-for-procuring-snapalert-rhythms/"><u>In 2024, Exclusive Endorsements Premier Portals for Procuring SnapAlert Rhythms</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pioneering-tools-to-embellish-photos-with-words/"><u>In 2024, Pioneering Tools to Embellish Photos with Words</u></a></li>
+<li><a href="https://facebook.techidaily.com/llifes-comeback-story-will-it-play-out-in-metaverse-times/"><u>LLife's Comeback Story: Will It Play Out In Metaverse Times?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-vivo-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from Vivo</u></a></li>
+<li><a href="https://facebook.techidaily.com/quantifying-reset-actions-facebook-users-oculus-purchases-explored/"><u>Quantifying Reset Actions - Facebook User's Oculus Purchases Explored</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/secrets-revealed-streamlined-importation-on-windows-10-os-for-2024/"><u>Secrets Revealed Streamlined Importation on Windows 10 OS for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-leverage-facebook-in-your-professional-life/"><u>Strategies to Leverage Facebook in Your Professional Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-to-designate-safe-status-on-fb/"><u>Techniques to Designate Safe Status on FB</u></a></li>
 </ul></div>
 

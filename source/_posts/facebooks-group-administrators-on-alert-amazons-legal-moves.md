@@ -1,7 +1,7 @@
 ---
 title: "Facebook's Group Administrators on Alert: Amazon's Legal Moves"
-date: 2024-08-28T03:16:42.307Z
-updated: 2024-08-29T03:16:42.307Z
+date: 2024-11-30T21:22:16.538Z
+updated: 2024-12-06T21:16:59.506Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/e83f983f9af6b6adf732e263161638d4efc710da8
 
  Amazon doesn't like this one bit and have taken legal steps to stop it. Here are the details...
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Amazon Sues Facebook Group Admins
 
 ![wooden gavel on table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/court.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Amazon has sued the administrators of more than 10,000 Facebook groups for allegedly using their groups to mobilize people to write fake or misleading product reviews in exchange for cash or free products.
 
@@ -33,9 +41,17 @@ thumbnail: https://thmb.techidaily.com/e83f983f9af6b6adf732e263161638d4efc710da8
 
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Amazon Filed the Case
 
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
 
@@ -46,8 +62,9 @@ thumbnail: https://thmb.techidaily.com/e83f983f9af6b6adf732e263161638d4efc710da8
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Are Fake Reviews a Big Problem?
 
  Although fake reviews have been a problem for Amazon for years, COVID-19-related lockdowns intensified the problem as more people turned to online shopping.
@@ -58,24 +75,17 @@ thumbnail: https://thmb.techidaily.com/e83f983f9af6b6adf732e263161638d4efc710da8
 
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
 
  Fake product reviews on the internet can't be eliminated entirely. However, fake reviews can be lowered to tolerable levels.
 
  Amazon, Facebook, and all tech companies have no choice but to fight the problem with all the tools at their disposal, and in cooperation with one another, in order for e-commerce to thrive.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -84,4 +94,19 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-masterful-lighting-techniques-for-iphone-users/"><u>[New] 2024 Approved Masterful Lighting Techniques for IPhone Users</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-unleashing-your-creativity-advanced-techniques-for-boomers/"><u>[New] 2024 Approved Unleashing Your Creativity Advanced Techniques for Boomers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/1715859824634-new-virtual-playstation-revival-on-android-try-the-5-best-emulators-here/"><u>[New] Virtual PlayStation Revival on Android? Try the 5 Best Emulators Here!</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-evolving-videography-redefining-social-sharing-with-periscope-alternatives/"><u>[Updated] 2024 Approved Evolving Videography Redefining Social Sharing with Periscope Alternatives</u></a></li>
+<li><a href="https://common-error.techidaily.com/breeze-through-blocked-updates-clear-your-way-when-windows-hits-a-0-snag/"><u>Breeze Through Blocked Updates: Clear Your Way When Windows Hits a 0% Snag</u></a></li>
+<li><a href="https://facebook.techidaily.com/chatting-with-flair-the-power-of-textual-variation/"><u>Chatting with Flair: The Power of Textual Variation</u></a></li>
+<li><a href="https://driver-install.techidaily.com/free-and-safe-tp-link-wi-fi-driver-win-810-compatible/"><u>Free & Safe TP Link Wi-Fi Driver - Win 8/10 Compatible</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-itel-p40plus-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Itel P40+ If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-group-deletion-on-facebook/"><u>Mastering Group Deletion on Facebook</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/optimal-stabilization-for-mirrorless-with-gimbals-for-2024/"><u>Optimal Stabilization for Mirrorless with Gimbals for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/trumps-dormant-accounts-on-meta-resurrected/"><u>Trump's Dormant Accounts on Meta Resurrected</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-stance-on-having-duplicate-user-identities-in-one-account/"><u>Understanding Facebook's Stance on Having Duplicate User Identities in One Account</u></a></li>
+</ul></div>
 

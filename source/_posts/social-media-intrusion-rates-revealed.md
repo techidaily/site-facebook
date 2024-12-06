@@ -1,7 +1,7 @@
 ---
 title: Social Media Intrusion Rates Revealed
-date: 2024-11-25T13:49:05.537Z
-updated: 2024-11-27T13:17:44.275Z
+date: 2024-12-05T16:50:31.375Z
+updated: 2024-12-06T19:59:22.375Z
 tags:
   - facebook
 categories:
@@ -26,13 +26,13 @@ thumbnail: https://thmb.techidaily.com/0ce905cbb913b2eefe4db5c72014c9485f061b0fd
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Common Are Social Media Hacks?
 
 ![black iPhone with purple wallpaper and social media apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/iphone-with-purple-walpaper-and-apps.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  It isn’t easy to pin down how many people get hacked via social media. Even so, it’s a genuine problem.
 
@@ -46,16 +46,12 @@ thumbnail: https://thmb.techidaily.com/0ce905cbb913b2eefe4db5c72014c9485f061b0fd
 
  However, differences existed depending on a person’s country of residence. Individuals in Russia, Israel, Malaysia, and Turkey viewed account hacks as more likely than not.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Increases the Chances of a Social Media Hack?
 
 ![Woman in bedroom on bed lit by her laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-in-bed-in-dark-room-lit-by-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Certain things can make you more or less likely to experience a social media account hack.
@@ -67,6 +63,10 @@ thumbnail: https://thmb.techidaily.com/0ce905cbb913b2eefe4db5c72014c9485f061b0fd
  Sometimes, the fault lies with particular social media sites.[In one instance](https://journal.uptimeinstitute.com/too-big-to-fail-facebooks-global-outage/) , Facebook arguably had enough to deal with after a six-hour global outage cost it approximately $60 million in revenue. That issue occurred in October 2021.
 
  Several months earlier, information from a massive Facebook data leak in 2019 became public. That incident affected more than 530 million users worldwide, but Facebook representatives opted not to notify them individually.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Are the Risks Associated With a Social Media Hack?
 
@@ -82,12 +82,16 @@ thumbnail: https://thmb.techidaily.com/0ce905cbb913b2eefe4db5c72014c9485f061b0fd
 
  Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Handle a Social Media Hack
 
 ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
@@ -97,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/0ce905cbb913b2eefe4db5c72014c9485f061b0fd
  Next, go through any necessary account recovery steps set by the social media site. For example, Twitter’s help documentation for such situations recommends requesting a password reset as your first strategy. Getting additional help requires submitting a support ticket containing your username and the date you last had access.
 
  And review any options for[strengthening your social media security](https://www.makeuseof.com/how-to-hack-facebook/) . Facebook’s Security Checkup walks you through suggested improvements to make. It’s a good starting point if you use that site.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## You Can Avoid a Social Media Hack
 
@@ -121,24 +121,17 @@ thumbnail: https://thmb.techidaily.com/0ce905cbb913b2eefe4db5c72014c9485f061b0fd
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-using-youtubes-cc-licensing/"><u>[Updated] 2024 Approved A Comprehensive Guide to Using YouTube's CC Licensing</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-harness-the-power-of-picture-in-progressive-screen-with-chrome-for-2024/"><u>[Updated] Harness the Power of Picture in Progressive Screen with Chrome for 2024</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/1728480053053-4/"><u>外部ストレージへ自動バックアップ振り分け:トップ4戦略</u></a></li>
-<li><a href="https://blog-min.techidaily.com/effective-techniques-for-transforming-vob-files-into-high-quality-wav-audio/"><u>Effective Techniques for Transforming VOB Files Into High-Quality WAV Audio</u></a></li>
-<li><a href="https://facebook.techidaily.com/embrace-the-change-guidance-to-rename-yourself-on-social-networks/"><u>Embrace the Change: Guidance to Rename Yourself on Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-visual-content-ai-driven-captions-for-fb-uploads/"><u>Enhancing Visual Content: AI-Driven Captions for FB Uploads</u></a></li>
-<li><a href="https://facebook.techidaily.com/finding-balance-in-your-online-world-through-facebook-alerts/"><u>Finding Balance in Your Online World Through Facebook Alerts</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/free-logitech-rx250-mouse-software-downloads-for-windows-7-8-and-10/"><u>Free Logitech RX250 Mouse Software Downloads for Windows 7, 8 & 10</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-fringe-to-fortune-the-power-of-reels-creators-and-the-metric-marketplace/"><u>From Fringe to Fortune: The Power of Reels, Creators & the Metric Marketplace</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-iphone-11-pro-max-system-issues-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iPhone 11 Pro Max System Issues? | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-securely-obtain-and-implement-new-iphone-operating-system-update/"><u>How to Securely Obtain and Implement New iPhone Operating System Update</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-infinix-note-30i-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Infinix Note 30i Phones with/without a PC</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/mastering-your-logitech-mx-trackpad-software-installation-walkthrough/"><u>Mastering Your Logitech MX Trackpad - Software Installation Walkthrough</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-markets-safely-facebooks-top-9-safety-practices/"><u>Navigating Markets Safely: Facebook's Top 9 Safety Practices</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimal-sites-for-seniors-sociability-and-conversation/"><u>Optimal Sites for Seniors' Sociability & Conversation</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/setting-up-a-single-remote-for-everything-easy-instructions-inside/"><u>Setting Up a Single Remote for Everything: Easy Instructions Inside</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-to-declare-security-status-on-fb/"><u>Strategies to Declare Security Status on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-platform-pivot-users-shifting-away-from-facebook-to-tiktok/"><u>The Platform Pivot: Users Shifting Away From Facebook to TikTok</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-some-content-is-allowed-on-facebook/"><u>Why Some Content Is Allowed on Facebook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-analyzing-investment-costs-for-auditory-visual-fusion/"><u>[New] 2024 Approved Analyzing Investment Costs For Auditory-Visual Fusion</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-best-in-class-top-8-software-turning-subtitles-into-simplified-srt-format/"><u>[New] In 2024, Best in Class Top 8 Software Turning Subtitles Into Simplified SRT Format</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-innovating-conference-calls-with-google-meet-backdrop-shuffling/"><u>[Updated] In 2024, Innovating Conference Calls with Google Meet Backdrop Shuffling</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-the-ultimate-guide-to-screen-and-video-recording/"><u>[Updated] The Ultimate Guide to Screen and Video Recording</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/5lia55uu556t54s277yb5asx44kp44km44gf44ov44kh44kk44or44gu5lul5ymn44oq44o844k444on44oz44ks5ywd44gr5oi744gz5oml44gz44gn/"><u>一目瞭然！失われたファイルの以前バージョンを元に戻す手びき</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-a-music-revenue-sharing-program-how-does-it-work/"><u>Facebook Launches a Music Revenue-Sharing Program: How Does It Work?</u></a></li>
+<li><a href="https://facebook.techidaily.com/google-and-linkedins-covert-tracking-for-uninterrupted-service/"><u>Google and LinkedIn's Covert Tracking for Uninterrupted Service</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Honor Magic 6? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastering-the-use-of-m1-max-clip-for-2024/"><u>Mastering the Use of M1 Max Clip for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-boost-removing-facebook-watch-history-details/"><u>Privacy Boost: Removing Facebook Watch History Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-concerns-when-will-fb-messaging-go-e2ee/"><u>Privacy Concerns: When Will FB Messaging Go E2EE?</u></a></li>
+<li><a href="https://facebook.techidaily.com/vk-unveiled-grasping-russias-digital-landmark/"><u>VK Unveiled: Grasping Russia's Digital Landmark</u></a></li>
 </ul></div>
 

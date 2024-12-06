@@ -1,7 +1,7 @@
 ---
 title: "Shattered Stars: Pal-Activists Impacting Facebook Ratings"
-date: 2024-08-28T03:21:15.906Z
-updated: 2024-08-29T03:21:15.906Z
+date: 2024-11-30T17:25:16.400Z
+updated: 2024-12-06T20:04:27.543Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/0b6ddfcc355a034bc5a8feec71361dd4191fefb9c
 
  Facebook may be sitting at the top of the Social Networking category on Apple's App Store, but that doesn't necessarily mean that people are content with it—just that they're downloading it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook's Mobile App Rating Takes a Nosedive
 
  Pro-Palestinian activists are running a coordinated campaign to lower Facebook's mobile app rating on the Apple and Google app stores.
@@ -29,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/0b6ddfcc355a034bc5a8feec71361dd4191fefb9c
 
 ![Facebook open in a mobile browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-in-mobile-browser.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The team behind Facebook is reportedly taking this issue very seriously—they've marked it as "SEV1" or "severity 1," which is a descriptor used internally when there is a high-priority issue with the site.
 
  The only type of issue that would take higher priority than this is a "SEV0," which is used when site is down.
@@ -39,9 +47,17 @@ thumbnail: https://thmb.techidaily.com/0b6ddfcc355a034bc5a8feec71361dd4191fefb9c
 
  Apparently, Facebook also contacted Apple to have the negative reviews removed from the App Store, but its request was denied.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Under Fire, Again
 
 ![A close-up of a bunch of Facebook logo pin badges.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/Facebook-Launches-Transparency-Center-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Unfortunately, it's become pretty easy these days to find a reason to be frustrated with Facebook. For instance, despite its efforts to stop the spread of COVID-19 misinformation, the platform still allows the use of[anti-vax themed profile picture borders](https://www.makeuseof.com/facebook-anti-vax-profile-borders/) .
 
@@ -51,14 +67,11 @@ thumbnail: https://thmb.techidaily.com/0b6ddfcc355a034bc5a8feec71361dd4191fefb9c
 
  Facebook might be the prime example of the phrase "all publicity is good publicity." It's a platform that everyone seems to hate, and yet, we stay on it anyway.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -67,8 +80,18 @@ thumbnail: https://thmb.techidaily.com/0b6ddfcc355a034bc5a8feec71361dd4191fefb9c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-mastering-multimedia-slides-with-speech-recordings-powerpoint/"><u>[New] Mastering Multimedia Slides with Speech Recordings (PowerPoint)</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-boosting-yi-4k-action-recording-accessory-musts/"><u>[Updated] Boosting YI 4K Action Recording Accessory Musts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/dvdpcwindows-1011/"><u>DVDビデオをPCに移動するためのステップガイド「Windows 10/11」</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-steps-to-update-and-install-graphics-driver-for-hp-g3-series-computers/"><u>Easy Steps to Update and Install Graphics Driver for HP G3 Series Computers</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-beyond-imagination-cutting-edge-vr-tech/"><u>In 2024, Beyond Imagination Cutting-Edge VR Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/override-algorithmic-decisions-for-a-focused-experience/"><u>Override Algorithmic Decisions for a Focused Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/rapid-routes-through-distinct-facebook-user-sessions/"><u>Rapid Routes Through Distinct Facebook User Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-programming-facebooks-new-venture-with-rust/"><u>Revolutionizing Programming: Facebook's New Venture with Rust</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/seamless-instagram-video-mp4-conversion-pro-strategies-unlocked/"><u>Seamless Instagram Video-MP4 Conversion - Pro Strategies Unlocked</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-ais-mystery-inside-black-box-mechanics/"><u>Unveiling AI's Mystery: Inside Black Box Mechanics</u></a></li>
+<li><a href="https://facebook.techidaily.com/upgrade-to-gold-tier-buy-your-way-in-meta/"><u>Upgrade to Gold Tier: Buy Your Way in Meta</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
